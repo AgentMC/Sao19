@@ -195,6 +195,171 @@ Next to them, Tsukigaki sniffed the metal wings of the “machine dragon”, and
 
 She shouted while pulling the sleeve of Kirito 's strange clothes.
 
+"Well, you didn’t think that we plan to discharge all twenty thermal elements at the same time, which will clearly blow out the entire thing, did you!? This is done similar to a cathedral elevator."
+
+"Yup, since the nozzle is adjustable and initially sealed, you can raise or lower the pressure in the venison. Nothing is better to fly the skies than the explosive power of a thermal element..."
+
+Finally smiling, Kirito turned around.
+
+"Besides, there are so many people waiting to see such a thing... If you say that we are cancelling now, the “Central Government Rebellion” will happen next."
+
+"Ah, wasn’t it senpai who gathered them all!"
+
+A lot of people gathered today in the Central Cathedral front square because Kirito has widely announced that “we will conduct a public experiment by the Cathedral arsenal”".
+
+As the peace came to the Underworld, it is natural that staff members and citizens who have greatly enjoyed the recent "Northern Cave Protective Dragon Restoration Experiment", will show up as soon as the Human World Prime Swordsman, who is the biggest noise source, does something again.
+
+At that time, as it seemed Kirito made a minor mistake controlling the resurrected white dragon, almost all planted trees of Cathedral were frozen unfortunately. Ronnie who knew it unintentionally bend backwards.
+
+Her back was supported by a Vice-Prime Swordsman standing right behind. Asuna who had a long relationship with Kirito said with a face that looked like she gave up.
+
+"Don’t waste your time, Ronye-san. There’s nothing we can do, it will happen."
+
+"Bu... but...... it is not right............"
+
+The head turning left and right, made her rethink it once again. In the last years Ronye had learned the cases of “there is no other way but to do it” if stubborn Kirito comes up with something.
+
+Intending to do everything possible to at the very least avoid catastrophe, Ronye focused her mind on the heart of the “machine dragon”.
+
+Even though she was appointed as an apprentice, Ronnie still has not yet reached the level where she could freely utilize the "incarnation" which was the secret of the Knights. It was completely impossible for her to invoke sacred art by shortening the incantation to as little as her will like Kirito and higher Knights did, but recently she became able to perceive the state of the generated elements.
+
+As Sadore-shi said, a lot of thermal elements were contained inside the machine dragon. However, the thermals are never quiet. She felt how they are trembling and pulsing as if trying to blow away from the surrounding shell.
+
+_Such activity at this state of the elements, what will happen if we release it?_ ..... her back chilled but there was no choice but to continue watching the progress.
+
+"... Well, I could feel the elements for the time being, Asuna-sama, they seem to be controlled well......."
+
+Asuna next to her answered in a loud but trembling voice.
+
+"Thank you, then keep the circuit as it is"
+
+"I will"
+
+Just as Ronye nodded, Kirito loudly said from a distance.
+
+"Well then, here we start! Asuna, countdown, if you please!"
+
+"Why should it be me!"
+
+"Like in old times, when we were getting ready for the boss room rush!"
+
+Asuna swiftly nodded to the cryptic words of Kirito, then raised her right hand and recited the initial phrase of a sacred art.
+
+"System call!"
+
+She quickly and smoothly constructed "wide area loudness sacred art" combining aerial and crystal elements. She could use an incarnation, but there were no enemies around so there was no reason in concealing the technique.
+
+Asuna raised her lips to the thin film of glass floating in the center of the vortex-like air.
+
+『Everyone who gathered, we kept you waiting for long! Here and now, by the Central Cathedral arsenal, we are doing the flight experiment of “Machine Dragon — Prototype No. 1”! 』
+
+The loud voice echoed through the crowed square, and both the Cathedral officials standing on the other side of the narrow strands and the citizens of the central city packed in the seats in front of the main gate all happily cheered. Looking up to the Central Cathedral, the armor of Integrity Knights could be seen shining brightly on the large terrace around the thirtieth floor high above.
+
+In the applause and cheers, Kirito waved his hand towards visitors and began to climb a ladder standing against the machine dragon. He quickly reached the head and opened a transparent glass plate sliding it inward.
+
+He sat on the chair set facing the sky and fixed the body with a leather band. After wearing big eyeglasses previously hanging on his neck, he gave thumb up with the left hand to master Sadore.
+
+Old Sadore followed by Ronye and Asuna retreated for more than 20 mel. Ronye increased the distance carefully while paying attention so as not to lose the contact to thermal elements.
+
+『Then, I begin the countdown! Everyone, please join me! 』
+
+Asuna called out onlookers in an awfully familiar tone<sup><a href="#Prim4">4</a></sup>. She put both hands up in the air and extended ten fingers.
+
+『Altogether, ten! Nine! Eight! 』
+
+Approximately 1000 voices responded to the numbers Asuna shouted folding her fingers. Same moment, Tiese and Renry also joined the count with smiles on their faces.
+
+Ronye shouted together with them holding tightly to Tsukigaki’s neck.
+
+『Seven! Six! Five!』
+
+Unexpectedly, the vibrations of thermal elements increased in strength. Kirito began direct control with incarnation.
+
+Kirito's intense mind power flowed into the connected Ronye through elements serving as a mediator.
+
+Again, something tightened deeply in her chest.
+
+_── I cannot just let this feeling go out.  
+── As a Kirito-senpai’s companion, I have to keep it sleeping quietly until that time when I get old and my life runs out._
+
+Ronye shouted louder, aspiring to hide her heating eyes from Asuna standing next to her.
+
+『Four! Three! Two! 』
+
+The sound of the machine dragon is increasing rapidly. The dull silver shining violently shakes and the light leaking from the bottom tube changes color from red to orange and yellow.
+
+『One! ...... Zero!! 』
+
+The stone pavement of the square was shaken by the incantation finished with faintly heard Kirito's cry.
+
+"Discharge!!"
+
+A keyword invoking the release of the elements.
+
+Immediately after, twenty heat elements burst out at once with their concealed powers.
+
+Along with the magnificent impulsive sound, a whitish flame burst out from the bottom of the machine dragon. The marble paving stones that should have nearly infinite life were burned and a lot of white smoke appeared. A huge crowd furiously resounded.
+
+From that smoke ──.
+
+The metal dragon jumped out straight like a silver arrow.
+
+A high-pitched sound resonated through the sky that Ronye had never heard before. While dragging the long flame tail from the two cylinders, the dragon rising higher and higher.
+
+Ronye felt sore pain in the palms of both hands enveloped with the raging fever of released heat. Inherently, whatever the material container is made of, the ultra-high heat should completely destroy it and the whole machine dragon should be exploding. However, ultra-low temperature ice elements are sent one after another into the narrow tube embedded in the sealed can, reducing the temperature of the container. As a result, the explosive power of the thermal element is released only in one direction from the nozzle cylinder, and the huge machine dragon is blown straight.
+
+Now, for the first time in the history of Underworld, a human is soaring through the sky riding something other than a dragon.
+
+"............ amazing ......"
+
+Tears for the reason different than before filled both eyes of Ronye.
+
+Through her blurred distorted vision, she saw the silver dragon climbing up more and more as far as reaching over the Central Cathedral.
+
+_If the dragon remains in one place on the ground, the surrounding space sacred power will be exhausted quickly due to the cryogenic elements generated constantly, but traveling at a high speed, it should be possible to barely catch up with the supply of spatial resources. Then, that man-made dragon may be able to rise to a height that cannot be reached even with a real dragon._
+
+As soon as she thought this, Ronye felt that she realized the true intention of the Human World Prime Swordsman.
+
+Kirito’s goal is not just to just fly ── perhaps, with the machine dragon, even the "end wall of the world" that no creature can cross, may be surpassed.......
+
+However, the moment her thoughts reached that far.
+
+Suddenly, Ronye felt the signs that the thermal elements are expanding.
+
+_The sealed can is beginning to distort. It melts with high heat. I do not know the reason, but the supply of cryogenic elements that should lower the temperature of the can is insufficient._
+
+"Ah, Asuna-sama! Thermal elements are──"
+
+As she was saying that, they heard “Bo-mum!” which didn’t sound nice at all, and saw black smoke running from one of nozzle cylinders.
+
+![Image](/Translate/Img/P029.jpg)
+
+Immediately afterwards, the dragon began to rotate along the vertical axis. It’s track deviated to the south. Where was located ──
+
+The Central Cathedral, ninety-fifth floor wall.
+
+"Cra…crashes!"
+
+Ronye grasped hands in front of her chest and shouted. A loud scream rises from the onlookers as well.
+
+With the sound “Shats!” Asuna pulled out the small sword from her waist.
+
+A bright yellow light shining with the light of Solus divided into seven colors, pointed straight to Cathedral.
+
+"....... Yoisho!"<sup><a href="#Prim5">5</a></sup>
+
+Asuna cried it loud and menacingly like a god should, and at the same time moved the tip of the sword to the left.
+
+As if being pulled by it, the 95th floor of the huge Central Cathedral shifted to the west with a heavy sound.
+
+The next moment the machine dragon passed there while drawing black streaks of smoke.
+
+In the sky far from to the south, it emitted a dazzling flash.
+
+And with the sound “Doku~n!”, it exploded grandly.
+
+***
+
 ### To be continued
 
 ## Footnotes:
@@ -202,3 +367,5 @@ She shouted while pulling the sleeve of Kirito 's strange clothes.
 1. <a name="Prim1"></a>霜咲, Frost Bloom.
 2. <a name="Prim2"></a>As a reminder, "-sama" honorific is a more respectful version of "-san" for people of a higher rank than oneself.
 3. <a name="Prim3"></a>師, teacher, mentor. It is a shortening for his complete title, "master".
+4. <a name="Prim4"></a>Refers to kids shows where watchers should sing/count together with the lead.
+5. <a name="Prim5"></a>よいしょー, expression of effort or strain
