@@ -332,7 +332,7 @@ _The sealed can is beginning to distort. It melts with high heat. I do not know 
 
 As she was saying that, they heard “Bo-mum!” which didn’t sound nice at all, and saw black smoke running from one of nozzle cylinders.
 
-![Image](/Translate/Img/P029.jpg)
+![Image](/Translate/Img/p029.jpg)
 
 Immediately afterwards, the dragon began to rotate along the vertical axis. It’s track deviated to the south. Where was located ──
 
