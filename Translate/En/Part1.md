@@ -340,7 +340,7 @@ The Central Cathedral, ninety-fifth floor wall.
 
 "Cra…crashes!"
 
-Ronye grasped hands in front of her chest and shouted. A loud scream rises from the onlookers as well.
+Ronye grasped hands in front of her chest and shouted. A loud scream rised from the onlookers as well.
 
 With the sound “Shats!” Asuna pulled out the small sword from her waist.
 
@@ -350,7 +350,7 @@ A bright yellow light shining with the light of Solus divided into seven colors,
 
 Asuna cried it loud and menacingly like a god should, and at the same time moved the tip of the sword to the left.
 
-As if being pulled by it, the 95th floor of the huge Central Cathedral shifted to the west with a heavy sound.
+As if being pulled by it, the top of the huge Central Cathedral beginning with 95th floor shifted to the west with a heavy sound.
 
 The next moment the machine dragon passed there while drawing black streaks of smoke.
 
@@ -358,9 +358,51 @@ In the sky far from to the south, it emitted a dazzling flash.
 
 And with the sound “Doku~n!”, it exploded grandly.
 
-***
+Although some energy has been consumed to rise the dragon, the power that was simultaneously released by twenty thermal elements was tremendous.
 
-### To be continued
+Normally, one finger can control only one generated element, so even high-level clerics could not overcome the limit of ten instances.
+
+Rumors said, the former head of the Elder Council that used to manage the Axiom Church once used his toes to rise this limit to twenty, and the deceased Highest Priest Administrator seemed to have manipulated nearly a hundred instances using her hair, but of course Ronye never witnessed that.
+
+Even the knight Ronye was struck, not saying anything about the citizens who packed in Cathedral. High there in the air, an orange flash flared up so bright it should be called the second Solus, followed by the roar and a cruel shake as if heavens have fallen to the ground. Most of the onlookers screamed and covered heads with both hands.
+
+However, of course, unprocessed thermal elements have only exploded in the sky, so no damage has been none to the ground several hundred mel away from the bright phenomenon.
+
+At the end of the line of sight of the visitors who raised their faces, the dark black smoke expanded fully covering the top of the Cathedral which returned back to the original position.
+
+After seeing the explosion of the scale several times larger than the fireworks celebrating the New Year fired from this square two months ago, ── perhaps everyone thought that the Prime Swordsman who was in the steel dragon had passed anyway. Naturally, Ronye thought so as well, clenching both hands in front of her chest and opening her eyes wide.
+
+"Ki............"
+
+_Kirito-senpai!_
+
+As soon as she was about to shout, Asuna next to her tapped Ronnie's shoulder lightly and said.
+
+"He's all right"
+
+A small shadow dropped down breaking through the bottom of the black smoke as she heard the calm voice with no signs of trembling.
+
+A human. Even though all the materials forming the dragon evaporated and became a divine force spread in space, but one person wearing black clothes was falling down turning around.
+
+A shadow unexpectedly spread his arms.
+
+The part of the sleeves fabric stretched after them melting and changing shape to thin wings extending from the shoulders.
+
+When dragon-like wings similar fluted twice, three times, the speed of the fall decreased and eventually it completely stopped.
+
+The flight technique that should have been lost with the death of the Highest Priest. No, it was not actually a sacred art. It was only possible by incarnation to rewrite the “world’s logic” to transform the fabric of clothing into genuine wings and become a creature allowed to fly in the sky.
+
+There was no other person capable of doing such things at the moment. The watchers looking up roared all at once, and eventually the roar turned into a huge cheer and applause.
+
+Although the “machine dragon flight experiment” have probably failed for more than a half of its initial goal, Kirito gently descended waving and smiling. Ronnie also clapped both hands hard looking up at his figure.
+
+Kirito’s style of implementing an outrageous idea causing extraordinary results have never changed even after years.
+
+The vision of his smiling figure once again became blurred in Ronye’s both eyes.
+
+Blinking fast she prayed quietly deep in the back of her heart.
+
+_Should it ever come true, I hope that day would last forever._
 
 ## Footnotes:
 
