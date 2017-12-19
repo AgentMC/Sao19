@@ -227,8 +227,98 @@ And already from there, he shouted in a loud voice to Ronye, who let her hands f
 
 ***
 
-### To be continued...
+In the large kitchen on the 10th floor Ronye found round cakes with plenty of sugar icing with called Yukimomo ─ that was chief’s special, ─ put one in a basket with a pot of tea and headed to the 80th floor of Cathedral.
 
+The automatic elevator she took swiftly lifted her. This device was once operated by the hand of a human, but now the girl who was working like some sort of automate has been liberated from her awful job and they say now she is anticipated as an owner of an outstanding aerial sacred art skill and holds apposition in the arsenal.
+
+The 80th floor of the Central Cathedral known as "The Cloudtop Garden", was an indoor flower garden. In the middle of the vast grassland fully covered with innumerable flowers, on the top of a smoothly raised hill there was a figure of a Human World Prime Swordsman in his black clothes.
+
+Kirito stood with a right hand on the young olive tree<sup><a href="#Prim5">5</a></sup> planted in the center of the hill, but smiling turned around when Ronye approached.
+
+"Oh, sorry I had to bother you."
+
+"It’s nothing, because this is also a responsibility of a trainee."
+
+Returning a smile, Ronnie quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Kirito whose eyes shined like those of a child. She took a slice for herself and for Tsukigaki, poured tea into two cups and said "Here you are".
+
+"Enjoy the meals!"
+
+Shouting, Kirito started stuffing his mouth as if competing with the dragon. Watching this picture, Ronye was feeling warmth spreading from the deep of her chest.
+
+_In times like now, when I can stay with Kirito like this and have this comforting feeling, I only wish one thing. I wish I had time freeze sacred art...... then, I’d freeze this moment forever._
+
+But of course, there’s no sacred art of time manipulation<sup><a href="#Prim6">6</a></sup>. One can’t go back in time, it can’t be stopped, it keeps constantly flowing towards the future.
+
+Because of the nature of the time, this world has overcome the greatest crisis and thus it was possible to obtain perfect peace. Someday Ronye will be officially appointed to be an Integrity Knight, and the day will come when she rides on the Tsukigaki’s back who grew up and soars the sky. Of course, she was looking forward to that time. But this very moment, another wish has engulfed her. _Stop, time, stop._
+
+"....... nye. Ronye?"
+
+Ronye who suddenly heard Kirito's voice, raised a startled face.
+
+"Oh, I'm sorry! Another piece?"
+
+"No, well, I want it, but ... that's something else."
+
+Presenting an empty dish while saying so, Kirito slightly tilted his head.
+
+"Certainly, have you not told me there’s something you want to ask me about?"
+
+"Ah……"
+
+Finally remembering her own words, Ronye hurriedly spoke.
+
+"I'm sorry! Well... that’s about that iron dragon my senpai made, uh,... ”machine dragon” thing."
+
+Kirito nodded while grudgingly devouring two pieces received from Ronye.
+
+"Yup"
+
+"Oh, somehow, I thought .... No, I was rather worried......."
+
+Unconsciously throwing looks to the right and left, Ronye asked in a low voice.
+
+"Could it be... senpai is planning to .......jump over the "end wall of the world" with that machine dragon?
+
+As soon as Kirito heard this strange voice, he struck the air with his right hand while hitting his chest with his left hand. Ronye hurriedly grasped the cup of tea, drinking it all at once and let out a long breath.
+
+After that, the black-haired young man smiled like a mischievous child who had not changed at all since when they first met.
+
+"......something that I expect from a mentored trainee. An ability to keep secrets."
+
+"Sure, yes, I can!"
+
+"Yeah, well, I do."
+
+Having nodded as if not saying anything special, Kirito sat rubbing his chin. Ronye stared at him for a moment, stunned.
+
+The end wall of the world. It is the common name for the cliff of an infinite height surrounding the Underworld consisting of the Human World and the Dark Territory.
+
+It was too far from Centoria, so Ronye has seen it melting in the blue sky with her own eyes only once. While following Kirito she had visited the Mountain Goblin areal in the northern part of the Dark Territory, she noticed a breathtaking view of an incredible cliffing upstanding from behind the horizon.
+
+According to goblins’ stories, the wall seemed to be made of ultra-hard mineral, not soil. It was not easy to open a small hole especially digging a cave or staircase. It seems that everyone who tried to climb it in the history of 300 years encountered death.
+
+A similar tale is also in the Giant and Ogre tribes, and the wall is eventually the absolutely inviolable, as its name suggests, "the end wall of the world" is the boundary, which all the races living in the Dark Territory must respect.
+
+It should be ──
+
+"Ah, that, um"
+
+Even though it was expected, Ronye was still largely surprised by the positive answer, so she worked though hard. After having a gulp of tea, somehow she managed to summarize the words.
+
+"......Umm....... So have senpai already tried to cross the wall with your own flying technique?"
+
+"Yup"
+
+However, after nodding, Kirito immediately shook his head.
+
+"I tried and I gave up, neither the aerial sacred art nor the incarnation wind I created was good enough, it seems that the gravity increases indefinitely when approaching an altitude above a certain level ...... "
+
+Leaning against the trunk of the olive, Kirito kept on speaking words as if explaining to himself.
+
+"... However, when I threw the knife straight up above the limit, it flew to a considerable height, so it did not refuse to allow all the objects, probably only those being classified as human type, and I tried to manipulate that but I could not change my unit ID even when I grew the wings... All in all, I think the last resort is to be completely sealed in some movable shell. Then we only have to bet on the possibility that the system recognizes that it as entirely non-alive object..."
+
+
+### To be continued...
 
 ## Footnotes:
 
@@ -236,3 +326,5 @@ And already from there, he shouted in a loud voice to Ronye, who let her hands f
 2. <a name="Prim2"></a>Some sort of Underworld insect, probably, water-dependent. There’s a kind of wordplay here, but I couldn’t google it out, sorry.
 3. <a name="Prim3"></a>Her pearl skirt left it, I guess?
 4. <a name="Prim4"></a>Literally “snow peach”.
+5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
+6. <a name="Prim6"></a>…anymore, see Vol.18
