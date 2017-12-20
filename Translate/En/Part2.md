@@ -317,8 +317,209 @@ Leaning against the trunk of the olive, Kirito kept on speaking words as if expl
 
 "... However, when I threw the knife straight up above the limit, it flew to a considerable height, so it did not refuse to allow all the objects, probably only those being classified as human type, and I tried to manipulate that but I could not change my unit ID even when I grew the wings... All in all, I think the last resort is to be completely sealed in some movable shell. Then we only have to bet on the possibility that the system recognizes that it as entirely non-alive object..."
 
+It was hard to keep up with the story, and Ronye raised her hand.
 
-### To be continued...
+"That means, though a human of flesh and blood cannot overcome the wall, it may be possible to exceed its height if riding a metal dragon, right?"
+
+"Hmm……?"
+
+Kirito finally raised his face to her and after blinking several times began nodding.
+
+"Oh, sure. Yes, yes, that's right. Actually, I already tried something like leather or paper airplane moved by sacred art or incarnation...... to tie off from a dragon. But it was in vain... It seems the movement of clothes and armor is considered the same as if I myself moved. It is necessary to fly with the power of the dragon. However, it’s a vicious circle because when it comes to resisting the high heat of thermal elements, it inevitably becomes metallic, but then considering the total weight you have to ensure enough power to take off, which increases the number of thermal elements required..."
+
+"Um, ha... it's a difficult thing......."
+
+After thinking a bit in the same direction with Kirito, Ronye suddenly looked back to him.
+
+"No, it’s different! That, what I wanted to ask......"
+
+"And what was it?"
+
+"Why do you want to cross the end wall!
+
+Because I am so long by the side of Kirito-senpai, I know the feelings of senpai who wants to get over if there are walls…... but I think nowadays there are various …… more important things"
+
+Although she felt the need to say that vigorously, she realized that it was more like a sermon, and shrugged her neck. Kirito tapped Ronye’s shoulder lightly.
+
+"Thank you, Ronye. You always worry I don’t think anything wrong."
+
+She laughed and her heart suddenly began to jump. It was hard to hide these feelings from being noticed. Showing no appearance of noticing Ronye’s state, Kirito put his hands to the back of his head and turned his eyes away.
+
+"........... but, I think that crossing that wall is the top priority task in the Underworld now."
+
+"Well... what does that mean?"
+
+"...... Do not tell anyone else, even Tiese and Fanatio."
+
+Suddenly having heard such a thing, she opened her eyes wide but somehow stayed calm.
+
+But truly amazing were words of Kirito that followed.
+
+"── The thing is, the war will start once again."
+
+"............! No, no way ...... The peaceful era has just finally come..."
+
+Drawing a deep sigh, Kirito shook his head with a difficult face.
+
+"I am sorry, but will probably not last for long. ...... The Great Eastern Gate collapsed, the exchange project of two worlds began, and a lot of tourists came from the Dark Territory. Right now, they are enjoying promised landscapes and food. But, everyone will eventually notice. That two worlds have crucial difference. "
+
+"A difference...?"
+
+"Ara. Human World's land is so rich and the Dark Territory is awfully poor. You saw it Ronye, that bloody sky and the charcoal black ground....... The only place where they have plenty of rich ground is around the capital city of Obsidia, but humans are exclusively controlling it. Right now, goblins, orks and giants are mostly calmed down again, but dissatisfaction is steadily accumulating. ...... Me and Asuna worked hard to make it possible to plant the territory of sub-people, but it was useless. Spatial resources ...... The supply of sacred power is hopelessly small."
+
+Ronye listened to words of Kirito without a sound.
+
+Indeed, the desolated view of the Dark Territory was burning in her mind. But until now, she never thought about it from such perspective. Not a single idea of how to handle it came to her mind.
+
+"...... Senpai...... I ..."
+
+Kirito’s black eyes met muttering Ronye and he smiled softly.
+
+"I'm sorry, I do not blame Ronye. There is no choice, the Underworld is made from the beginning like that. The only goal is the war between the poor Dark Territory and the rich Human World. And the war began in fact, with so many sacrifices, and we barely avoided the worst ending possible. I will never let the same thing happen again, for the sake of lives lost in that battle. "
+
+"But, then, what shall we do ...?"
+
+"There is only one answer. For sub-people, it should not be an inhabitation at the remote boundaries of the Dark Territory that they were inevitably dislodged to, they need a country they can be proud of. Not a land of "sub-people". A real country."
+
+"Real ...... country"
+
+Ronye previously was trying to keep up with the story of Kirito as much as she could, but she felt she could instantaneously understand the clear meaning of those words.
+
+It is only the territory of mountain goblin tribe that Ronye saw with her own eyes. They dwell in hilly areas progressing all the way from the Great Eastern Gate to the northeast. Wheat does not grow in the ground, fish do not live in the water, it is a literal desolation.
+
+Besides, both chieftain Hagashi and his first-born child chief Kosogi fell one after another, and while a new chief was being chosen, the tribal reconstruction hasn’t progressed too well. In the earlier days when the Dark Territory followed only "the law of power", it would have been destroyed by the giant or the ork tribe, possibly the flat goblin tribe.
+
+Ronye who visited their land following Kirito lost her words to the sight of sick goblins left on the beds of the poor straw and crying weak hungry children. Even if the worst situation is pushed back by a large amount of emergency supplies brought from the Human World, it will not be a fundamental problem resolution. In that land one simply couldn’t support the prolific goblin population in the first place.
+
+But Ronnie did not try to think about their "future" until now. No, she tried to forget them. Figures of goblin children who galling and hitting each other like crazy trying to fetch not so tasty hard-baked breads from her own hands.
+
+_Since then, goods should be continuously sent from the Human World. Maybe once in a while I tell myself that something is wrong, but looking back now I see that in the rich Human World, although I was a lower-class aristocrat, I lived as nobles do without any inconvenience._
+
+But now that she heard words "real country" from Kirito’s mouth, Ronye was forced to comprehend. That wilderness could not be called even a territory, especially a country. That was an exile place. It was such a place that living there itself is punishment.
+
+"............ Senpai...... I ....... I..... "
+
+Ronye, deeply depressed, dropped the fork down on the cake dish and muttered with a blurred voice.
+
+_── Nobility has a serious obligation beyond a given privilege. We call that duty of having to fight for those without power at any time, in the sacred word "Noble Obligation"<sup><a href="#Prim7">7</a></sup>._
+
+Two years ago it was Kirito sitting in front of her who taught so Ronye being at that time a first-year student not knowing anything yet.
+
+_── Even so, I forgot it already... no, it is worse. In truth, I did not consider the goblin tribe as equal. Even though I thought that their circumstances are pitiful, somewhere in my heart, even if they are, I didn’t think of helping it...._
+
+First her vision got blurred and then tears fell into a white dish. Tsukigaki turned to her and purred “kurururu” inquiringly but then a hand stretched from the front and combed Ronye’s head.
+
+"I'm sorry, Ronye. I told you this story though I knew you might get hurt."
+
+Instead of his usually gentle voice, Kirito whispered.
+
+"...... However, you do not have to blame yourself so much, because being able to send aid supplies from the Human World to the Dark Territory became only possible after we have stopped wasting of the emperors and the great aristocrats and rapidly recovered after the war. Neither of that could be realized without Ronye's hard work, so Ronye you did your best for them properly."
+
+"Is... that so?"
+
+"Yes, it is. I was to the country of mountain goblins since then, and children remember perfectly even now how you gave them bread."
+
+Again, tears overfilled her eyes and ran down the cheeks, but this time those tears had slightly different meaning. Kirito wiped them with a simple handkerchief.
+
+Ronye desperately resisted the impulse to jump into his chest, to press her face and to cry. Forcibly stopping tears, she lifted her face, smiling a little while leaning on the spot.
+
+"...... Thank you, senpai... It's all right now. I’m sorry, crying like this in the middle of the talk."
+
+"I knew Ronye is a crybaby since you were a first-year trainee."
+
+Watching laughing and smiling Kirito, Ronye sharpened his lips enduring the pain in the back of the chest again.
+
+She finished with tea and after blinking the last tears away opened her mouth.
+
+"...Well, I understood what senpai is thinking. Goblins and orcs need a rich and beautiful country as much as the Human World. No more such places are left in the Underworld, we can only find it on the other side of the "the end wall of the world". For that reason, we must cross the wall with that machine dragon. That's how it is."
+
+"That's right. ... It will be hard even after crossing the wall ..."
+
+Kirito deeply nodded, confirming.
+
+"... But, is there really the other side of the wall? Is that wall not endless, and if not where it runs to.......? "
+
+" I also thought about that... But if that wall really ends up in this world, it feels like it's not even a wall. It is something more like an inaccessible address...... a void."
+
+"Void...... Is it like an emptiness you cannot see or use?"
+
+"Correct. But actually, the end wall of the world is a real cliff. Extremely high and terrible hard. The reason for this is probably to keep the inhabitants of the world from observing the uncomfortable truth.... The real "end of the world". If so, there is a possibility that it stops being "endless" when reaches up there. Everything depends on how much room and spare capacity the main visualizer has....... "
+
+Seeing him again flying to areas that the she could not understand, Ronye raised her eyebrows, and Kirito shrugged his head.
+
+"My bad, sorry Ronye, wasn’t talking to you just thinking out loud. Uh, well.... Basically, there is no "end" in this world. "
+
+"There is no end ......?"
+
+That was as well an unfamiliar concept to Ronye.
+
+For Ronnie, who was born and grew up in North Centoria, a huge wall that divides the city into sectors — the "timeless wall" — was the beginning. Eventually she learned that the vast Norlangarth empire spreading from it and also learned that it was forming a circular Human World together with the other three empires.
+
+She was taught about the endless mountain range surrounding the Human World and the dreadful territory that is spread far beyond that since she entered her childhood school at the age of eight years.
+
+However, even teachers did not talk about the specifics of the Dark Territory — come to think of it, it is doubtful if they were talking about that at all, — and that there is an endless cliff called “the end wall of the world”, — she only learned after volunteering to Human World defense army together with Tiese and arriving to the camp by the Great Eastern Gate.
+
+In other words, a constant "wall" always existed in the world Ronye knew. Even if one crossed the boundary, the next wall always appeared. This way, she believed, one will someday arrive to the perfect end of the world that they could never overcome.
+
+"....... Well, that is like... ... You mean, on the other side of the end wall, it’s like the Human World and the Dark Territory again?... ... Grasslands, forests and wilderness are spread far and wide?"
+
+As she asked that with an awkward tone, Kirito groaned “ugh…”.
+
+"How can I explain ...? ── Ah, right, come there."
+
+Rising up, he held the hand out. Embarrassed, she took that hand, and Kirito pulled Ronye up and led her to the narrow window open at the outer periphery of the Cloudtop Garden.
+
+"Here, look at that."
+
+The point where his right arm pointed to me was the white semicircle floating in the dark blue eastern sky — Lunaria<sup><a href="#Prim8">8</a></sup>. Both Ronye and Tsukigaki as they were told looked up at the big star that was the source of the name of the young dragon.
+
+Then Kirito said something obvious.
+
+"It’s round, isn’t it?"
+
+"...... Yes, it is round."
+
+She nodded thinking that she meant to answer something.
+
+"That Lunaria is not a flat disk but a round sphere so only the part where sun light hits looks brighter and this way comes waxing and waning... This is taught at the school in Centoria, too?"
+
+Kirito surely looked confident, with a wiggly smile.
+
+"Of course, of course, they tell you at the elementary school, ... that golden orb that is the throne of Goddess Lunaria ... floating in the god kingdom beyond the sky ..."
+
+"Oh, oh, um ... ... actually, I guess this world, including the Human World and the Dark Territory, should be of the same spherical shape."
+
+"Em...... What!? A sphere!?"
+
+She couldn’t help screaming. Suddenly, she felt unwillingly feared and unconsciously stomped on both feet. Next to her Tsukigaki snorted “fururu” as if laughing at stupid Kirito.
+
+Kirito then spent five minutes and taught her about the global spherical structure — the planet, — as he named it. Of course, it was not so easy to accept, but there was something that could help.
+
+The "Morning Star Lookout" on the 95th floor of the Central Cathedral was open to the all the skies around. Standing at that floor, looking at the ground, it was visible that the horizon far away draws a gentle upward arc.
+
+_If the world is truly spherical, — it seems like it is obvious — but when you try to wrap your head around, you start realizing things, thought Ronnie watching Lunaria floating in the sky._
+
+Unexpectedly, words she had never thought of went out from her lips.
+
+"If this world, like Lunaria is a sphere, too ...... on Lunaria, are there grasslands, forests and streets, do people live there?"
+
+"Huh……"
+
+It seemed that it was an unexpected question for Kirito, and a swordsman with long black hair blinked several times, but soon he got his eyes calm again.
+
+"......Maybe ... Depends on the distance to the moon, it may be not a small satellite, it may be a planet of the same size .... Well, someday I will understand it."
+
+Unexpectedly, Ronye did not feel much surprised hearing these amazing words that were uttered quite casually.
+
+Rather, she had a premonition that this person would naturally say so.
+
+So Ronye smiled, just moved closer to Kirito for only one cen and whispered.
+
+"At that time, I will accompany you as well, as a trainee following her senpai."
+
+"You won’t unless we build a big enough machine dragon"
+
+And then two humans and one dragon for quite some time looked up at the semicircle far away in the sky.
 
 ## Footnotes:
 
@@ -328,3 +529,5 @@ Leaning against the trunk of the olive, Kirito kept on speaking words as if expl
 4. <a name="Prim4"></a>Literally “snow peach”.
 5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
 6. <a name="Prim6"></a>…anymore, see Vol.18
+7. <a name="Prim7"></a>See [here]([https://en.wikipedia.org/wiki/Noblesse_oblige).
+8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigaki” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigaki”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.

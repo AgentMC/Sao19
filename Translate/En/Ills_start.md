@@ -6,7 +6,7 @@
 
 ![Image](/Translate/Img/k002.jpg)
 
-_**Kirito:** —— That's the way it is, the war starts once again.  
+_**Kirito:** —— The thing is, the war will start once again.  
 **Ronye Arabel:** No, no way..._ 
 
 ***
