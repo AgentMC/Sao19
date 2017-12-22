@@ -44,7 +44,7 @@ Tiese Shtolienen, knight apprentice being her friend since the Sword Mastery Aca
 
 When she reflexively exclaimed in a low voice, Tiese’s autumn leaves-colored eyes starred at Ronye, and she quickly denied.
 
-"Not at all! It’s the opposite...... It is not a duel...... It's rather…… matchmaking... "
+"Not at all! It’s the opposite...... It is not a duel...... It's rather…… matchmaking..."
 
 Companions clearly did not understand what each one was talking about, so Ronye starred at her with a blank look for a few seconds, when she finally understood the meaning of the word.
 
@@ -68,7 +68,7 @@ However, still looking downwards Tiese quickly shook her head.
 
 To that whisper, she blinked several times, surprised.
 
-"Well ... why ...? You don’t dislike Renri-sama, it seems to me you like him? And you are together for quite some time....... "
+"Well ... why ...? You don’t dislike Renri-sama, it seems to me you like him? And you are together for quite some time......."
 
 As she heard this direct question, Tiese’s face grew even darker and a sad expression appeared on it that was unimpeachably unthinkable to this energetic girl.
 
@@ -108,7 +108,7 @@ Tiese was looking through them not trying to focus her wet autumn leaves-colored
 
 Gently striking her back, Ronye felt as power left Tiese’s body and her head came to rest at Ronye's shoulder.
 
-"But you know……, in Renri’s smile, and his words, and his gestures, I search all the time for something similar to senpai....... Renri also knows that I couldn’t forget senpai. He said even this is fine. Then he proposed to me. I'm really happy...., I'm happy but ... "
+"But you know……, in Renri’s smile, and his words, and his gestures, I search all the time for something similar to senpai....... Renri also knows that I couldn’t forget senpai. He said even this is fine. Then he proposed to me. I'm really happy...., I'm happy but ..."
 
 Again, tears ran the long eyelashes and fell. This time they did not stop at a chin, heavy drops fell below and left two stains on simple training clothes.
 
@@ -148,7 +148,7 @@ Eventually muttered Tiese with a weak voice, but Ronye slightly shook her head.
 
 Tiese breathed heavily and said with a strong voice.
 
-"I will ask Renri to wait a little more. Even after some time, nothing may change, but ... but, I have a premonition. "
+"I will ask Renri to wait a little more. Even after some time, nothing may change, but ... but, I have a premonition."
 
 "Premonition ...?"
 
@@ -176,7 +176,7 @@ She shouted unintentionally, shrugged and shook her head vigorously.
 
 "I will never do that...... It’s just impossible. I’m fine, don’t worry."
 
-"You were worried about me so can I not be doing the same? "
+"You were worried about me so can I not be doing the same?"
 
 But she continued to deny in reply to Tiese’s serious question.
 
@@ -200,7 +200,7 @@ Proclaimed she facing away.
 
 Upon hearing that, her best friend once again sighed, raised from the bench and stood up next to her.
 
-"Well, Kirito-senpai is not likely to say such a thing himself for the time being............. Let’s go back Ronye. Shimosaki is hungry. "
+"Well, Kirito-senpai is not likely to say such a thing himself for the time being............. Let’s go back Ronye. Shimosaki is hungry."
 
 "Yeah... I was just about to say so...."
 

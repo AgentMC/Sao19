@@ -311,7 +311,7 @@ Even though it was expected, Ronye was still largely surprised by the positive a
 
 However, after nodding, Kirito immediately shook his head.
 
-"I tried and I gave up, neither the aerial sacred art nor the incarnation wind I created was good enough, it seems that the gravity increases indefinitely when approaching an altitude above a certain level ...... "
+"I tried and I gave up, neither the aerial sacred art nor the incarnation wind I created was good enough, it seems that the gravity increases indefinitely when approaching an altitude above a certain level ......"
 
 Leaning against the trunk of the olive, Kirito kept on speaking words as if explaining to himself.
 
@@ -361,7 +361,7 @@ But truly amazing were words of Kirito that followed.
 
 Drawing a deep sigh, Kirito shook his head with a difficult face.
 
-"I am sorry, but will probably not last for long. ...... The Great Eastern Gate collapsed, the exchange project of two worlds began, and a lot of tourists came from the Dark Territory. Right now, they are enjoying promised landscapes and food. But, everyone will eventually notice. That two worlds have crucial difference. "
+"I am sorry, but will probably not last for long. ...... The Great Eastern Gate collapsed, the exchange project of two worlds began, and a lot of tourists came from the Dark Territory. Right now, they are enjoying promised landscapes and food. But, everyone will eventually notice. That two worlds have crucial difference."
 
 "A difference...?"
 
@@ -375,7 +375,7 @@ Indeed, the desolated view of the Dark Territory was burning in her mind. But un
 
 Kirito’s black eyes met muttering Ronye and he smiled softly.
 
-"I'm sorry, I do not blame Ronye. There is no choice, the Underworld is made from the beginning like that. The only goal is the war between the poor Dark Territory and the rich Human World. And the war began in fact, with so many sacrifices, and we barely avoided the worst ending possible. I will never let the same thing happen again, for the sake of lives lost in that battle. "
+"I'm sorry, I do not blame Ronye. There is no choice, the Underworld is made from the beginning like that. The only goal is the war between the poor Dark Territory and the rich Human World. And the war began in fact, with so many sacrifices, and we barely avoided the worst ending possible. I will never let the same thing happen again, for the sake of lives lost in that battle."
 
 "But, then, what shall we do ...?"
 
@@ -397,7 +397,7 @@ _Since then, goods should be continuously sent from the Human World. Maybe once 
 
 But now that she heard words "real country" from Kirito’s mouth, Ronye was forced to comprehend. That wilderness could not be called even a territory, especially a country. That was an exile place. It was such a place that living there itself is punishment.
 
-"............ Senpai...... I ....... I..... "
+"............ Senpai...... I ....... I....."
 
 Ronye, deeply depressed, dropped the fork down on the cake dish and muttered with a blurred voice.
 
@@ -437,17 +437,17 @@ She finished with tea and after blinking the last tears away opened her mouth.
 
 Kirito deeply nodded, confirming.
 
-"... But, is there really the other side of the wall? Is that wall not endless, and if not where it runs to.......? "
+"... But, is there really the other side of the wall? Is that wall not endless, and if not where it runs to.......?"
 
 " I also thought about that... But if that wall really ends up in this world, it feels like it's not even a wall. It is something more like an inaccessible address...... a void."
 
 "Void...... Is it like an emptiness you cannot see or use?"
 
-"Correct. But actually, the end wall of the world is a real cliff. Extremely high and terrible hard. The reason for this is probably to keep the inhabitants of the world from observing the uncomfortable truth.... The real "end of the world". If so, there is a possibility that it stops being "endless" when reaches up there. Everything depends on how much room and spare capacity the main visualizer has....... "
+"Correct. But actually, the end wall of the world is a real cliff. Extremely high and terrible hard. The reason for this is probably to keep the inhabitants of the world from observing the uncomfortable truth.... The real "end of the world". If so, there is a possibility that it stops being "endless" when reaches up there. Everything depends on how much room and spare capacity the main visualizer has......."
 
 Seeing him again flying to areas that the she could not understand, Ronye raised her eyebrows, and Kirito shrugged his head.
 
-"My bad, sorry Ronye, wasn’t talking to you just thinking out loud. Uh, well.... Basically, there is no "end" in this world. "
+"My bad, sorry Ronye, wasn’t talking to you just thinking out loud. Uh, well.... Basically, there is no "end" in this world."
 
 "There is no end ......?"
 
