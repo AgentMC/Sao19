@@ -8,7 +8,7 @@ The girl's name is Ronye Arabel. The name of the young dragon is Tsukigaki<sup><
 
 From a beautiful, causing to smile sight as if in a fairy tale, it is hard to imagine that in a few years the girl and the young dragon will grow up to "Integrity Knights" with the greatest fighting power in the Underworld.
 
-But indeed, even now, there won’t be even 100 people in the whole world, who surpass Ronye in sword skill. The girl was always fighting at the forefront of that terrible "foreign world war"<sup><a href="#Prim2">2</a></sup>, followed by the "rebellion of four empires", and for the first time in history, it was appointed to be an Integrity Knight apprentice by the battle in actual war.
+But indeed, even now, there won’t be even 100 people in the whole world, who surpass Ronye in sword skill. The girl was always fighting at the forefront of that terrible "foreign world war"<sup><a href="#Prim2">2</a></sup>, followed by the "Rebellion of Four Empires", and for the first time in history, it was appointed to be an Integrity Knight apprentice by the battle in actual war.
 
 However ───.
 

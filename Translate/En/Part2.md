@@ -90,7 +90,7 @@ Still, she spent every day very happy, surrounded by kind and housewifely mother
 
 The only depressing moment was the occasional party held at her father's birthplace, the house of fourth class aristocrat. Her grandfather, who was a father of four, had been called to heaven by the time Ronye was still a baby, and the eldest son, Ronye’s uncle, the head of a family with insufferable aristocratic temperament ── took over the house. Her gorgeously looking aunt was disgusting when she falsely praised Ronye's mother's old dress and things like that were inevitable so she didn’t want to go at those parties every time.
 
-However, after the “Rebellion of four empires” has been finished, the aristocratic system was greatly reformed. All their land was released. Aristocracy classes were also abolished. Only the soldiers' allowance was left behind, but that alone was not enough and every aristocrat had to get a job at the restructured “human forces army”.
+However, after the “Rebellion of Four Empires” has been finished, the aristocratic system was greatly reformed. All their land was released. Aristocracy classes were also abolished. Only the soldiers' allowance was left behind, but that alone was not enough and every aristocrat had to get a job at the restructured “human forces army”.
 
 For the former Emperors families, this change was the same as a natural disaster, but if you ask Ronye, it has only become the proper way it should finally be. The era of loud titles and high ranks granted solely because of the origin was over and sword power and intelligence, as well as experience and knowledge, allowed people to take up key positions.
 
@@ -387,7 +387,7 @@ Ronye previously was trying to keep up with the story of Kirito as much as she c
 
 It is only the territory of mountain goblin tribe that Ronye saw with her own eyes. They dwell in hilly areas progressing all the way from the Great Eastern Gate to the northeast. Wheat does not grow in the ground, fish do not live in the water, it is a literal desolation.
 
-Besides, both chieftain Hagashi and his first-born child chief Kosogi fell one after another, and while a new chief was being chosen, the tribal reconstruction hasn’t progressed too well. In the earlier days when the Dark Territory followed only "the law of power", it would have been destroyed by the giant or the ork tribe, possibly the flat goblin tribe.
+Besides, both chieftain Hagashi and his first-born child chief Kosogi fell one after another, and while a new chief was being chosen, the tribal reconstruction hasn’t progressed too well. In the earlier days when the Dark Territory followed only "Law of the Strongest", it would have been destroyed by the giant or the ork tribe, possibly the flat goblin tribe.
 
 Ronye who visited their land following Kirito lost her words to the sight of sick goblins left on the beds of the poor straw and crying weak hungry children. Even if the worst situation is pushed back by a large amount of emergency supplies brought from the Human World, it will not be a fundamental problem resolution. In that land one simply couldn’t support the prolific goblin population in the first place.
 

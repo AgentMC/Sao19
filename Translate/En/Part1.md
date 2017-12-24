@@ -35,7 +35,7 @@ Integrity Knight Renri Synthesis Twenty-Seven answered to that with a wry smile 
 She tilted her head unconsciously.
 
 _Today ── it is the seventeenth February, three hundred and eighty-second year according to the Human World calendar, just a regular weekday.  
-Also, neither in the "Human World Basic Law" issued last year, nor in the “Taboo Index” being actively revised, there is not a single line instructing to celebrate this day._
+Also, neither in the "Human World Fundamental Law" issued last year, nor in the “Taboo Index” being actively revised, there is not a single line instructing to celebrate this day._
 
 However, looking around, the vast Central Cathedral front square was crowded with as many onlookers as the total count of it’s staff. Everyone seemed to have a terrible trouble trying to get drinks and snacks.
 
@@ -103,7 +103,7 @@ She looked up at the highest point of a metal dragon, and then saw two men discu
 
 "...... all in all, Kiri-boy, even if you say that the thermal element can is computationally resistant to the heat that one generates, that is because there is sufficient supply of permanent freezing! Grandson is not good at cryogenic element, so if you take any delay during the sacred art, the fully charged element can will blow in a blink of an eye!"
 
-The one proclaiming this loud speech full of unknown words was a man of about fifty years old owning a magnificent beard. That person well-known to Ronye, was a metalworker producing the best armor in the capital city of Centoria named Sadore. For a long time, he used to operate a shop in a downtown, and after a cooperation with the Integrity Knights Order in the "Rebellion of the Four Empires", he took office as Central Cathedral's chief engineer.
+The one proclaiming this loud speech full of unknown words was a man of about fifty years old owning a magnificent beard. That person well-known to Ronye, was a metalworker producing the best armor in the capital city of Centoria named Sadore. For a long time, he used to operate a shop in a downtown, and after a cooperation with the Integrity Knights Order in the "Rebellion of Four Empires", he took office as Central Cathedral's chief engineer.
 
 The one being spoken to by Sadore-shi<sup><a href="#Prim3">3</a></sup>  immediately became totally blushed, like a little kid ──
 

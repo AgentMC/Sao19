@@ -14,7 +14,7 @@ _**Kirito:** —— The thing is, the war will start once again.
 ![Image](/Translate/Img/k003.jpg)
 
 _**(Kirito):** ...A Dark Territory dweller committed a "murder" in Centoria.  
-**Isukan:** Unthinkable... As long as the "Law of Power" is in action, people of Dark Territory are unable to kill a person from Human World.  
+**Isukan:** Unthinkable... As long as the "Law of the Strongest" is in action, people of Dark Territory are unable to kill a person from Human World.  
 **Scheta Synthesis Twelve:** But if the culprit is from Human World, this means he is able to ignore the Taboo Index._ 
 
 ***

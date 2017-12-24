@@ -186,7 +186,7 @@ But she continued to deny in reply to Tiese’s serious question.
 
 Sighed Tiese, amazed.
 
-"Kirito-senpai is not married to anyone of them, and now senpai’s status is higher than an emperor, so if you look to the Empire's Basic Law, he could have... ... three wives? Four perhaps?
+"Kirito-senpai is not married to anyone of them, and now senpai’s status is higher than an emperor, so if you look to the Empire's Fundamental Law, he could have... ... three wives? Four perhaps?
 
 ![Image](/Translate/Img/p073.jpg)
 
