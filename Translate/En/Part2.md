@@ -177,7 +177,7 @@ She heard the whispering voice of amazed Kirito, standing with half a fearful fa
 
 Shaking his head Kirito put hands on his waist.
 
-"As today's work has been done, I got to take a little look at the state of Unit 2..."
+"As today's work has been done, I got to take a little look at the state of Version 2..."
 
 "Oh, uhhhhhhhh? Are you ready for the next one?"
 
