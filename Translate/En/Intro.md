@@ -2,7 +2,7 @@
 
 The footstep sounds of two are echoing in a corridor formed with stretching up white columns. 
 
-Running ahead is a girl wearing gray light armor and slender long sword with fluttering dark brown hair. Just behind her, a young dragon covered in pale yellow wool with whole body being fluffy chases while shaking a long tail. The head of the dragon, which has not yet developed corners, is slightly higher than the girl.
+Running ahead is a girl wearing gray light armor and slender long sword with fluttering dark brown hair. Just behind her, a young dragon covered in pale yellow wool with whole body being fluffy chases while shaking a long tail. The head of the dragon, which has not yet developed corners, is slightly higher than the girl's waist.
 
 The girl's name is Ronye Arabel. The name of the young dragon is Tsukigaki<sup><a href="#Prim1">1</a></sup>.
 

@@ -390,6 +390,6 @@ After Ronye replied correctly, Asuna smiled.
 
 1. <a name="Prim1"></a>Poisonous plant, unique to Underworld, used in manufacture. 
 2. <a name="Prim2"></a>嬢 means unmarried woman, girl; 嬢ちゃん, respectively, cute little girl, “cutie”.
-3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九" in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
+3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九", in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
 4. <a name="Prim4"></a>Indian jasmine, _Jasminum sambac_
 5. <a name="Prim5"></a>クロイス, probably a reference to “Legend of Heroes” series
