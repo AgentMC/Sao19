@@ -188,9 +188,208 @@ Asuna standing behind her patted Ronye’s shoulder and said with a mischievous 
 
 One looking into the face of the second greatest swordsman in the Human World has to obey. Hey, I did not check it recently, what if it went down.... thinking this way, she drew a sign in the air with her left hand and lightly taped her right hand.
 
+"Stacia’s window" appeared with a faint glow, was the representation of the ultimate essence of a person — something Kirito was calling "personal stats" — so was not polite to peep at other’s windows except for the cases of emergency. To protect her window from Asuna’s look, Ronye went one step behind her and then told the number in the row titled **【Object Control Authority】**.
+
+"Err, it is 39<sup><a href="#Prim3">3</a></sup>......"
+
+"Amazing, it's almost the same as numbered knights have."
+
+Asuna smiled sweetly and went to the far wall murmuring "Well then.......". She moved through countless displayed one-handed swords of various colors and designs one after another, chose as much as four and holding them by two in each hand, arranged on a nearby bench.
+
+"These are priorities 38 and 39. Choose whichever you like, Ronye-san."
+
+The unexpected words of Asuna made the other one speechless for several moments.
+
+Speaking of Priority 39, it does not extend to the level of divine objects, but such a sword is still unique and categorized as a legendary one. Indeed, all four lined up on the bench were decorated with a wonderful decoration, and all polished like a mirror blades shined with different shades. Even "Four Oscillation Blades" reporting directly to Fanatio were using official style swords, the knight trainee could not even dream of such a gift.
+
+"I ... could not .... Asuna-sama!"
+
+When Ronnie swung both hands and head at the same time, Asuna grinned and said.
+
+"That gesture, it looks a bit like Kirito-kun"
+
+"Well ... yeah... maybe ... ...."
+
+"He-he, you do not have to hold back, Ronye-san. I got permission from commander Fanatio and above all you are a brave person who fought through that war until the end."
+
+"............... It’s such a..."
+
+Once again, wiggle and waving.
+
+"...... I was protected by Asuna and Renri, and many Human World swordsmen, and swordsmen who came to the rescue from Real World...... When that black knight did terrible things against Kirito-senpai, even though I was there, I could not do anything."
+
+"Not at all, for sure."
+
+Asuna suddenly made a step towards Ronye and gently pit her hands to Ronnie's back. Although at first her body became completely stiff, sweet and refreshing scent of melati<sup><a href="#Prim4">4</a></sup> and gentle warmth quickly melt the tension.
+
+"It was Ronye-san and Tiese-san, and Alice, who protected Kirito when he couldn’t move. For me, you are the true heroes... I won’t ever be able to thank you enough..."
+
+Feeling tears covering her eyes from these words, Ronye muttered.
+
+"Alice-sama...... Why did she leave....... "
+
+After a while Asuna responded with certainty.
+
+"She is fine in the real world. She is the hope that ties the two worlds....... I'm sure, someday, we’ll meet again...... "
+
+Having applied some strength to both arms hugging Ronye, Asuna released her and smiled again.
+
+"Now, pick a sword, this is not just you, it's also a weapon to protect Kirito-kun."
+
+After such words she couldn’t refrain any longer.
+
+Again, she looked at swords selected by Asuna. All four were straight swords for one hand, but grips and blades are somewhat slender, and it is understood that her selection matched not only the priority but also Ronye’s stature.
+
+As it was discovered recently through steady Kirito’s analysis, top-ranking weapons, accessories and decorative items with priority exceeding 30, in addition to the value of the life displayed in the Stacia’s Window, it seems, were granting certain "hidden natural power", so to speak. It included a wide range of increased absorption of attribution attacks, poison, fatigue, dark arts, or, on the contrary, it could help to generate a specific element, in rare cases, the life recovery speed is increased or one becomes able to see in the night; they said, even strange effects such as being liked by dogs were discovered.
+
+In addition, it turned out that divine objects the deceased Highest Priest Administrator had given to the Integrity Knights, had hidden natural power to strengthen the sacred art of those attribute which one was good at, which means not only weapons but also the capabilities of knights were available to Administrator in much more detailed form than the Stacia's Window. Currently, Cathedral's high-level clerics seem to be doing their best to implement the "sacred techniques to uncover hidden natural power", but it will take a long time... Kirito had said.
+
+Four swords lined up in front of Ronye's eyes should also have different hidden natural powers, but from the appearance it couldn’t be seen at all. She could try using sacred art of all attributes equipping them in turn, or run around the Cathedral and then examine the recovery speed of her life, but this way she will feel faintly, which was not possible to afford as they were departing tomorrow early in the morning.
+
+She felt that a faint voice came back from the depths of her memory when she was standing in the same way without knowing what to choose.
+
+_......In the past, this sword was too heavy, even hard to lift, rather not to swing it._
+
+The one who said that holding a beautiful long sword with a slightly bluish white blade, was the same person whom Tiese served as a valet, elite swordsman-in-training Yujio. Next to him elite swordsman-in-training Kirito smiled polishing his own black sword, and nearby tables had just boiled tea and freshly baked honey pie spreading a nice scent. It has been so long time ago, nearly two years have passed already since that old scene.
+
+At that time Tiese and Ronye were first year students just entered the Northern Centoria’s Sword Mastery Academy. Although it happened so that the results of their entrance exams were good and they were able to get the place among twelve people chosen from one hundred twenty applicants, they still had troubles handling as expected those platinum oak wooden swords of priority 15 they were given, so they asked senpais how to handle heavy swords.
+
+Yujio easily lifted the "Blue Rose sword" that although looking delicate and slim was much heavier than steel made big two-handed swords, and continued.
+
+『In theory, if swordsman’s weapon control authority exceeds the priority of the weapon, the sword will not be too heavy. But I think that the connection between a sword and a swordsman is such a thing that cannot be expressed by numbers only. Even weapons having lower priority than their owner’s authority will not respond to the will of the owner at the time of need if they don’t treat them seriously or do not handle normally. I could not swing this sword a long time ago not only because I did not have enough authority, but because my connection to this sword was not enough... I think that’s the way it is. 』
+
+"Connection...... to the sword"
+
+Hearing such words for the first time, Ronye and Tiese were greatly puzzled.
+
+Both of them were children of the sixth, lowest class aristocracy, and their parents dreamed that their kids will grow up and succeed enough to be granted the forth class so they won’t be living in fear of the aristocratic right of senior aristocrats anymore, so they spare no expense to train their children sword technique. Foremost, if a wooden sword is broken with intense training, they will be happy to take a replacement. For both of them the sword is a dream...... or rather a tool to realize the dreams of their parents, not really their own, and at the same time they were the handcuffs that tied them prescribing their future.
+
+So even if one said that a connection to a sword is essential, they could not understand that immediately.
+
+To such two people, Yujio talked with a gentle smile.
+
+"Not only the sword. Even clothes, shoes, tableware...... every single particle generated by sacred art, if you open your heart and share your love they will surely respond. Maybe, people too."
+
+Then, Kirito who listened last two sentences silently stopped polishing "the sword of the night sky" — at that time simply called "black" ─ and deepened the mischievous smile.
+
+"Yes, Yujio and myself have our minds open. For example, I have a connection to Yujio’s pie, and I hear it happily permits me to eat it."
+
+"I'm sorry, but the moment I eat my pie I will be executing my connection with yours, Kirito."
+
+When listening to that exchange, Ronnie unexpectedly smiled and laughed. Laughing, she felt like she could understand the words of Yujio.
+
+From that day on, with the permission of the dorm guardian those two decided to brush and polish platinum oak wooden swords from the training ground every day to heal the damage caused by training. It did not take a while until they become able to freely swing a wooden sword.
+
+They hoped secretly that those enjoyable days at the Academy would continue forever. But only a month and a half later, Yujio and Kirito attacked other elite swordsmen-in-training with the Sword of the Blue Rose and the Sword of the Night Sky to help Tiese and Ronye and were taken to the Axiom Church. After that, when they escaped from the dungeon, they challenged the Axiom Church itself, breaking through the world's most powerful knights, and finally even defeated the Highest Priest Administrator who was the ruler of the Human World. But in that fight Yujio lost his life and became the one who will never return.
+
+Recalling the voice of Tiese striving to meet Yujio-senpai, Ronye stretched her right hand without touching the tears that appeared once again.
+
+_Swordsman does not choose a sword. It is the sword that picks the owner. Should I open my heart and pour love to them, any sword will surely respond._
+
+Ronnie's hands caught the third from left — a long sword with silver guard and pommel, with handle wrapped with rough black leather resembling Kirito’s hair, emitting a soft sheen. Brand new handle leather was a little hard feeling, but she thought that if she handles it with care it will soon become familiar with her palm.
+
+She breathed in and exhaled, then gently lifted the sword.
+
+Heavy. A heavy feeling of dense and resistant thing strongly transmitted from fingers through her wrist, elbow and shoulder to the core of the body.
+
+_But it was not an unpleasant weight. Just like platinum oak wooden sword I was using as a junior swordsman trainee, just like an official sword of Human World Defense Army we fought through two wars together, I feel like I’ll be able to handle this one freely someday if I take care of it with love._
+
+She grasped the handle with her right hand and felt the essence of the sword by placing a blade on her left, then a gentle voice sounded.
+
+"...... Is this sword OK?"
+
+She firmly nodded to Asuna’s words.
+
+The Vice-Prime Swordsman put all the other three in sheaths, rested on the wall support, and then went around the bench and stood on the left side of Ronye.
+
+"The name for this sword should be assigned by Ronye-san. Go to the administration department once you decide, have them register it in the knight equipment ledger."
+
+"......Yes."
+
+It was the first time she had a sword that must be registered due to its significance, so she was a bit confused but nodded thinking that it is also an obligation of the owner. In the past it was the Highest Priest Administrator’s whimsy to build or destroy divine objects, give it to someone or take it back, but now all kinds of weapons and armor accessories in Cathedral are carefully managed by ledger.
+
+Asuna nodded smiling, glanced at the left side of Ronye’s waist.
+
+"What will you do with that sword? If you wish to return it to the Human World army, I can deliver it to the headquarters with a tomorrow's messenger."
+
+"Oh, ye... yes, I should..."
+
+![Image](/Translate/Img/p115.jpg)
+
+She would involuntarily begin to stammer in response to unexpected words.
+
+The standard sword, which was always on her left hip, was owned by Ronye ── the sacred letter "P" would be shown indicating that she is the owner if she opens the Stacia’s Window ── but in the light of military rules of the Human World Defense Army, it was a loan only. _When we renew our weapons and old ones become redundant we have to return them to the army._
+
+Both handle and sheath were made of dark brown leather, and although its creation involved practically no decoration, it was still a sharp sword of priority 25 made from Crois steel<sup><a href="#Prim5">5</a></sup> which was southern specialty. It by no means was a cheap production, and because Ronye had carefully maintained it, plenty of life was still left.
+
+Actually, it should have been exchanged to the standard sword of the Knights Order a year ago when she was appointed as an Integrity Knight trainee, but at that time she kept postponing it as she was too busy, so eventually both Ronye and Tiese remained attached to their previous sword and kept using it as it was.
+
+However, if a new sword is offered from a Vice-Prime Swordsman in such a way, she had to finally bid it farewell. ── However.
+
+".................."
+
+Holding a new sword with her right hand, she was still gently touching the handle of the standard sword with the left one; Asuna nodded and said.
+
+"I understand that feeling. I also didn’t want to let go my first loved sword, so I annoyed Kirito-kun."
+
+"Er…?"
+
+Surprised, she stared at the face of Vice-Prime.
+
+"Asuna-sama...... is that about Real World...?"
+
+"Well, not exactly. Long ago, Kirito-kun and I were fighting together in a world that is neither a Real World nor an Underworld. To be precise...... Kirito-kun taught me how to fight when I knew nothing at all."
+
+"So even Asuna-sama who is strong like God, had times like that......."
+
+"That's right, I am not a god but same as Ronye-san...... a human girl."
+
+Looking at Asuna's smiling face, which seemed to be more beautiful than any human being is allowed to have, Ronye narrowed her eyes for a moment and asked.
+
+"Em...... Asuna-sama, so how did you make yourself to let go your first sword?"
+
+Asuna looked down at the palm of the right hand as if to miss the sensation of the sword, raised her face and answered.
+
+"With the recommendation of Kirito-kun, I melt the sword... into a metal bar, its original form, and I made a new sword from that material. This way, he said, the soul of the sword will be transferred....... That person, he can be so badly sentimental about swords."
+
+"Hehehe...... It looks very much like Kirito-senpai."
+
+Two people were laughing and giggling for some time, but eventually Asuna murmured "But".
+
+"This story in current circumstances won’t help Ronye-san...... I cannot melt the sword of the human world army, and furthermore, there is already a new sword in the first place..."
+
+"...Well, I could decide after listening to your story. This sword will be returned to the human forces army."
+
+She put the new sword back to the table, removed the standard sword together with the sheath from the clasp on the sword belt and handed it out to Asuna with both hands.
+
+"Is it really okay...? If you ask Rina-san, I think it is also possible to continue to own it......"
+
+"No, it's really fine. I knew this sword is too light for me long ago....... I guess, someone next needs it."
+
+"I understood. Well then, I will return this to the Human Army Headquarters with a messenger tomorrow."
+
+Having received the standard sword with a gesture full of respect, Asuna hung it on the right side of her waist. Although the standard sword of the Human World Army is said to be light, when it is combined with the sacred instrument "Radiant Light" on the left of her waist, it should be a considerable weight, but she returned to the opposite side of the bench with a gait that does not suggest any weight at all and presented a black leather sheath decorated with silverwork that she put there.
+
+Ronye who lowered his head lowered his clasp to the sword belt when he put the sword in it. While feeling new weights throughout the body, Asuna suddenly stretched his spine straight and stared straight at Ronye.
+
+"...Ronye-san. Regarding Kirito-kun, thank you."
+
+"Ah... sure!"
+
+She answered reflexively, but remembering the situation, Ronye returned to the attitude of knight recitation.
+
+"Integrity knight apprentice Ronye Arabel, will protect the Prime Swordsman at the cost of my life!"
+
+After Ronye replied correctly, Asuna smiled.
+
+"Do not discard your life though. It is the best that you both come home safely, if you see Kirito-kun runs away, please escape as well."
+
 ### To be continued...
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>Poisonous plant, unique to Underworld, used in manufacture. 
 2. <a name="Prim2"></a>嬢 means unmarried woman, girl; 嬢ちゃん, respectively, cute little girl, “cutie”.
+3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九" in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
+4. <a name="Prim4"></a>Indian jasmine, _Jasminum sambac_
+5. <a name="Prim5"></a>クロイス, probably a reference to “Legend of Heroes” series
