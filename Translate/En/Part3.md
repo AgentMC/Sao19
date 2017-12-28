@@ -216,7 +216,7 @@ They looked at each other’s faces and sighed again standing in the deeps of th
 
 That night.
 
-Lying on a bed in her room on the 12th floor of the Cathedral, Ronye could not easily fall asleep.
+Lying on a bed in her room on the 22nd floor of the Cathedral, Ronye could not easily fall asleep.
 
 _── That’s all because of strange things Tiese said._
 
@@ -224,7 +224,7 @@ And she immediately felt the displeasure towards the girl in the room next door,
 
 Anyhow, a man proposed to Tiese for the first time in her life that day.
 
-_── Which place in Cathedral did it happen? What kind of words did he chose?_
+_── Which place in Cathedral did it happen? What kind of words did he choose?_
 
 Her imagination immediately wandered in a wrong direction.
 

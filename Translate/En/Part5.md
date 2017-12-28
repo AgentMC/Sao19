@@ -384,6 +384,100 @@ After Ronye replied correctly, Asuna smiled.
 
 "Do not discard your life though. It is the best that you both come home safely, if you see Kirito-kun runs away, please escape as well."
 
+Feeling something like a trembling of emotions in her words, Ronye asked still hesitating to lower his hands.
+
+"......Er, really, does Asuna-sama wish to accompany him herself..?"
+
+"Just a little bit"
+
+It was a jokingly answer, but it was clear that the meaning behind her words was different. However, Vice-Prime Swordsman shook her head a little and said even before Ronye opened her mouth to answer.
+
+"Both me and Kirito-kun cannot leave Centoria at the same time now. There are a lot of decisions we have to take every day, and former senior aristocrats’ dissatisfaction with the Human World Union Council is not going to disappear any time soon..."
+
+"....... I’m sorry, it’s such a shame......."
+
+As she reflexively lowered his head, Asuna blinked her eyes and smile to her.
+
+"There’s nothing to apologize, Ronye-san, what is it?"
+
+"You see... I also came from a noble family and I never had any doubts about the aristocracy system of the Human World until I met Kirito-senpai..."
+
+"But fathers of Ronye-san and Tiese-san were doing important work in the guard and the executive branch for a long time, did they not? It is entirely different from great aristocrats enjoying each day thanks to the forced hard labor of people living in their territory. "
+
+"............"
+
+Ronye remained silent, keeping her head low feeling a great appreciation.
+
+In the former Imperial Palace rising above the hill not far from Central Cathedral, former Imperial administration and Imperial guards were still operating at that time, so her father worked as a guard platoon leader the same way as before the war. But the Konoe Knights order that was previously present on the imperial guard was completely dismantled<sup><a href="#Prim6">6</a></sup>, the functions of guard offices were mostly transferred to the Human World Defense Army led by General Solterina Selrut. In the future, it seemed, all of the four platoons remaining in four empires will be integrated into the Defense Army and the size of military itself will be reduced. It is natural since the Dark World threat has already passed, but should this happen, Ronye was not sure whether her father will remain in his present position.
+
+If he is ordered to rearrange within the platoon or transfer to an administrative office, her father will continue to fulfill his duties properly. _Even if we lose the enormous amount of income from labor of lenders by the Private Estate Liberation Act and he is going to work in the executive branch or the Human World Army, it will still be different from great aristocrats trying not to serve themselves at any cost......_ so Ronye thought.
+
+But even this way her father, and perhaps Ronye herself, will still feel it in their hearts. Perception that they are noblemen and different from general people. As long as that class mindset passed from generation to generation has not disappeared, both Ronye and people of Arabel family would remain essentially the same as the senior nobility.
+
+"Asuna-sama, better to......"
+
+Ronye managed somehow to interrupt words that were almost out of her mouth.
+
+_Not only the noble grades, it would be better to abolish the aristocratic system itself._
+
+She thought so, but it wasn’t a good thing to say while aiming at the Human World highest rank of Integrity Knight herself. And the wish to become a knight can never be thrown away. Being given the glorious knight number, the silver armor, and the dragon, she would continue to serve Kirito for the rest of her life... because that was the only true dream of Ronye.
+
+Asuna tilted the neck encouraging her to continue, and Ronye answered after shaking her head a little.
+
+"No, it’s nothing...... But uh, if possible, could you let Tiese to get the same sword as this one...? Because she also still continues to use the sword of Human World Army...... "
+
+"Yes, I'm going to get permission for Tiese-san as well."
+
+"That’s great, thank you very much."
+
+_If after that Tiese also makes it to the same conclusion......_ thinking this way, Ronye swallowed the words she could not admit herself at all.
+
+***
+
+When two of them came out of the weapon storehouse where the light of luminous elements started to fade already, the 7 PM bell echoed around.
+
+After writing the exit time in the journal, Asuna said that she would go to the general affairs section on the second floor and went down the main stairway. Ronye left alone again looked up at the night sky still shaded light purple through the big window in the front of the armor store and let out a heavy breath.
+
+In the Sword Mastery Academy where she was studying for only half a year, there was a rule that dinner must be finished by 7 PM, and if one was late without a good reason, that day they would be left without dinner. Of course, there was no such rule in Central Cathedral, it was possible to eat hot food at any time until 9 PM while big dining room on the 10th floor is open, and even later snacks are available in the large kitchen next to the dining room.
+
+Today she ran around up and down, so supposedly she should had been hungry because of all those various activities, but somehow, she did not feel like eating that very moment, so Ronye decided to return to her room.
+
+She used to ride an automatic elevator to Cathedral 22nd floor where her room was located, but that day she climbed the main stairs to get used to the weight of the new sword as soon as possible.
+
+Kirito and Yujio, who escaped from the dungeon nearly two years ago, flew this staircase up to the 50th floor fighting Integrity Knights. There were no signs of fierce battle left, except for the feeling of two people being chased at that time, and just like them she moved her legs and eventually arrived to the 22nd floor with a little dyspnea.
+
+A private room on the right side of the corridor a little ahead was still a double room shared with Tiese because of their trainee rank, but here friend was not in the room. She thought that Tiese has probably gone to dinner, and went to her bedroom through a shared living room.
+
+As a coincidence, the living room and two bedrooms structure was exactly the same as the room of the elite swordsman-in-training dormitory where Kirito and Yujio were living, but each room was quite large here. Her room at the parents' house where she spent her childhood until entering the Sword Mastery Academy was about half of these, so Ronye felt too restless because of its size from the very beginning, but in the end, took her time to arrange favorite furniture and restyle it many times, as a result it finally felt comfortable to live.
+
+Looking from the entrance, the wall on the back had a large window facing East Centoria, a bed with linen was on the left and there was a small table on the right. And the wall on the opposite side from the window there was a lighting device like the one in the armor storehouse. She entered the room, removed the sword from the waist and gently placed it by the wall; the black leather sheath fitted well to the interior with many dark brown furniture.
+
+"I’ll think carefully, and will give you a name that suits you."
+
+She whispered to the sword, removed the gray light armor and fixed it quickly on the armor stand on the right side of the sword rest. She would want to throw the body that immediately felt lighter to the bed, but had to endure. In preparation for a long trip from tomorrow, she must pack things well.
+
+From Kirito she learned that the luggage should be one medium-sized bag available to knights, so she had to select things quite carefully. As girl reaching 17 years old that year she would of course like to take as many dresses as possible, but as a guardian of Kirito she knew it was not just a trip, she should give priority to medicines and sacred art media. First of all, she checked the medium at hand and would have to refill missing items with the management department, but before that ──
+
+"............... bath, let’s go..."
+
+Muttering that and having prepared the changing underwear, Ronye left the room.
+
+Bathrooms were located on each floor of a residential area from the 20th to the 30th floor of Cathedral, so both Ronye and Tiese usually bathed there. But occasionally...... especially before leaving Cathedral for long, she would definitely want to go over there.
+
+She walked along the aisle to the elevator area in the northern part of the floor. Aligned the control knob to the mark of 90th floor at the top and pushed the metal button; the aerial element contained in a sealed can at the bottom of the elevator was released as requested, and began to raising Ronye.
+
+After several tens of seconds, the elevator gradually slowed down and eventually locked in, and Ronye opened the metal door.
+
+When she exited there was a short passage divided into the left and right ways ahead. And, before the branch, a pure white cloth hung down from the ceiling with strange text "ゆ"<sup><a href="#Prim7">7</a></sup> written in black with a strange font.
+
+This hanging cloth was attached by the Prime Swordsman Kirito, and it seemed he had written the character himself, but no one knew what it was intended for. They said, Vice-Prime Asuna seemed to be the only one who knew it but remained silent and just laughed with surprised expression.
+
+Tilting her head as she was walking through this passageway, she lifted the cloth with "ゆ" lower half of which was cut into strips, and reached the branch point. More hanging cloths of same design appeared on the left and right.
+
+The blue cloth on the right side had "men" written in white letters. The pink cloth of the left had "women".
+
+The meaning of these signs can be understood with no effort ─ which didn’t help at all with the mystery of “ゆ” ─ so, she went through the cloth with "women". The aisle bent to the right and ended with a little wider room.
+
 ### To be continued...
 
 ## Footnotes:
@@ -392,4 +486,6 @@ After Ronye replied correctly, Asuna smiled.
 2. <a name="Prim2"></a>嬢 means unmarried woman, girl; 嬢ちゃん, respectively, cute little girl, “cutie”.
 3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九", in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
 4. <a name="Prim4"></a>Indian jasmine, _Jasminum sambac_
-5. <a name="Prim5"></a>クロイス, probably a reference to “Legend of Heroes” series
+5. クロイス, probably a reference to “Legend of Heroes” series
+6. <a name="Prim6"></a>here “Konoe Knights” should be treated as “personal Emperor’s guards”; the “Prologue III” from vol.18 contains a spoiler that unveils what will happen in Underworld with this role in the future.
+7. <a name="Prim7"></a>“yu”, or specifically kanji “湯” means hot water or hot springs. Based on the following paragraphs it seems that hot springs are not simulated by Main Visualizer — which I personally find hard to believe given who built it, but OK — so the only “yu” in Underworld should be “弓”, a bow, which is actually pronounced “yumi” but can be shortened to “yu”. You can have a glimpse of the look of cloth [here](https://ojiya-chijimi.jp/archives/31862). It is quite obvious that it serves as a pseudo-door to hot springs/hot tub area.
