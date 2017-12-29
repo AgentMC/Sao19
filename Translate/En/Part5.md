@@ -478,7 +478,148 @@ The blue cloth on the right side had "men" written in white letters. The pink cl
 
 The meaning of these signs can be understood with no effort ─ which didn’t help at all with the mystery of “ゆ” ─ so, she went through the cloth with "women". The aisle bent to the right and ended with a little wider room.
 
-### To be continued...
+The room with a large shelf installed as a partition wall was not empty, three female clerics wearing only thin eastern style kimonos sat on wall chairs wiping wet hair. As they noticed Ronye they hurriedly got up and put hands together.
+
+Women bowed to the level of their waists and greeted her keeping their head down.
+
+"Good evening, knight-sama" "Greetings, knight-sama" "Good evening"
+
+Ronye returned the greeting bowing to the waist as well, and hurried toward the opposite side of the room. When she reached the shade of the shelf, she breathed out. It was not yesterday or the day before yesterday that she was appointed as a knight trainee, but she was still not getting used to such admiring attitude especially from older people of same gender. She couldn’t grasp how to display such a dignified demeanor how knights’ commander Fanatio and even ordered knights do.
+
+Having undressed and put her clothes together with the change she brought into basket inside the shelf, Ronye wrapped white towel around her body and opened the glass door in the back.
+
+White steam immediately started pouting inside so she quickly did a step ahead and closed the door behind her.
+
+The steam dissipated unhiding a scene that she could not stop to adore even though she saw it number of times.
+
+A vast space taking almost half of the 90th floor of the Cathedral. Both the floor and pillars are made of pure white marble, the southern and eastern walls were huge solid pieces of glass, so one could overlook the night view of the central capital Centoria. Even this alone would be a luxury exceeding one of the former Imperial Palace, but the truly amazing thing was the huge amount of hot water filling all the floor surfaces falling down in a staircase pattern.
+
+The length of the elongated hall from north to south was about 40 mel, the width reached 25 mel. The width of the surrounding track was 2 mel, and since the depth from the floor to the bottom of the bath was one mel, simple calculation suggested that total amount of hot water in the bath was equal to 874 cubic mel, and converted to the "lil" which was a unit of the liquid volume, the result would be a huge figure of 874000 lil<sup><a href="#Prim8">8</a></sup>. Moreover, the west side across the marble wall — that is, the one marked with hanging cloth with "men" on it, had completely symmetrical structure, so the total amount of hot water is doubled.
+
+This place was a large public bath that Kirito called "the most luxurious facility in Central Cathedral".
+
+Before the Foreign World War, only thirty Integrity Knights could use it, there was no middle wall, and it seems it was quite often case that only a single person was soaking in this bathtub. However, along with organization restructuring, it was opened to all Cathedral clerics and staff, and at the same time male and female sections were separated.
+
+About twenty people were bathing at that time, but there was no impression that the bathtub wide as a little lake was crowded. Still, she walked to the southeast corner where fewer people were, slowly submerged her toe in transparent water. At first it felt hot, but soon she got used to it, went down the marble staircase and sit on the last step.
+
+Immersing in hot water to the neck brought a feeling of deep relaxation to the core of the head that cannot be enjoyed in a bathtub of common size in the residential area, and she let a breath out.
+
+"Huu............"
+
+"Well, a huge bath is good, is it not?"
+
+"It really is…………"
+
+She nodded, then opened her eyes wide. Someone was sitting on the left completely unnoticed till that moment.
+
+A tear appeared in the steam raising from the hot water, and as soon as that person's face was exposed, Ronye was once again bend backwards, surprised.
+
+Light-brown hair so short that wet ends were sticking to the nape, crisp large light-blue eyes.
+
+The body of one sitting higher than Ronye was a child delicate ─ but behind that appearance suggesting a girl of about ten years old was something by no means as innocent as it looked.
+
+"Good… good evening, Fizel-sama"
+
+The girl flying her fingertips over the water surface reacted the way similar to Ronye herself greeted just now by three clerics in the undressing room.
+
+"There is no need in that “sama”. Ronye is older."
+
+"But...... but Fizel-sama is a numbered knight......."
+
+"Ugh, I feel like I had this dialog for about a hundred times already."
+
+The name of the girl who floated her stretched body on the water surface kicking the water with both feet was Fizel Synthesis Twenty-nine.
+
+During the Foreign World War she had a special titled being "numbered trainee", but after it she soon got publicly promoted and now she was a genuine Integrity Knight. She was given silver armor made according to her physique and a dragon named "Himawari"<sup><a href="#Prim9">9</a></sup> and Recently she was mainly flying around the Human World with intelligence missions.
+
+"Fizel-sama, I haven’t seen you for a while, have you been at a mission again?"
+
+To Ronye's question, Fizel nodded and brought her mouth from under hot water.
+
+"Yeah, the latest movements of the western Emperor’s Konoe Knights’ remnants were somewhat suspicious, so we were sent out explore. Linel is still over there, I have just returned for reporting and picking up some supplies."
+
+"Thank you very much for your hard work...... Ardales Wesdarath V of the Western Empire was the only one of the four emperors we could not find traces of...... Is it related to that?"
+
+"Hmm, the Western Imperial Palace was destroyed and burned out to the ground by Fanatio-onēsama’s memory release technique. I don’t think that the Emperor-ojiichan<sup><a href="#Prim10">10</a></sup> survived that explosion, but there were other people who wanted to save their miserable lives."
+
+It couldn’t be imagined that such words were spoken by a ten-year-old kid blowing bubbles on the water surface, Fizel was certainly not of the age she looked like. Her friend, Integrity Knight Linel Synthesis Twenty-eight, and her were both born within Cathedral, but never received the "Synthesis Ritual"; they said that when the Highest Priest Administrator appointed them as Integrity Knight trainees, for some reason a sacred art had been performed to freeze their life before it had a chance to reach its maximum value. In other words, one couldn’t judge their age from their appearance ─ they simply did not grow any more.
+
+Considering that, even though Ronye for some reason had a wish to tightly hug Fizel & the other one, she would have never done it. Apart from the fact that they were Integrity Knights, to become a numbered trainee they had killed knights who previously took that number; they tried to paralyze Kirito and Yujio with a poisonous sword and take head off their neck; those two got rid of the majority of goblin troops that had invaded the back of the Human World Defense Army at the time of a Foreign World War, — there were a number of horrible rumors. If one speaks directly like this showing not even a glimpse of fear, there is no doubt that she is a kind of person requiring appropriate respect.
+
+"So then, Ronye-chan…"
+
+Unexpectedly her name was called, and Ronye straightened his spine in hot water.
+
+"Ye…yes!"
+
+"I heard that~"
+
+Fizel grinned floating on the water surface.
+
+"…as a companion of Kirito, you go to Obsidia?"
+
+"Err, well, that......."
+
+Kirito and Ronye's route beyond the Dark Territory boundary was supposed to be a secret mission, but she thought it would be useless to try hiding it from a Cathedral's best intelligence agent, so she nodded.
+
+"......Yeah, I do."
+
+"Souvenirs should be a selection of secret elixirs from dark arts masters’ guild~"
+
+"................ I will do my best..."
+
+"Ha-ha, I’m joking, joking."
+
+After displaying an innocent smile suitable for her age, Fizel sitting on the higher step turned her gaze outside the glass window.
+
+![Image](/Translate/Img/p131.jpg)
+
+In the direction Fizel was looking, the light of East Centoria city was blinking like stars in the abyss of dark. Traditionally in East Centoria there were many wooden buildings, so wooden and stone torches were used instead of oil lanterns, which made the city light to gain a kind of soft color.
+
+_Far away beyond that light, "The Great Eastern Gate" rises in over 750 kilolu and the capital of Dark Territory Obsidia is even further, in more than two thousand kilolu. They taught us at the Sword Mastery Academy that its name means "the capital made of obsidian" in ancient sacred words, but the teacher did not seem to know its origin. Will I understand it when see with my own eyes, will I really go to the end in the first place to reach that city, or will it be too late and the overwhelming emotions will capture me same way as ──_
+
+"When you get over there......."
+
+As Fizel muttered closely, Ronye returned her gaze to a young senpai knight.
+
+"Yes……?"
+
+"Hmm... the war is over and I do not care too much, but ..."
+
+There was no person in the vicinity and no one could hear the conversation of two people with the sound of all the hot water flowing down vigorously from gates in the wall, but when Fizel approached Ronye and whispered with a serious face.
+
+"In Obsidia, keep your eyes open, be careful everywhere."
+
+"Ye...yes...."
+
+"Although the "Peace Treaty of the Five Peoples" has been signed, the Dark Territory is still dominated by "Law of the Strongest". The strongest one now is the Dark Territory United Forces commander Isukan, and there’s Scheta as well, so I guess from the surface it looks like they firmly suppress it, but...... Even on this side that is supposed to be bound by many ties of the Taboo Index and Human World Fundamental Law, there are still people who are disinterested in obeying them and find loopholes in the text interpreting it conveniently. So, if it is a Dark Territory that obeys much more ambiguous things than taboo or law, there is no wonder if some bad guys are hiding there."
+
+Realizing the words of Fizel, Ronye was attacked by a feeling of hot water suddenly dropping the temperature. She started to shake a little, but Fizel stretched her right hand and tapped Ronye’s head.
+
+"Sorry, sorry, I did not mean to scare you."
+
+"No, it's okay. I will carve your admonition in my heart."
+
+"Since our duties will be over by the time Ronye-chan comes back, let's invite Tiese-chan and have a party."
+
+"Yes, by all means!"
+
+As Ronye nodded, Fizel smiled and stood up.
+
+"Well, then, I will have to get up early."
+
+Waving with her right hand, the girl knight stepped on a slippery marble and left, so Ronye relaxed again.
+
+Fizel's knight number is 29, thirtieth was the "Knight of the Fragrant Olive" Alice who left for the real world in the end of the Foreign World War, thirty-first was the "Frost Scale Whip" Eldrie who had fallen defending Alice. Since the numbers will continue after these two will be missing, if Ronye and Tiese are appointed as Integrity Knights, one of them will get the number thirty-two and the other one becomes thirty-third.
+
+She certainly couldn’t wait for that day. But at the same time, the feeling of uncertainty was strangling her because she could not decide yet if she’s ready. Ronye at that time had sword skill, sacred art mastery and strength of mind way lower than even those of children Fizel and Linel, not to mention higher ranking knights like Renri.
+
+_Step by step.  
+I’ll move one step at a time. If you continue to train every day and learn seriously, you will definitely be able to reach where you aim._
+
+"............ Ronye Synthesis Thirty-three ............"
+
+She unwillingly muttered such a name and hurriedly looked around. Even though no one seemed to hear, Ronye dived in hot water to hide from embarrassment that was too big and continued to spit out bubbles until the air ended up.
 
 ## Footnotes:
 
@@ -487,5 +628,8 @@ The meaning of these signs can be understood with no effort ─ which didn’t h
 3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九", in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
 4. <a name="Prim4"></a>Indian jasmine, _Jasminum sambac_
 5. クロイス, probably a reference to “Legend of Heroes” series
-6. <a name="Prim6"></a>here “Konoe Knights” should be treated as “personal Emperor’s guards”; the “Prologue III” from vol.18 contains a spoiler that unveils what will happen in Underworld with this role in the future.
-7. <a name="Prim7"></a>“yu”, or specifically kanji “湯” means hot water or hot springs. Based on the following paragraphs it seems that hot springs are not simulated by Main Visualizer — which I personally find hard to believe given who built it, but OK — so the only “yu” in Underworld should be “弓”, a bow, which is actually pronounced “yumi” but can be shortened to “yu”. You can have a glimpse of the look of cloth [here](https://ojiya-chijimi.jp/archives/31862). It is quite obvious that it serves as a pseudo-door to hot springs/hot tub area.
+6. <a name="Prim6"></a>Here “Konoe Knights” should be treated as “personal Emperor’s guards”; the “Prologue III” from vol.18 contains a spoiler that unveils what will happen in Underworld with this role in the future.
+7. <a name="Prim7"></a>“Yu”, or specifically kanji “湯” means hot water or hot springs. Based on the following paragraphs it seems that hot springs are not simulated by Main Visualizer — which I personally find hard to believe given who built it, but OK — so the only “yu” in Underworld should be “弓”, a bow, which is actually pronounced “yumi” but can be shortened to “yu”. You can have a glimpse of the look of cloth [here](https://ojiya-chijimi.jp/archives/31862). It is quite obvious that it serves as a pseudo-door to hot springs/hot tub area.
+8. <a name="Prim8"></a>The quick #KawaharaMath calculation is obviously wrong because it ignores the fact of “floor surfaces falling down in a staircase pattern”. Depending on whether this steps are included in 25m calculation or excluded, and on the form of steps, we get significantly more or less than 874 m<sup>3</sup>, but under no condition exactly that number. Well, at least these numbers suggest the width of Catherdal’s outer wall: ~55m (25+2+wall+2+25).
+9. <a name="Prim9"></a>閑割, something like Leisure Splitter per kanji, however in this case furigana ヒマワリ is also an homonym to ひまわり which means Sunflower.
+10. <a name="Prim10"></a>Fizel calls Fanatio “higher ranked older sister”. Emperor is more complicated. It’s like Fizel calls him her direct beloved grandpa, but in a somewhat official form that would be probably used by someone who is visually older than her. 

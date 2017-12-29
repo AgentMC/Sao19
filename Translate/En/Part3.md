@@ -6,7 +6,7 @@ Neither over a story about the other side of the end wall of the world nor the f
 
 Ronnie also thought that the wealth of the Human World will certainly continue to accumulate dissatisfaction among sub-people. However, actual war – the one that comes as an armed invasion, — to be honest it was hard to believe in this.
 
-As now the "Peace Treaty of the Five Peoples" was concluded with the Dark Territory which should be clearly known to all races. Although it is a primitive law compared to ones of Human World, there was a prohibition of both killing and properly plundering there.
+As now the "Peace Treaty of the Five Peoples"<sup><a href="#Prim1">1</a></sup> was concluded with the Dark Territory which should be clearly known to all races. Although it is a primitive law compared to ones of Human World, there was a prohibition of both killing and properly plundering there.
 
 Of course, for the people of the Dark Territory who for hundreds of years have followed only "the law of the strongest" by which strong people ruled over everyone else, it was impossible to undergo such a major revolution of the scale of heavens and earth exchanging, so as a shock absorber for that period, there was declared a freedom of battle in the range that does not deprive life. However, if it comes to war, there is no way to follow that.
 
@@ -20,7 +20,7 @@ Been nudged several times into right shoulder, Ronye raised a startled face.
 
 it seems, while she was working hard on incarnation training in a corner of the large training ground on the fourth floor of the Cathedral, she had unnoticeably sunk in thoughts.
 
-Today's training was "Tanza<sup><a href="#Prim1">1</a></sup> mind wiping", which was much easier-to-comprehend alternative to "Controlling the created element" and "Standing straight on the top of a pillar".
+Today's training was "Tanza<sup><a href="#Prim2">2</a></sup> mind wiping", which was much easier-to-comprehend alternative to "Controlling the created element" and "Standing straight on the top of a pillar".
 
 But apparently to her friend sitting next to her, the challenge was to have a chat rather than idle thoughts.
 
@@ -238,4 +238,5 @@ She turned over, dropped her head into a pillow, her fighting sleep spirit final
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>端座, a way of sitting originating from well-known seiza, but differing in a strait back, no fixed legs position and generally applied in different cases.
+1. <a name="Prim1"></a>Yes, of 5 peoples, not 6. Humans are humans — from both Human World and Dark Territory so 6 parties signed a "Treaty of the 5 Peoples".
+2. <a name="Prim2"></a>端座, a way of sitting originating from well-known seiza, but differing in a strait back, no fixed legs position and generally applied in different cases.

@@ -16,7 +16,7 @@ The girl’s polished sword skill that will bloom to perfection soon, will proba
 
 Because Underworld finally got complete peace at the end of the 300-year-old dispute.
 
-Six peoples: Human World, Dark Territory, Goblins, Orcs, Ogres and Giants tied permanent peace treaty. The privileges of the four emperors and the aristocracy of the human world who were oppressing the other people were also eliminated. Merchants' wagons go one after another through the collapsed Great Eastern Gate, and you can see visitors from the Dark Territory in the central city of Centoria. Fear and hostility that used to separate two worlds, are melting without a trace like the snow in the sun.
+Six parties: Human World, Dark Territory, Goblins, Orcs, Ogres and Giants tied permanent peace treaty. The privileges of the four emperors and the aristocracy of the human world who were oppressing the other people were also eliminated. Merchants' wagons go one after another through the collapsed Great Eastern Gate, and you can see visitors from the Dark Territory in the central city of Centoria. Fear and hostility that used to separate two worlds, are melting without a trace like the snow in the sun.
 
 The girl with the sword swinging at the waist and the young dragon run in a gentle sunlight creating a diagonal striped pattern shielded by columns.
 
