@@ -60,7 +60,7 @@ Kirito answered in a relaxed tone even though it was a while after the bell had 
 
 "Ye...... Yes!"
 
-_Even at the cost of my life.... _After she began to reply...... she remembered the words between her and Asuna last night. As a result, she got it out of her mouth.
+_Even at the cost of my life...._ After she began to reply...... she remembered the words between her and Asuna last night. As a result, she got it out of her mouth.
 
 "I, I will do my best!"
 
