@@ -640,9 +640,117 @@ Finally, Kirito laughed and started to walk to the east exit of the square; Ronn
 
 ***
 
+The number of ore lanterns increased and the bustle became louder as they got closer to the center of the city.
 
-### To be continued
+However, after listening to the story of a fighter, the colorful lights reflected the modest resistance to the killing ground, and the bustle felt filled with the complaints accumulated by people.
 
+Kirito solved the penniless problem by unexpectedly modest means of getting a knife in his pocket to be bought by a roadside street vendor; from the shopkeeper he learnt a location of a cheap inn and began to walk again. Ronye talked in a bright voice to a Prime Swordsman who was somewhat less talkative than usual.
+
+"This currency, "beck"<sup><a href="#Prim8">8</a></sup>. Is the value of one beck the same as one shear in Human World?"
+
+"Ehm...? Oh, yes, I have such a feeling. The thing is that the cup of Obsidia boil is still quite cheap though... "
+
+"Well, I guess you would want to eat it again, senpai?"
+
+"As expected, a swordsman-dono cannot hide any secret from his former valet."
+
+After putting a hand on the Ronye’s head with a glad face, Kirito pointed to the building on the right front side with that same hand.
+
+"Apparently this is an inn recommended by that old weapons vendor."
+
+It looked like the Human World inns, except from the dark stone walls, with a signboard of cast iron symbolizing sacred letters I, N, N protruding. When Ronye saw it, a strange doubtful feeling appeared in her heart, but it was swayed away like a ripple before she chose words to express it.
+
+"...? ....What happened, Ronye?"
+
+She shook her head quickly towards Kirito who tilts his head.
+
+"No, it’s nothing."
+
+"OK.... It was a hard day, let's get down early."
+
+That said, Kirito grasped two large and one small pieces of luggage and walked over to the door under the sign.
+
+Fortunately, despite the near midnight time, the inn was still open. The innkeeper was a woman of about forty years old who looked at Kirito and Ronye for a few seconds with a suspicious face, but did not seem to doubt the story of brother and sister who came to find a job from Faldera.
+
+But it seems that Kirito could not anticipate that the fictional story would create new problems. After saying “One room is good if you are brother and sister!”, the woman did not want to listen anything more and guided, or rather pushed two people ─ moreover, requiring to pay double of 100-beck one-night accommodation price upon checkout ─ to a room on the second floor.
+
+"Be sure to leave by the ten bells in the morning! The bath has already dropped the heat, so if you want to wash, you go to a bathhouse next to it. They will give a discount you if you say you’re a customer of my place!"
+
+And, mumbling over words, which were unlikely kind or cheerful, hostess disappeared downstairs.
+
+Ronye was stunned for a moment, and Kirito said in a somewhat awkward voice.
+
+"Err.... I'm sorry, Ronye. Because I was particular about the cheap hotel, it's like this..."
+
+"No, thanks to senpai..."
+
+"I can sleep properly outside, so Ronye can use this room."
+
+"Well, properly probably..."
+
+"Either somewhere on the eaves or in the park, nothing will happen to me. Please take a good rest today. I will come back tomorrow morning."
+
+Ronye hurriedly pulled the cloak of Kirito going out through the window.
+
+"It’s, it's useless, senpai! It is so cold out there, you will catch a cold if you imitate fist fighters!"
+
+She looked around the room. _In addition to a simple bed, one sofa for two people is placed. It seems that it may be a bit too short for legs, but can’t say I won’t be able to sleep_, thought Ronye.
+
+"I will go to sleep at the sofa there, senpai please use bed."
+
+"Well, no, but... Isn’t there anything in Taboo Index of Imperial Fundamental Law? Isn’t there a ban on unmarried men and women sleeping in the same room?
+
+"There is no such thing. What is prohibited is kiss… kissing in the lips and also... as well as............"
+
+"Well, what is it?"
+
+Ronye firmly grasped shoulders of Kirito who moved his ear closer with a puzzled face, and pushed him with all her force in the direction of the bed.
+
+"Whatever it may be, senpai is Human World Prime Swordsman, and I am Integrity Knight trainee, so it does not matter!"
+
+"Wow~!"
+
+Kirito’s legs slipped on the floor, he crumbled backside and set on the bed. Without even a shortest delay she untied strings of his cloak and pulled it away, removed boots from both feet, and pushed him down into a laid position allowing no further questions.
+
+She then pulled up the cotton-top cover up to his neck, and when thumping in her chest started to cease, the Prime Swordsman said to her through wry smile and laughter.
+
+"... Ronye, you are like my mother, in a way."
+
+"Ah... I'm sorry, my mother always did this when I was a child."
+
+"I see...... Would be great to see Ronnie's parents, someday..."
+
+As Kirito said such words looking up at the ceiling, Ronnie remembered her last month homecoming. It obviously revived the memories of a number of proposals from her relatives, but somehow, she pushed them back.
+
+".......Yes, I'm sure my parents will be happy."
+
+_It would be my youngest brother that would be pleased the most_, but when she decided to voice this thought, Kirito lightly smiled and closed the eyelids. In just a few seconds, gentle snuffle could be heard. _He had much more calm face all the time, but I think that the tiredness from flying 3000 kilolu from Human World with a machine dragon still remained._
+
+Relieved that Kirito quietly slept in the bed, Ronye took off her cloak and after a bit of struggle with an ore lantern ─ turned out she had to pour water into it ─ turned it off.
+
+Sitting on the sofa that was standing by the wall, she carefully removed her shoes and put them on the floor, and lied down. Although her toes protruded as expected, she didn’t mind the cold covering with a coat made of a cotton cloth and a good western region wool instead of a blanket.
+
+![Image](/Translate/Img/p175.jpg)
+
+Ronye immediately felt drowsy, but against it she stared at the profile of Kirito lit by city light coming through the window.
+
+_What really happens if my senpai really comes to my house......_ she though and let her imagination to play for a while.
+
+_It would not be that Kirito's family is only his sister known as "green swordsman Leafa". In the real world she returned to, there should be parents, possibly other brothers and sisters, and friends. But until now, Kirito never spoke of his family.  
+Does he want to go home…… I wonder is he thinks of this._
+
+There was no reason not to. Even Ronye, who had a family house in the same city of Centoria, sometimes wanted to see her parents and brother.
+
+But Ronye could not have the courage to ask Kirito about it. _If I wait for too long and say that...... do you want to go back home someday? — I do not know whether what the answer would be any good. Initially, I do not even know whether there is a way to return to the real world.  
+I wonder what kind of place it is._
+
+The Underworld people who fought in the Foreign World War almost without exceptions felt fear and disgust rather than familiarity to the real world which is only known by name. Ronye was no exception. Just thinking that horrible red knights that caused many lives to be lost to both the Human World Defense Army and the Dark Territory Army made her feel terrible and limbs became cold.
+
+_On the other hand, real world is home to Kirito, Asuna, and swordsmen who came to the rescue to the Human World Army during the Foreign World War.  
+Even in Underworld there are good people and bad people. The real world may be the same. However, I do not think I want the way in to open again.  
+Integrity Knight Alice traveled to the other world, what did she saw there, I wonder? Could it be that the day will come when I can meet her again and hear her story.......?_
+
+When she thought that far, the same strange feeling as when she saw the sign of the inn once again shook her heart, but finally she could not bear the weight of the eyelids, so Ronye went down to sleep in the foreign land far away.
 
 ## Footnotes:
 
@@ -653,6 +761,6 @@ Finally, Kirito laughed and started to walk to the east exit of the square; Ronn
 5. <a name="Prim5"></a>Kirito here falls back to Sacred Language (“sharing” and “storage”), probably referring to the Obsidia treasury.
 6. <a name="Prim6"></a>No it’s not a translator’s exaggeration, this person is literally presented as 巨漢 — a giant.
 7. <a name="Prim7"></a>Originally “onii-chan” but I don’t feel natural leaving an equivalent of “my dear big brother” coming from the “giant” fist fighter. His following phrases, along with Kirito’s ones when he tries to adjust to his talk, are adapted respectfully.
-<!--8. <a name="Prim8"></a>.-->
+8. <a name="Prim8"></a>ベック.
 <!--9. <a name="Prim9"></a>.-->
-<!--10. <a name="Prim10"></a>.  -->
+<!--10. <a name="Prim10"></a>.-->
