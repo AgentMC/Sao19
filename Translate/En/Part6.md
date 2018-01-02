@@ -390,7 +390,259 @@ With a happy smile, Kirito took Ronye's bag in his right hand, hung his leather 
 
 ***
 
+After they had walked for a while in the late-night road, the surroundings gradually became bright, and at the same time the number of people and the sub-people passing by increased, so Ronye felt relief and tension at the same time.
+
+The Obsidia Castle Town which she saw for the first time, had most buildings made of dark stone, there were fewer trees and waterside, and it generally had a crowded feeling compared to Centoria. However, lanterns attached to the walls of the houses and pillars along the road had red, yellow and purple lights in spite of late night, so there was something like a festival atmosphere.
+
+"What is burning in those lanterns?"
+
+Kirito immediately answered Ronye's question.
+
+"It's an ore that can be found in nearby mountains, it seems that a piece of a fist size will keep burning for ten days."
+
+"Well, that's useful, is not it?"
+
+"You would think that it could be sold at a high price if anyone brings it to Human World, but handling it is troublesome because it starts to burn naturally unless it is submerged in water, so it is quite difficult to transport long distances..."
+
+They walked ahead having such a conversation and eventually a place of a lively atmosphere appeared in the front. There was a small square, with numerous tents around, and many people were drinking having surrounded tables lined in the center.
+
+About half of them were humans with the dark skin, and there were not a few orks and goblins, but they occupied another table. _Even after the "Peace Treaty of the Five Peoples" was supposed to have been concluded in Dark Territory, the confrontation between tribes has not yet disappeared..._, thought Ronye peeking from behind of Kirito’s head, but he told her.
+
+"Hey, just being drinking in the same place is a big change already. Look, that fist-fighter and a group of orks are talking to each other at neighboring tables, aren’t they?"
+
+"Oh, that’s true, it seems they are toasting......."
+
+When a fist fighter who barely covered his sturdy upper body, even though it was February, protruded a wooden jug screaming something, an ork sitting next to him vigorously hit his mug. Watching this situation from the square entrance, Ronye muttered as if continue her monologue of thoughts.
+
+"During the Foreign World War, the orc forces came to rescue an almost wiped out fist fighter group....... The "green swordsman" who led it, orcs are exalting her like a goddess."
+
+Ronye never met her, but she knew that the "green swordsman Leafa" who disappeared with the finish of the war was Kirito's sister from real world. Kirito’s painted dark face distorted as if he considered to cut it off for a moment but soon he returned to his usual expression and nodded.
+
+"Yes...... It was the reason why we were able to get that treaty with Dark Territory so quickly, all thanks to Leafa without any exaggeration. That's why, we must protect this peace at all costs."
+
+"……Yes"
+
+Ronnie answered realizing that each time he tried to forget, that fundamental anxiety was waking him up like everlasting waves.
+
+It didn’t take long though before Kirito continued in a normal way.
+
+"Well, it's a bit late but let us have some too. I’m never tired of street food."
+
+"Oh... are we going to eat here?"
+
+"Look, it is such a delicious smell from all the tents...... Enduring it would be as hard as an everyday anger of both Fanatio-san and Dusolbert-san."
+
+Kirito grabbed the bag and stepped in to the square after saying something that did feel like a theory.
+
+Unavoidably she followed him, and the fragrant smell immediately tickled her nose reminding her of hunger. There were six tents over the outer row, but from the first glance it wasn’t clear which one is selling what.
+
+At times like this one, when Ronye was hard to make a choice, she relied on Tiese who quickly decided...... normally, but there was no her redhead friend next to her. Neither could she trust the taste of Prime Swordsman who was muttering "That’s skewer grill, it's tasty......but it's such a time already, maybe to take that noodle soup they prepare over there......no, no, the buns on the other side are quite..." going from one tent to another.
+
+_By the way, it was Yujio-senpai who usually decided for Kirito-senpai so no surprise he got lost......_ After she noticed that and smiled a little, Ronye pulled the cloak of Kirito.
+
+"Oh, senpai... Before we eat, do you have local money in the first place?"
+
+"............"
+
+The face of Kirito looking at Ronye was gradually changing from startle to despair.
+
+There were four kinds of money circulating in Human World: thousand shear golden coins, hundred shear silver coins, ten shear copper coins and one shear iron coins. Strictly speaking there were also ten thousand shear white gold coins, but they were not spread among general people and lower aristocrats because they were only used for transactions between the government and biggest merchants.
+
+For Ronye, it had always been shear coins all the time she could remember, but since it bore the profile of goddess Stacia and an emblem of Axiom Church, it could not be used in Dark Territory. Of course, separate money should exist here.
+
+Kirito seemed to have finally realized the situation because he dropped his shoulders and said.
+
+"......You know, in the Cathedral we don’t use money, so I completely forgot......."
+
+"Are...... are you saying that you have not brought a single shear with you... or ...?"
+
+Looking like a child scolded by a teacher, Kirito nodded.
+
+Ronye had no idea what to say, and she could only look at the face of Prime Swordsman for several moments.
+
+In the back of the sword belt that Ronye always wore, there was a thousand shear golden coin sewn for a case of a need but there was no use to it in this town anyway. She realized there was a further problem and asked Kirito again.
+
+"Well, does it mean we cannot stay in the inn...?"
+
+"Umm, well, looks like that."
+
+Ronye deeply sighed closely to being for unknown reason gravely positive Prime Swordsman.
+
+"And if we have got stayed penniless, how were we going to pay exactly?"
+
+"Well, you know, sharing automatically from the storage......."<sup><a href="#Prim5">5</a></sup>
+
+Kirito stared at tents with a such face as if he had not given up even in these circumstances, and finally looked up at the gigantic castle piercing through the night sky.
+
+"It cannot be helped, let’s pray that Isukan is still awake and sneak into Obsidia castle......"
+
+── said her senpai who mentioned a moment earlier that it would be tough if they got treated as assassins!
+
+Ronye breathed in heavily to express in words all she was thinking about this idea, and that time.
+
+Above two whispering heads in the corner of the square that came so close that almost touched each other, a big human figure emerged.
+
+"...... !?"
+
+Ronye raised her face, restraining her hands from stretching to the sword on the left hip. It was a giant standing in front of them, as tall as one mel and ninety cen<sup><a href="#Prim6">6</a></sup>.
+
+Rugged muscles covered the naked upper body crossed with leather bands and countless old wounds running across red copper skin proved him being a fist fighter. The pale light of a lantern was not enough to understand whether he is drunk that much, or is it his face beneath stiff hair simply naturally red enough.
+
+"Hey bro<sup><a href="#Prim7">7</a></sup>, got no money to eat?"
+
+At least hostility was not felt in his voice, so Ronye ceased the alertness a little. On the other hand, Kirito nodding with a miserable look, with a voice that seemed to be very hungry ─ he might not be acting but behaving as he was though ─ answered.
+
+"Well...... Yes, that's right. I came to find a job with my sister from Faldera, but ran out of it on the way."
+
+"Huh, Faldera is big, my old man is still over there."
+
+Listening to the word of the giant, Ronye chilled to the liver as it would be quite hard to start talking about memories of the city only known by name, but fortunately it did not develop that way. Fist fighter slammed Kirito's shoulder with a thick and heavy right hand as if fitted with leather gloves, and said generous thing.
+
+"Yeah, lemme give a treat to fellow countryman."
+
+"I, no, ...I'm kind of going…"
+
+Already regretting his acting, Kirito tried to refuse, but fist fighter pushed his back to the corner of the square. Kirito moved his legs reluctantly, and Ronye followed.
+
+It was the smallest and the most dimly-lit place among the six houses that the fist fighter led them to. The only thing that can be said for sure about the shopkeeper stirring a large pan of seasoning with a long ladle, with the majority of his face hidden with growing forelock, was that he is a human. The faded cloth hanging from the counter’s eaves’ corner bore the writing "Obsidia boil" with wry small letters, apparently it was the name of a dish.
+
+"This place is the best in this square. Well, even though nobody of my friends agree!"
+
+The drunk fist fighter laughed “**ga-ha-ha**”, and Kirito attempted to retract with a face full of horror.
+
+"Ah, that, uncle, I have a kinda bad feeling......."
+
+"All of them said so at first. Well, I dare you to try and don’t think you have been fooled. Hey, father, gimme three cups."
+
+He picked out three coppers from the pouch hung by the fist fighter’s belt and dropped them with a “**cha~linn**” sound a on dark long board. If the value of the coin is the same as that in Human World, the mysterious “Obsidia boil” will be worth of ten shears, which was way too cheap as for a light street food.
+
+The shopkeeper without any reply arranged three wooden bowls on the long board, poured with the sound of “**dobobo**” the contents of the pan with a long ladle, and accompanied the spoon of the same wood. Again, without saying a word, he collected coins and returning to his stirring work.
+
+Whether was accustomed to that or simply being drunk, but fist fighter took bowls one by one in both hands without any concern of the shop owner's correspondence which was extremely frustrating, and presented them to Kirito and Ronye. There was no option to refuse left any more once this is done, so they accepted it saying "Thank you very much" at the same time.
+
+There was something inside the bowl that could only be described as a thick brown soup. It seemed that various items were contained in it, but since the liquid was almost opaque, what was being boiled could not be determined by looking down.
+
+Ronnie sat down with Kirito at a vacant table, urged by a fist fighter with his bowl, and prepared her spirits.
+
+She scooped up some liquid concentrated like stew cooked for three consecutive days, blew it and put in the mouth. _Spicy!_ she thought at first, but at once felt sourness, and after that the taste brought complicated richness with a shade of bitterness, and ended with a faint sweet aftertaste.
+
+"............ Kirito-senpai, what a strange taste is this.......?"
+
+When Ronye asked with a loud voice, Kirito who ate a bite as well, was muttering staring at the wooden spoon with a complex expression.
+
+"There is no doubt ...... It is the taste of "boil", both marvelous and disgusting, or rather it seems like a horribly subtle......."
+
+"Oh...... Had senpai eaten this before, then?"
+
+Finally noticing that Ronye turned to him, Kirito shook his head.
+
+"Oh no, not quite....... There is a shop that serves similar dishes in the city I used to live. The shop owner resembles him either, but still it is...... The "boil" I know is something I was hardly able to eat because one had to fight though it’s spicy and sour and bitter and sweet tastes. But this Obsidia boil is orders or rather wraps tastes, making it indescribably mellow and......"
+
+"Oh, so I see you tasted it, bro!"
+
+A fighter who reduced the contents of the bowl to as much as 30% already he hit the Kirito’s back vigorously. 
+
+"They say, from since the Imperial City of Obsidia was built, this Koitsu guy continues to add ingredients and simmer the soup for more than two hundred years every day. I guess this is not a Human World cuisine, **ga-ha-ha**!"
+
+"Tha… that's right......."
+
+Next to Kirito nodding with delicate face, Ronye unexpectedly shouted in surprise.
+
+"Two… two hundred years......!? How, how does cooking's life last for so long? Soup and stew will be damaged usually after 5 days even in the midwinter..."
+
+"That is where that fella’s spiffy."
+
+And as if he was some kind of relative of the shopkeeper, the fist fighter proudly hit his thick chest.
+
+"This fella is not going a step away from the counter every day, he keeps on adjusting the fire so the pot does not become empty or burnt. If you do keep doing it constantly, it seems that the content of the pot will not lose life. Naturally I eat here three meals a day......I am thinking that this is only this fella not only in Dark Territory, but in entire Underworld, that can cook such a thing. "
+
+"Well, every day, that is......."
+
+She stared on the counter in question. An unfriendly shopkeeper kept stirring the pot with his face down, and his face could not be seen again.
+
+"....... So, has his life been frozen if he is alive for more than two hundred years...? "
+
+To Ronye's question, the fist fighter, who apparently came up with such a possibility for the first time, looked at the bowl and counter a number of times with a serious look and then shook his head from side to side.
+
+"No way, I heard rumors that it is the highest priest of Human World only who can do it. I guess here it has surely been generation to generation inherited."
+
+"Well, that's probably right."
+
+Ronye nodded and scooped up some larger lump settled in the middle of the bowl and fearfully put it in her mouth. _It is probably a meat of a bird that gives this extremely light crunchy feeling when it collapses with every bite overflowing with rich flavor. Also, complicated strange flavor, if you get used to it — there is nothing you’ll like more._
+
+Kirito who emptied the bowl with considerable momentum probably got used to it faster than Ronye, exhaled contentedly.
+
+"Haha, it was horrible...... it may not be an overstatement......."
+
+He stretched his spine and lowered his head deeply to a fist fighter sitting opposite.
+
+"Thank you for the meal, a kind man. I will never forget this kindness."
+
+"Nothing, that’s for good."
+
+The fist fighter who had finished eating a long ago nodded with his smiling face.
+
+"When you find a nice job here and a day comes when you can eat Obsidia boil as much as you want, please give one to me... as they say..."
+
+Rubbing the face gently with a thick palm, he kept on smiling.
+
+"...... It might be a bit difficult for you to find work for both brother and sister in Obsidia now, bro."
+
+"Oh ... is that so? It is lively in the streets even at such time and it seems to be nice... "
+
+"It looks like it looks, but that's because the number of residents is increasing ... and I do not think it will last for long..."
+
+The fighter who told them so with a sigh bought a dubious vial from the goblin that passed nearby. He squeezed it and gulped, then held it out, frowning.
+
+Although Kirito seemed to be dealing fine with it for a moment, he immediately coughed violently as soon as exhaled. The fist fighter to whom the bottle has been returned, smiled and continued the explanation.
+
+"This hooch is made by the flat goblin tribe that settled near the city recently. It is tasty, and because it is cheap like nothing at all, it sells great. The town liquor store is shabby and sales are falling, and the commercial guilds seem to be crisp. If it is before the war, the guard soldiers would attack the goblin village and kill them all, but now there is a Peace Treaty of the Five Peoples......."
+
+"...... That is, as long as sub-humans move to Obsidia, humans will be robbed of work...?"
+
+"It's not just fault of sub-humans, the number of people is increasing considerably......That's what bro should see."
+
+In response to Kirito's question, the fighter shrugged his shoulders and answered, looking up at the dark sky.
+
+"If you came from Faldera I don’t need to tell you...... the land is just killing everything in this dark world. Humans and subhumans have always been suffering from hunger and thirst. Even the big war that ended the "era of iron and blood" began with a fight for a lake of some tribe’s origin..."
+
+Ronnie and Kirito, who were not familiar with the history of the Dark Territory, must only silently nod. Fist fighter drank another gulp and kept on talking diligently.
+
+"......Our ancestors managed to survive in this Dark Territory because there was a legend we believed. Someday the Human World gate will open and we will move to a promised rich land."
+
+As soon as she heard the words, Ronye unintentionally strengthened her body, but the fist fighter did not seem to notice.
+
+"...Neither my small brother nor sister would not have survived till that age, but as Emperor Vector recovered a little over than a year ago, it was awesome excitement when I was attacking the Human world. Finally, the time of legend came, we thought... ── But, Human World Integrity Knights, rumors say, were worse than any monster...... Besides, then suddenly an army of a different world emerged. I did not understand anything, but the emperor was kidnapped by some swordsman of the Human World, and the war was over......"
+
+Ronye looked at "some swordsman" next to her who had already cold sweat spreading over his forehead with a face more delicate than when he tasted Obsidia boil. A fist fighter who hopefully had no way of knowing the true identity of the young man sitting in front of him opened his mouth again slamming a spoon on the table.
+
+"...If the war continued as rumors say, this time the God of the Dark Territory may have perished for good. So, there are no complaints about peace with Human World, but it is also true that there is no hope of getting rich land someday left.... That is why goblins, orks and human youth are flowing into Obsidia...... They think here is fine, they say, they will be able to find a better life. However, no matter how much those hunkys are impatient, there is no infinite work appearing. Perhaps if you are a human being, you might be hired by a knights’ order.... but both bro and sis are a bit too weak, so ..."
+
+Looking at the fist fighter sleepy winking drunken eyes directed towards two people, Kirito who seemed to be thinking once again, dropped his head down.
+
+"Thank you for everything, uncle. Obsidia boil, it was delicious ...... Someday, we’ll treat you."
+
+"Oh...... Good luck, both of you……"
+
+Finally, they got up carefully as not to wake up a fist fighter who had fallen asleep earnestly.
+
+Overlooking the plaza, it seemed a group of goblins and orks had left unnoticed, and only a few drunk groups of fist fighters remained. Most of the counters are also starting to close, and only the shopkeeper who cooked Obsidia boil kept stirring the pot. It seemed like their chat of staying over there was becoming reality.
+
+"... Well, aren’t we supposed to be looking for an inn?"
+
+Kirito, who made a big yawn, murmured such a thing in a confused tone.
+
+"But what do you do for paying rent? Indeed, I think those who will pay will not appear."
+
+"Well, I’ll manage somehow."
+
+Finally, Kirito laughed and started to walk to the east exit of the square; Ronnie inevitably chased him.
+
+***
+
+
 ### To be continued
+
 
 ## Footnotes:
 
@@ -398,9 +650,9 @@ With a happy smile, Kirito took Ronye's bag in his right hand, hung his leather 
 2. <a name="Prim2"></a>鄙消, “Rural Neutralizer” per kanji, but just like in case of Himawari (“Sunflower”) here it is probably meant to be a homonym to ひなげし which means “Poppy”.
 3. <a name="Prim3"></a>…which we also know as “overray”. However, here the Underworld term is used. 
 4. <a name="Prim4"></a>Kirito’s favorite Underworld flavor of tea. Comes from Southacroith. Pitch-black quite bitter liquid, normally other people add milk there. Reference from vol.11, ch.2.
-<!--5. <a name="Prim5"></a> -->
-<!--6. <a name="Prim6"></a>.-->
-<!--7. <a name="Prim7"></a>.-->
+5. <a name="Prim5"></a>Kirito here falls back to Sacred Language (“sharing” and “storage”), probably referring to the Obsidia treasury.
+6. <a name="Prim6"></a>No it’s not a translator’s exaggeration, this person is literally presented as 巨漢 — a giant.
+7. <a name="Prim7"></a>Originally “onii-chan” but I don’t feel natural leaving an equivalent of “my dear big brother” coming from the “giant” fist fighter. His following phrases, along with Kirito’s ones when he tries to adjust to his talk, are adapted respectfully.
 <!--8. <a name="Prim8"></a>.-->
 <!--9. <a name="Prim9"></a>.-->
 <!--10. <a name="Prim10"></a>.  -->
