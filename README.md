@@ -4,7 +4,7 @@
 
 Warning: I almost don't know Japanese (only Chinese a little), so translation is done through Google Translate. Unlike for Volume 18 (translation of which involved OCR), I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
-Overall progress: `##################################>---------------- 68.38%`  
+Overall progress: `##################################>--------------- 68.38%`  
 ETA: 13 Jan 2018
 
 - [Initial illustrations](Translate/En/Ills_start.md)
