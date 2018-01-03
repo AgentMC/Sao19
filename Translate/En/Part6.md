@@ -672,7 +672,7 @@ That said, Kirito grasped two large and one small pieces of luggage and walked o
 
 Fortunately, despite the near midnight time, the inn was still open. The innkeeper was a woman of about forty years old who looked at Kirito and Ronye for a few seconds with a suspicious face, but did not seem to doubt the story of brother and sister who came to find a job from Faldera.
 
-But it seems that Kirito could not anticipate that the fictional story would create new problems. After saying “One room is good if you are brother and sister!”, the woman did not want to listen anything more and guided, or rather pushed two people ─ moreover, requiring to pay double of 100-beck one-night accommodation price upon checkout ─ to a room on the second floor.
+But it seems that Kirito could not anticipate that the fictional story would create new problems. After saying “One room is good if you are brother and sister!”, the woman did not want to listen anything more and guided, or rather pushed two people ─ moreover, requiring to pay double of 100-beck one-night accommodation price upon leaving the inn ─ to a room on the second floor.
 
 "Be sure to leave by the ten bells in the morning! The bath has already dropped the heat, so if you want to wash, you go to a bathhouse next to it. They will give a discount you if you say you’re a customer of my place!"
 
