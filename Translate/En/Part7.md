@@ -72,13 +72,192 @@ Kirito began collecting his luggage when he replied to Ronye's point with a misc
 
 ***
 
+After painting the faces with brown ointment again and paying the rent the left, and morning sun dyed red greeted them with a light similar to that of ore lanterns.
+
+There was a distance of more than 5 kilometers from the inn to Obsidia castle, they walked enjoying the scenery of a foreign country feeling great impatience.
+
+As they got closer to the castle the road became wider and the buildings on both sides also became fine. However, the number of passers-by decreased rapidly, in particular the sub-humans are completely absent.
+
+Eventually, a river rich in water, black as everything else in this dark world, and a fine stone bridge appeared. After it, there was a big gate, and the way ran gradually uphill, to a sharp obsidian mountain ─ to the imperial castle of Obsidia.
+
+Ronye asked Kirito who stopped at the beginning of the bridge.
+
+"...... So, senpai, have you come up with an idea on how to enter the castle?"
+
+Then Prime Swordsman tilted his painted dark head lightly.
+
+"Hmmm...... Even if we pretend to be Dark Territory dwellers, that alone will not open the way into the castle... or if we fly to the top of the castle, it seems, guards will find us..."
+
+"In other words, you have no idea ...."
+
+Kirito rushed to deny Ronye's words.
+
+"No, no. I still have a last resort! "
+
+Shouting so, he pulled Ronye's hand, and they went along the left bank of the river. _As the bridge that leads directly to the castle keeps getting away more and more, he surely wants to swim across this river which seems to be not easy at all, climb up the hill full of rocks and intrude into the castle._
+
+Kirito stopped at a place where the river got a little wider, put two bags on the ground and looked up again at Obsidia castle.
+
+Obsidian-black rocky mountain looked like a tower rather than a mountain because its base was about 300 mel in diameter, while its height was more than three times that. Most of the side facing the town was presented as a castle, with magnificent columns and large windows glittering in the morning sun, but the back side was almost a rocky mountain, only a large terrace was hanging high above which was probably the dragon departure ground.
+
+Unexpectedly Kirito lifted his right hand and drew it straight towards the top of the castle. Moved five stretched fingers as if looking for something small.
+
+"That, senpai...... what on earth...?"
+
+A feeling of disturbing little by little came up, and Ronye said so. However, Kirito did not answer, after continuing to hold his right hand for about five seconds, he nodded as if he suddenly got something.
+
+He aligned the fingers of the right hand as if his hand was holding a sword. Held it up, stretched the left leg and lowered his waist.
+
+Ronye opened her eyes wide watching as in his right hand appeared something like a sword, wrapped in weak white light and emitting a faint vibration sound.
+
+_Kirito did not cast any sacred art. So, this is a secret mystery of Integrity Knights who directly interact with "the matter of the world", a technique of incarnation. But, usually invisible, it shines with light and emits sound, how much will is concentrated here?_
+
+"**............~~Fu**!!"
+
+With a short shout, Kirito swept his right hand with tremendous momentum.
+
+A white light flickered as if it was one of knight Renri's “Twin Edged Wings” and instantly flew a distance of over 1 kilometer, hitting the handrail of a small terrace near the top of Obsidia castle. Ronye's trained eyes clearly recognized that a small obsidian fragment spilled from the handrail struck by the blade.
+
+"What a......., se-se-se-se-se-senpai, what are you doing?! You scratched the castle!"
+
+Although being astonished and surprised to a great extent by the blade of incarnation, she pulled a black cloak a bit more turning to Kirito who straightened body and answered with his usual relaxed tone.
+
+"Don’t worry of that damage, it will disappear if they smear a piece of a charcoal with glue and stick there…I think. Now, look there."
+
+As Kirito lifted his right hand again, she looked up to where he pointed. Then, she saw a small figure emerging from the terrace struck by Kirito's "blade of mind". As expected the distance was too far to see the face, but a slender body belonged to a human. Noticing the scratch of the handrail, the person looked below bending the upper body over the terrace’s border.
+
+Even though it was more than one kilometer away, there is no place to hide in the open riverside where Kirito and Ronye were standing. The shadow of the terrace kept her eyes on the two of them... and that moment.
+
+The figure suddenly put a right hand to its mouth.
+
+Ronye noticed that a gray dragon appeared on a large landing block protruding from the back of the castle, spread its wings and took off.
+
+The dragon flew around the side of the castle and stopped near the mentioned terrace. A shadow quickly jumped on its back and pointed straight to the riverside where Ronye was standing.
+
+"…ba-ba-ba-ba-bad, senpai! They have found us already!"
+
+"That was fast, as expected."
+
+"You can’t say such things carelessly! We have to get away quick......!"
+
+But Kirito pulled Ronye’s cloak, and stood in front of her. As he did this, the dragon suddenly descended next to two people.
+
+_If that is the case, I have to fulfill the role of escort!_ And Ronye grasped the handle of the long sword just granted, but three seconds later...
+
+A swooping down gray dragon beat wings violently and suddenly braked, and the rider flew from the back like a hurricane. The vision of the slender figure landing on a stony riverbank making no sound at all was quite spectacular. Like Ronye, the person wore a cloak with hood so the face could not be seen.
+
+It seemed that the sword was not pulled out, but it should be a senior dark knight in order to be able to control the dragon. Standing in front of Kirito, Ronye felt the tension ready to pull out her sword as soon as the opponent’s sword appears.
+
+── However.
+
+A little later than a rider, a gray dragon landed with a big earthy sound, it stretched the long neck, first smelled Ronye, then Kirito. Afterwards..., with the sound of “**furururu**” it rubbed the side of a horned stout against Kirito’s head.
+
+"Er…………?"
+
+Ronye looked at the impossible scene. _The dragons of the Dark Territory are also very proud, like Human World dragons, I heard that they are from a related genus. It is impossible that it treats a first-time seen human like this..._ At that time, on the body of the dragon covered in gray scales, she noticed countless spear marks are left.
+
+"Ah ... may… maybe......."
+
+Faster than Ronye put the words together, Kirito spoke himself rubbing under the chin of the dragon with both hands.
+
+"There, there, long time no see, Yoiyobi<sup><a href="#Prim1">1</a></sup>. Were you doing well?"
+
+Ronye could not forget this name. It is the name of a legendary dragon who fought hard without rest against a red knights’ army during the Foreign World War. It was not a dark knight in front of her, but a Human World Integrity Knight. The rider, also known as a legendary "silent" knight ──
+
+"...... perhaps, is this… Scheta-sama?"
+
+When terrified Ronye asked this question turning her gaze to the rider’s hood, the rider answered removing it with both hands.
+
+"Kirito...... Ronye. What are you doing in such a place?"
+
+***
+
+Scheta Synthesis Twelve.
+
+Among current integrity knights, she was a senior knight following Fanatio and Dusolbert in the hierarchy, and her sword power was so strong that rumors lined her up with the former headmaster Bercouli Synthesis One.
+
+They said there is nothing that cannot be cut by her sacred treasure "Black Lily Sword" given by the Highest Priest, and in a Foreign World War, first she countered the main force of fist fighters, and then bravely<sup><a href="#Prim2">2</a></sup> fought a fierce battle against the large army of red knights.
+
+However, by the end of the battle, she left Central Cathedral and stayed at Obsidia castle as a full authority representative for the Human World Union Council.
+
+In other words, she was the best person for Kirito and Ronnie to contact first — but, the question, how did Kirito bring her here, remained unanswered. Kirito swung the blade of mind against the castle, and Scheta was the single person who noticed it and flew to them — it seems to be only a result of a lucky coincidence that this haphazard strategy happened to be successful.
+
+Holding back the desire to question Kirito, Ronye kept watching the interaction between the two of them.
+
+"Sorry for bad surprise, Scheta-san. But I only came up with this way of calling you......."
+
+When Kirito who also removed the hood scruplingly apologized, Scheta nodded with a bitter smile on a cool beautiful face.
+
+"Be sure, I was surprised, when I realized that someone had delivered a blade of mind from the other side of the river, I thought that commander Bercouli had resurrected."
+
+The way she spoke was simple and straightforward as before, but it seems that there were a lot of words and notes in her speech that softened a little since before.
+
+"……but, why in that same room where I was?"
+
+To Scheta question, Kirito shrugged his shoulders.
+
+"Because from there I felt the most… uneasy feeling."
+
+She repeated the same gesture with a slightly unsatisfied face.
+
+"......I thought I was stopped to sweat, but my training is still noticeable from such a long distance."
+
+By that conversation, Ronye finally realized that Kirito was not releasing a blade of mind by a lucky chance. With the gesture of spreading five fingers of the right hand that preceded it, he searched for the presence of Scheta. For Ronye it was a mystery that could not be reached at all, but ──
+
+"Oh, senpai. Even though you own such amazing skills, all you could come up with is to imitate a child throwing a pebble in a friend's room window......"
+
+She released these words unintentionally, then turned to laugh at Kirito who also turned to her.
+
+"Well, did Ronye experience such a call from a boy?"
+
+"I, I did not say it's my story!"
+
+"Well, so then maybe it was you calling him......."
+
+"It’s, it is not about me at all!"
+
+Ronye who desperately denied it, saw a small smile appearing on Scheta’s pale face.
+
+"It might have been a long and hard trip, Ronye. You better take a break at the castle."
+
+She signaled with her right hand, and Yoiyobi laid down. There was no saddle, but thanks to that, all three of them could get on packed together. With Ronye in front, Kirito behind, and Scheta in the middle they rode the dragon which easily took off after running a bit on the riverbank, not frightened at all by the weight of the two of sacred treasure class long swords and three human beings.
+
+Powerfully flapping wings, it quickly raised, aiming at the upper part of Obsidia castle. The guards noticed them, but it was known that it was a dragon of full authority ambassador, so there was no appearance of a fuss.
+
+Yoiyobi flew to the mentioned terrace in about two minutes, and when three people descended, it sang them good-bye<sup><a href="#Prim3">3</a></sup> and flew back to the departure point again. When the dragon's large body disappeared, Ronye walked over to obsidian handrails and looked at the place where Kirito hit it with the blade of mind. As she had feared, scratches that are likely to be more than a centimeter deep were engraved clearly.
+
+_They will certainly be angry, this is no..._ then Ronye raised her eyes towards the view in front of her and unexpectedly shouted completely forgetting what she was worrying about one second ago.
+
+"Wow...... it’s amazing......!"
+
+She could see the entire city of Obsidia in front of her eyes. It was a cluttered and disorganized townscape, completely different from the Centoria city separated radially in four equal fragments, but what she saw almost shined with the power of life.
+
+"Hey that area of the city, where it seems the ground itself is stacked in numerous layers...a-ah, is that a stadium? It is big, senpai!"
+
+Astonished Ronye heard Scheta's voice from behind.
+
+"I know plenty of other places to see, so I'd like to suggest a sightseeing if there is time......."
+
+Having removed her eyes from Ronye and turned around, Scheta pointed her sharp gaze towards Kirito.
+
+"It feels like you came incognito, right? Had something happen in Centoria?"
+
+"That's right."
+
+Nodding, Kirito straightened the spine.
+
+"I'd like to ask an urgent consultation with both Scheta and Dark Army commander Isukan."
+
+***
+
 ### To be continued...
+
 
 ## Footnotes:
 
-<!--1. <a name="Prim1"></a>--> 
-<!--2. <a name="Prim2"></a>-->
-<!--3. <a name="Prim3"></a>--> 
+1. <a name="Prim1"></a>宵呼, “Evening Call”. 
+2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).
+3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
 <!--4. <a name="Prim4"></a>-->
 <!--5. <a name="Prim5"></a>-->
 <!--6. <a name="Prim6"></a>-->
