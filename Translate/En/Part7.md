@@ -250,7 +250,90 @@ Nodding, Kirito straightened the spine.
 
 ***
 
+The room behind the terrace was full of soft colors, too bright for the Dark Territory. Walls and ceiling were painted light pink, curtains were pale yellow, carpet had the color of young grass. It was not wood but ore that burnt red in a big fireplace heating the room so much that one would sweat wearing a coat.
+
+_If this is the Scheta's private room, it is a bit of a surprising that she has such taste......_ thought Ronye, but immediately realized that the room was existing not for her.
+
+There was a small bed about 1 mel long on the other side of the fireplace, and as Scheta walked up there, her profile was brightener by a gently emerged smile.
+
+Scheta silently beckoned Ronye and Kirito standing still at the entrance. They approached, tiptoeing, and looked into the bed, where a baby wrapped in a white cloth was fast asleep.
+
+It was about three months after birth, dark red hair looked soft like fluff, nose, mouth and both hands gently held on both sides of the head are incredibly small.
+
+_I have heard rumors, then this baby is a child of Integrity Knight Scheta and fist fighter Isukan. That would have certainly been a girl……_ thinking this way, Ronye was asked the mother in a very, very quiet whispering.
+
+"... What is her name?"
+
+"Lisetta."
+
+Scheta replied quietly and proudly added, throwing a short gaze at Kirito.
+
+"We took the first sound from a green swordsman Leafa."
+
+"Was it so? ...I did not know."
+
+Murmured Kirito smiling while looking at the sleeping baby.
+
+What broke the gentle silence that lasted for about 20 seconds was the sound of the door on the corridor side opening and in addition a soft voice slowly singing:
+
+"Lisa-chan, it's time for milk..."
+
+Who entered the room was a young man holding a tray with both hands. A simple silvery headband ran around burning-red curly short hair; although it was winter, his upper body was covered only with a thin hemp shirt. Underneath short trousers he wore sandals, strong muscles and countless scars ran through exposed shoulders and arms, his right eye was missing as if it was taken out; his look overall showed that he is a mighty warrior.
+
+But on the other hand, a happy loose smile floated on his young face, very much as one of Kirito when he eats a honey pie; Ronye opened her mouth quietly to such a vision.
+
+Immediately afterwards, the man with one eye also noticed Ronye and Kirito standing near the bed and the smile gradually left his face. His thick eyebrows faintly knited, and the line of sight began to jump back and forth between Scheta and two others.
+
+Before the man tried to say something, Kirito raised his right hand and greeted him.
+
+"Hi there Isukan, it’s been a while!"
+
+Then, the commander of the Dark Army and fist fighter group leader Isukan opened the left eye so wide it almost jumped out.
+
+"Thee.. ees is, Ki-ki-kirito? What happened to the color of your face…. No, rather, what are you doing in this place? The next meeting had been scheduled in March!"
+
+"Well, I have a slightly urgent business. Sorry for intruding."
+
+"Yeah, it's okay, but... no, wait, wait a moment."
+
+A deep valley engraved between frowned eyebrows of Isukan. Scheta moved softly and took away the tray from her husband's hands.
+
+Not reacting to this, fist fighter lowered his gloomy head.
+
+"Kirito, okay, have you heard anything a little while ago...?"
+
+"A little while ago....... Ah, yeah, the milk thing... Heh... Well, Isukan is totally daddy now, ha-ha-ha!"
+
+"Ha-ha-ha... well, if you heard that, you cannot return home unharmed. With this blow, I will punch off your memories from your head!"
+
+Shouted Isukan clenching his right hand. A light like a semi-transparent red flame wrapped his powerful fist.
+
+"Wha…, se-se-se-senpai......!"
+
+![Image](/Translate/Img/p194.jpg)
+
+Kirito moved Ronye, who didn’t know what to do as an escort in such a case, away with right hand. Standing in front of Isukan, he thrusted the left palm ahead.
+
+"There, come on!"
+
+"**U~ra-ra-ra…!!**"
+
+Along with this shout, Isukan kicked off the floor. Drawing a burning red trace in the air, his fist was thrown out at a speed that could not be caught by Ronye's eyes, and hit Kirito’s palm.
+
+Explosive blasting sound roared, the shock violently threw asides curtains and decorative cloth. It was obviously a blow of a terrible power, but Kirito standing firmly on the spot bent his upper body a bit, and handled the fist of Isukan with one palm.
+
+The Fist Fighters’ Leader and the Human World Prime Swordsman kept quiet for a while keeping the right hand and the left palm in contact, when Isukan soon lifted his face and laughed.
+
+"It looks to me, you’re getting weaker, Kirito."
+
+"In your dreams, Isukan."
+
+Besides two smiling men, who shook her head in amazement was Scheta, still holding a tray. Ronye approached the bed and looked into it to check if the baby woke up, but Lisetta, the child of the strongest knight and the strongest fist fighter, kept happily sleeping without noticing the big fuss.
+
+***
+
 ### To be continued...
+
 
 
 ## Footnotes:
