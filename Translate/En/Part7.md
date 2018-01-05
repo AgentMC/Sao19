@@ -276,7 +276,7 @@ Murmured Kirito smiling while looking at the sleeping baby.
 
 What broke the gentle silence that lasted for about 20 seconds was the sound of the door on the corridor side opening and in addition a soft voice slowly singing:
 
-"Lisa-chan, it's time for milk..."
+"Lisa-chan, it's time for milk<sup><a href="#Prim4">4</a></sup>..."
 
 Who entered the room was a young man holding a tray with both hands. A simple silvery headband ran around burning-red curly short hair; although it was winter, his upper body was covered only with a thin hemp shirt. Underneath short trousers he wore sandals, strong muscles and countless scars ran through exposed shoulders and arms, his right eye was missing as if it was taken out; his look overall showed that he is a mighty warrior.
 
@@ -341,7 +341,7 @@ Besides two smiling men, who shook her head in amazement was Scheta, still holdi
 1. <a name="Prim1"></a>宵呼, “Evening Call”. 
 2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).
 3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
-<!--4. <a name="Prim4"></a>-->
+4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “mir-ku”. The explanation for this will be given below.
 <!--5. <a name="Prim5"></a>-->
 <!--6. <a name="Prim6"></a>-->
 <!--7. <a name="Prim7"></a>-->
