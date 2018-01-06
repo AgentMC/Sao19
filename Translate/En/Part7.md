@@ -38,7 +38,7 @@ She decided to talk to Asuna properly upon the return to Centoria. Of course, no
 
 While she was thinking about such things, surprisingly Kirito woke up in about three minutes as declared asleep, and looked the room around with both eyes closed more than half.
 
-When noticing Ronye, he had a great yawn “**Fuwa~~**” and called out "Good morning Ronye".
+When noticing Ronye, he had a great yawn “**Fuwa\~~**” and called out "Good morning Ronye".
 
 "...... Yes, good morning, Kirito-senpai."
 
@@ -112,7 +112,7 @@ Ronye opened her eyes wide watching as in his right hand appeared something like
 
 _Kirito did not cast any sacred art. So, this is a secret mystery of Integrity Knights who directly interact with "the matter of the world", a technique of incarnation. But, usually invisible, it shines with light and emits sound, how much will is concentrated here?_
 
-"**............~~Fu**!!"
+"**............\~~Fu**!!"
 
 With a short shout, Kirito swept his right hand with tremendous momentum.
 
@@ -340,7 +340,7 @@ As the guards had gone away the nine o'clock bells rang and the baby woke up as 
 
 As the fibo fruit is ripened, it becomes semi-transparent and hollow like a glass bottle, and because of its elasticity and water impenetrability as well as the part of the lid protruding like a nipple, the plant was said to be created by the goddess of the earth Terraria specially for babies.
 
-_But as long as we know about the existence of real world, it is probably ─ the real world people actually created it rather than Terraria goddess ─_ one couldn’t help thinking this way. Watching Lisetta purring “**n~ku, n~ku**”, Scheta raised the face and said.
+_But as long as we know about the existence of real world, it is probably ─ the real world people actually created it rather than Terraria goddess ─_ one couldn’t help thinking this way. Watching Lisetta purring “**n\~ku, n\~ku**”, Scheta raised the face and said.
 
 "Will you try?"
 
