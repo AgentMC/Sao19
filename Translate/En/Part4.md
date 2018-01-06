@@ -159,7 +159,7 @@ Then the captain looked to his subordinate. A young guard officer rushed out as 
 
 "…………There is none"
 
-"What, what you say! "
+"What, what you say!"
 
 The captain, who yelled loudly, shrunk his neck to the limit and the guard repeated.
 
@@ -267,7 +267,7 @@ When asked, the archer confidently nodded.
 
 "Well, the priority will be much lower than of an arrow made from genuine steel"
 
-"Perhaps, it’s same thing here..... The dagger criminal used, was a "temporary weapon" created with a metallic element...... like that...... "
+"Perhaps, it’s same thing here..... The dagger criminal used, was a "temporary weapon" created with a metallic element...... like that......"
 
 The idea Ronye pointed out has led to a moment of silence in the main conference hall.
 

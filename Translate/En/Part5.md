@@ -115,7 +115,7 @@ She started like that, but once the door opened, who was standing behind it was 
 
 Asuna smiled gently and quickly stopped Ronye who was trying to hurriedly make a formal salute.
 
-"Sorry for taking your time, Ronye-san. There is a place I want you to come over for a moment... "
+"Sorry for taking your time, Ronye-san. There is a place I want you to come over for a moment..."
 
 "...... Yes, wherever you say"
 
@@ -226,11 +226,11 @@ Asuna suddenly made a step towards Ronye and gently pit her hands to Ronnie's ba
 
 Feeling tears covering her eyes from these words, Ronye muttered.
 
-"Alice-sama...... Why did she leave....... "
+"Alice-sama...... Why did she leave......."
 
 After a while Asuna responded with certainty.
 
-"She is fine in the real world. She is the hope that ties the two worlds....... I'm sure, someday, we’ll meet again...... "
+"She is fine in the real world. She is the hope that ties the two worlds....... I'm sure, someday, we’ll meet again......"
 
 Having applied some strength to both arms hugging Ronye, Asuna released her and smiled again.
 
@@ -402,7 +402,7 @@ As she reflexively lowered his head, Asuna blinked her eyes and smile to her.
 
 "You see... I also came from a noble family and I never had any doubts about the aristocracy system of the Human World until I met Kirito-senpai..."
 
-"But fathers of Ronye-san and Tiese-san were doing important work in the guard and the executive branch for a long time, did they not? It is entirely different from great aristocrats enjoying each day thanks to the forced hard labor of people living in their territory. "
+"But fathers of Ronye-san and Tiese-san were doing important work in the guard and the executive branch for a long time, did they not? It is entirely different from great aristocrats enjoying each day thanks to the forced hard labor of people living in their territory."
 
 "............"
 
@@ -424,7 +424,7 @@ She thought so, but it wasn’t a good thing to say while aiming at the Human Wo
 
 Asuna tilted the neck encouraging her to continue, and Ronye answered after shaking her head a little.
 
-"No, it’s nothing...... But uh, if possible, could you let Tiese to get the same sword as this one...? Because she also still continues to use the sword of Human World Army...... "
+"No, it’s nothing...... But uh, if possible, could you let Tiese to get the same sword as this one...? Because she also still continues to use the sword of Human World Army......"
 
 "Yes, I'm going to get permission for Tiese-san as well."
 

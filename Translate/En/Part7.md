@@ -92,7 +92,7 @@ Then Prime Swordsman tilted his painted dark head lightly.
 
 Kirito rushed to deny Ronye's words.
 
-"No, no. I still have a last resort! "
+"No, no. I still have a last resort!"
 
 Shouting so, he pulled Ronye's hand, and they went along the left bank of the river. _As the bridge that leads directly to the castle keeps getting away more and more, he surely wants to swim across this river which seems to be not easy at all, climb up the hill full of rocks and intrude into the castle._
 
@@ -370,7 +370,7 @@ Kirito nodded and started talking about the murder case occurred in South Centor
 
 Isukan and Scheta listened silently, but at the moment when the story ran over to the mountain goblin Oroi who was accused as the murderer, two people sharply breathed. But without saying a word, they finished listening to where Kirito and Ronye flew out of Human World with a "dragon" and arrived at Obsidia last night.
 
-"……I see……. Spreading this would incur undesired attention....... "
+"……I see……. Spreading this would incur undesired attention......."
 
 To the commander sitting next to him, Prime Swordsman shook his head gently.
 
@@ -378,7 +378,7 @@ To the commander sitting next to him, Prime Swordsman shook his head gently.
 
 Currently, the communication between Centoria and Obsidia relies on a horse riding messengers passing through ten cities and fortresses. The number of days it takes one way is really two weeks. Moreover, there is a danger that a messenger will be attacked by numerous huge monsters inhabiting the Dark Territory.
 
-"That's right……I wish I had found a parent skull....... "
+"That's right……I wish I had found a parent skull......."
 
 Isukan sighed and Kirito nodded with a sad face, so Ronnie blinked and asked.
 
@@ -406,7 +406,7 @@ The moment Ronye thought it was, of course, that Isukan himself, Scheta added:
 
 Looking at Isukan frowning for being corrected, Kirito let a quick smile run across his face, but immediately returned to a perplexed expression.
 
-"Yes, I think so too, in fact, the dagger that Oroi seemingly used to kill the cleaner from Human World have disappeared from the arsenal. Probably it was a "temporary weapon" produced from metallic element......It is not myself that noticed it, but Ronye, by the way. "
+"Yes, I think so too, in fact, the dagger that Oroi seemingly used to kill the cleaner from Human World have disappeared from the arsenal. Probably it was a "temporary weapon" produced from metallic element......It is not myself that noticed it, but Ronye, by the way."
 
 "Heh, you have a nice disciple, don’t you think so?"
 
@@ -422,7 +422,7 @@ She closed her mouth, looking at Scheta and Isukan in order, asking with courage
 
 The couple exchanged glances, and Isukan coughed and answered.
 
-"I was going to report this properly at the next meeting......It’s a shame, but we are unable to grasp the current status of the dark arts masters’ guild. "
+"I was going to report this properly at the next meeting......It’s a shame, but we are unable to grasp the current status of the dark arts masters’ guild."
 
 "What do you mean……?"
 
@@ -446,9 +446,9 @@ Isukan returned the line of sight to Ronye and finished the explanation.
 
 ".......In consequence, the dark arts masters’ guild that is currently participating in the Five Clans Conference, perhaps, is just an empty shell. It’s possible that really skilled dark arts masters with real power have hidden somewhere in the cellars. And then there is also a possibility that they are involved in the incident that happened in Human World.... ── But you seem to disagree, Ronye? You do not think so, do you?"
 
-"Well, you know, I’ve got no basis to deny it, but... I just thought it was strange. Even if the dark arts masters’ guild hides in the basement behind the curtain, isn’t it possible for them to get a real goblin dagger, so they do not have to bother generating a fancy weapon from the metallic element... "
+"Well, you know, I’ve got no basis to deny it, but... I just thought it was strange. Even if the dark arts masters’ guild hides in the basement behind the curtain, isn’t it possible for them to get a real goblin dagger, so they do not have to bother generating a fancy weapon from the metallic element..."
 
-"... It certainly is. Sure, for goblins, the dagger with the clan crest embellished should be an important symbol, but even so, they are casted massively by smiths. Would they need, they are able to quickly get one or two, either steal it, or buy it. "
+"... It certainly is. Sure, for goblins, the dagger with the clan crest embellished should be an important symbol, but even so, they are casted massively by smiths. Would they need, they are able to quickly get one or two, either steal it, or buy it."
 
 Kirito nodded to Isukan’s muttering.
 
@@ -468,7 +468,7 @@ Kirito shook his head slowly, muttering something regarding him still not unders
 
 Isukan nodded quietly and thought for a while, but soon clapped his hands as if to change the atmosphere.
 
-"── OK, anyway, I understand the situation. It’s a pity, it seems better to interrupt the tourism with Human World for a while... "
+"── OK, anyway, I understand the situation. It’s a pity, it seems better to interrupt the tourism with Human World for a while..."
 
 "Well...... at the moment we are preventing the spreading of this information within Centoria, but if the second and the third incidents happen, we won’t be able to control it even with the power of Union Council. Then we’ll temporarily block the Great Eastern Gate and tourists staying in Centoria will also be sent home as soon as possible."
 
@@ -492,9 +492,9 @@ As a part of exchange project, in addition to the acceptance of tourists visitin
 
 Scheta also nodded to the words of Kirito.
 
-"I do not think there is a need to stop the trade business right now also because the merchant parties carry a lot of valuable medicine and media of the human world, so they are welcomed more than I had expected....... As a precaution, during merchants’ stay in Obsidia, one of my disciples will be attending them. "
+"I do not think there is a need to stop the trade business right now also because the merchant parties carry a lot of valuable medicine and media of the human world, so they are welcomed more than I had expected....... As a precaution, during merchants’ stay in Obsidia, one of my disciples will be attending them."
 
-"Eh, disciples......? Scheta-san wasn’t transferred with a company.... Hmm, I was under impression you have come here alone by yourself...? "
+"Eh, disciples......? Scheta-san wasn’t transferred with a company.... Hmm, I was under impression you have come here alone by yourself...?"
 
 To Kirito who had a surprised expression on his face painted dark, Isukan answered in a voice that mixed pride and concern.
 
@@ -520,7 +520,7 @@ The shoulder of Kirito retreating as far as the chair back allowed was gently pa
 
 "I do not care about it! I have civil ambitions!"
 
-_Oh, this guy won’t let you to escape already......._thought Ronye watching the agitated Kirito.
+_Oh, this guy won’t let you to escape already......._ thought Ronye watching the agitated Kirito.
 
 ***
 

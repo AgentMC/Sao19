@@ -554,13 +554,13 @@ Next to Kirito nodding with delicate face, Ronye unexpectedly shouted in surpris
 
 And as if he was some kind of relative of the shopkeeper, the fist fighter proudly hit his thick chest.
 
-"This fella is not going a step away from the counter every day, he keeps on adjusting the fire so the pot does not become empty or burnt. If you do keep doing it constantly, it seems that the content of the pot will not lose life. Naturally I eat here three meals a day......I am thinking that this is only this fella not only in Dark Territory, but in entire Underworld, that can cook such a thing. "
+"This fella is not going a step away from the counter every day, he keeps on adjusting the fire so the pot does not become empty or burnt. If you do keep doing it constantly, it seems that the content of the pot will not lose life. Naturally I eat here three meals a day......I am thinking that this is only this fella not only in Dark Territory, but in entire Underworld, that can cook such a thing."
 
 "Well, every day, that is......."
 
 She stared on the counter in question. An unfriendly shopkeeper kept stirring the pot with his face down, and his face could not be seen again.
 
-"....... So, has his life been frozen if he is alive for more than two hundred years...? "
+"....... So, has his life been frozen if he is alive for more than two hundred years...?"
 
 To Ronye's question, the fist fighter, who apparently came up with such a possibility for the first time, looked at the bowl and counter a number of times with a serious look and then shook his head from side to side.
 
@@ -588,7 +588,7 @@ Rubbing the face gently with a thick palm, he kept on smiling.
 
 "...... It might be a bit difficult for you to find work for both brother and sister in Obsidia now, bro."
 
-"Oh ... is that so? It is lively in the streets even at such time and it seems to be nice... "
+"Oh ... is that so? It is lively in the streets even at such time and it seems to be nice..."
 
 "It looks like it looks, but that's because the number of residents is increasing ... and I do not think it will last for long..."
 
@@ -648,7 +648,7 @@ Kirito solved the penniless problem by unexpectedly modest means of getting a kn
 
 "This currency, "beck"<sup><a href="#Prim8">8</a></sup>. Is the value of one beck the same as one shear in Human World?"
 
-"Ehm...? Oh, yes, I have such a feeling. The thing is that the cup of Obsidia boil is still quite cheap though... "
+"Ehm...? Oh, yes, I have such a feeling. The thing is that the cup of Obsidia boil is still quite cheap though..."
 
 "Well, I guess you would want to eat it again, senpai?"
 
