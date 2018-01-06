@@ -332,8 +332,200 @@ Besides two smiling men, who shook her head in amazement was Scheta, still holdi
 
 ***
 
-### To be continued...
+Isukan pushed out the guards who ran inside through the door after hearing the roar and blocked it with two legs from a chair, then lined up some other chairs by the window.
 
+Of course, the guards were doubtful of Kirito and Ronye, but either due to the "Law of the Strongest" or maybe because of Isukan’s authority, they were convinced by the commander's comment "Worry not, I’ll explain later".
+
+As the guards had gone away the nine o'clock bells rang and the baby woke up as if it was a signal for getting up, and began to cry. Scheta lifted her up from the bed and they sat together on one of the chairs; the child began to drink milk from a baby bottle made of fibo fruit, same as in Human World.
+
+As the fibo fruit is ripened, it becomes semi-transparent and hollow like a glass bottle, and because of its elasticity and water impenetrability as well as the part of the lid protruding like a nipple, the plant was said to be created by the goddess of the earth Terraria specially for babies.
+
+_But as long as we know about the existence of real world, it is probably ─ the real world people actually created it rather than Terraria goddess ─_ one couldn’t help thinking this way. Watching Lisetta purring “**n~ku, n~ku**”, Scheta raised the face and said.
+
+"Will you try?"
+
+"Is that ok?"
+
+"Sure."
+
+Ronye held the past baby with a left arm. She got the baby bottle with her right hand, brought it closer to the mouth.
+
+Lisetta stared at Ronye for a moment with gray eyes very similar to her mother’s, but immediately began drinking milk again. In Cathedral she had given milk to Berchie as well several times, but because this was a girl, the feeling holding her was quite different.
+
+"I wanted to raise her with breast feeding but it seems that there’s a secret formula milk within the fist fighters group."
+
+Hearing words of Scheta, Isukan, who was exchanging reports on the recent status with Kirito sitting across the small table, looked at them and said:
+
+"Well, if you drink that thing you will not catch a cold, your bones will become harder and grow stronger."
+
+Used as well in Human World, a general-purpose sacred language ─ sacred words widely used by the public like "curtain" and "table"<sup><a href="#Prim5">5</a></sup> ─ word "milk" meant specifically cow milk or sheep milk warmed to the human body temperature with additions of various types of medically-effective ingredients used exclusively for babies as a replacement for breast feeding. What are those additions exactly — has been transmitted within families or areas from generation to generation, and in that sense, it can be named a "secret formula". As Scheta said, they often tell stories that breast milk is the best and it might be actually the truth, but without a bottle made of fibo fruit filled with “milk”, raising babies would be much more difficult to busy farmers and merchants.
+
+Anyway, Lisetta herself seemed to have no dissatisfaction with milk containing secret fist fighter ingredient, and when she finished the bottle in a blink of an eye, she made a small burp. She became sleepy, so Ronye gave her back to Scheta who lied her down on the bed.
+
+Scheta who came back soon had already an expression of a knight rather than a mother, and as soon as she got on the chair, she said.
+
+"So, what happened?"
+
+Kirito nodded and started talking about the murder case occurred in South Centoria two days ago.
+
+Isukan and Scheta listened silently, but at the moment when the story ran over to the mountain goblin Oroi who was accused as the murderer, two people sharply breathed. But without saying a word, they finished listening to where Kirito and Ronye flew out of Human World with a "dragon" and arrived at Obsidia last night.
+
+"……I see……. Spreading this would incur undesired attention....... "
+
+To the commander sitting next to him, Prime Swordsman shook his head gently.
+
+"No, I thought of sending a message as the first thing to do, but... the time for delivery and waiting for the reply to come back, it will be next month."
+
+Currently, the communication between Centoria and Obsidia relies on a horse riding messengers passing through ten cities and fortresses. The number of days it takes one way is really two weeks. Moreover, there is a danger that a messenger will be attacked by numerous huge monsters inhabiting the Dark Territory.
+
+"That's right……I wish I had found a parent skull....... "
+
+Isukan sighed and Kirito nodded with a sad face, so Ronnie blinked and asked.
+
+"Sorry, that parent skull ...what is it?"
+
+"Oh, I learned about it when the war ended. There is a sacred treasure used by the emperor Vector to give orders to ten armies at the time of a Foreign World War. One big parent skull and ten smaller children skulls in one set; when you talk to parent skull, that voice would reach instantly to child skulls at a remote place."
+
+She instinctively rounded eyes hearing the description from Kirito.
+
+"Wait a moment...... There is such a thing so one won’t need a letter or horses?"
+
+"They wouldn’t... Well, it's a one-way from parent to child, so you cannot talk with just one set."
+
+"And in the first place, the parent skull and some child skulls have gone missing after the war, so it is a useless toy now."
+
+Isukan sighed and added.
+
+"The problem is that human being killed... It would be impossible......For everyone who are going on sightseeing in Human World, I have letters in writing saying that fighting and killing is prohibited by the name of Dark Territory tribe leaders and the commander of the Dark Territory himself. One by one, I have signed all of them... As long as there is a "the law of the strongest", only one person can ignore that order in the dark world."
+
+The moment Ronye thought it was, of course, that Isukan himself, Scheta added:
+
+"Two persons"
+
+"............ only two persons"
+
+Looking at Isukan frowning for being corrected, Kirito let a quick smile run across his face, but immediately returned to a perplexed expression.
+
+"Yes, I think so too, in fact, the dagger that Oroi seemingly used to kill the cleaner from Human World have disappeared from the arsenal. Probably it was a "temporary weapon" produced from metallic element......It is not myself that noticed it, but Ronye, by the way. "
+
+"Heh, you have a nice disciple, don’t you think so?"
+
+"I… I’m not a disciple, I’m rather..."
+
+As Kirito tilted his head looking at her, Ronye also seemed to be thinking of what she is now to Kirito, but quickly shook that out of her head, raised the hand and spoke.
+
+"Well, I thought about that a bit more... but the weapon in question was reproducing the mountain goblin dagger fine enough for Oroi-san to mistake it for the real one for a moment. So, we guessed that the dark arts master was involved in the incident... but......."
+
+She closed her mouth, looking at Scheta and Isukan in order, asking with courage.
+
+"...... but before that, what the dark arts masters’ guild is doing now ...?"
+
+The couple exchanged glances, and Isukan coughed and answered.
+
+"I was going to report this properly at the next meeting......It’s a shame, but we are unable to grasp the current status of the dark arts masters’ guild. "
+
+"What do you mean……?"
+
+Kirito also raised eyebrows.
+
+"D.I.L. who was the former guild master was slain by the Green Swordsman and died, after that the female arts master named K.U.V. succeeded. But even my eyes can see that she is not quite open to dark arts, she is indeed insufficient in strength."
+
+Scheta confirmed the words of Isukan.
+
+"Looking at her, my skill is better than hers."
+
+"So, we investigated secretly, and K was at best tenth in the guild hierarchy when D was alive. In other words, the whole lot of top guys are quietly missing."
+
+"...... the dark masters’ guild, in the battle by the "Great Eastern Gate", didn’t they lose nearly 2000 people killed? Weren’t those guys joining the troops?"
+
+Isukan denied Kirito’s point, frowning.
+
+"I do not think so....... Their obsession to survive is monstrous. Even D would be alive now should she not have fought with Green Swordsman. They are not so gentle people that nearly the whole top ten are killed in battle together."
+
+Isukan returned the line of sight to Ronye and finished the explanation.
+
+".......In consequence, the dark arts masters’ guild that is currently participating in the Five Clans Conference, perhaps, is just an empty shell. It’s possible that really skilled dark arts masters with real power have hidden somewhere in the cellars. And then there is also a possibility that they are involved in the incident that happened in Human World.... ── But you seem to disagree, Ronye? You do not think so, do you?"
+
+"Well, you know, I’ve got no basis to deny it, but... I just thought it was strange. Even if the dark arts masters’ guild hides in the basement behind the curtain, isn’t it possible for them to get a real goblin dagger, so they do not have to bother generating a fancy weapon from the metallic element... "
+
+"... It certainly is. Sure, for goblins, the dagger with the clan crest embellished should be an important symbol, but even so, they are casted massively by smiths. Would they need, they are able to quickly get one or two, either steal it, or buy it. "
+
+Kirito nodded to Isukan’s muttering.
+
+"If the goal of the real culprit was to raise the tension between Human World and Dark Territory by putting the guilt of murder on Oroi, it would be more effective to prepare a real dagger....... ── Something the real culprit could not do if it is someone within Human World......"
+
+"This would bring us to an even bigger mystery."
+
+Scheta pointed out sharply narrowing grey eyes.
+
+"People of Human World are bound by far more rigid laws than those of Dark Territory. The murder is a violation of an explicit entry of Taboo Index, which means, if the one who killed the cleaner is a Human World person, that he can ignore the Taboo Index."
+
+Simultaneously with Kirito saying that, Ronye silently nodded.
+
+It was also pointed out in discussion with Fanatio immediately after the incident. Even Integrity Knights who are not bound by the Taboo Index cannot take away the whole life of an innocent civilian like a cleaner Yazen by any means.
+
+Kirito shook his head slowly, muttering something regarding him still not understanding anything.
+
+Isukan nodded quietly and thought for a while, but soon clapped his hands as if to change the atmosphere.
+
+"── OK, anyway, I understand the situation. It’s a pity, it seems better to interrupt the tourism with Human World for a while... "
+
+"Well...... at the moment we are preventing the spreading of this information within Centoria, but if the second and the third incidents happen, we won’t be able to control it even with the power of Union Council. Then we’ll temporarily block the Great Eastern Gate and tourists staying in Centoria will also be sent home as soon as possible."
+
+Although his tone sounded already full of wholehearted regrets, Kirito continued with even more heavier voice.
+
+"......and also, the mountain goblin Oroi who is currently secured in Central Cathedral... he cannot return soon. Maybe I’m still missing something, maybe there is a reason why he was caught. ── Oroi, he belongs to clan Uboli from the hill. I'm sorry, but..."
+
+"All right, I will contact Uboli myself and explain the circumstances."
+
+After nodding, Isukan glanced out of the window and turned back to Kirito again.
+
+"── As for tourists going to Human World from here, this is fine... How about merchant parties coming from Human World? Certainly, every party should stay away from Obsidia."
+
+"Ugh, and this also..."
+
+Kirito groaned with his arms folded.
+
+As a part of exchange project, in addition to the acceptance of tourists visiting Human World from Dark Territory, the dispatching of merchant parties from Human World has begun. Although it was still in trial scale, only including buying and selling goods via several horse-drawn carriages, but in Dark Territory there are lots of rare items not found in Human World like luminescent stone used for lighting, so great merchants who sniffed the smell of money were flooding officials with requests for dispatch permission.
+
+"...... If the culprit of the incident is an organization, they may have companions in Obsidia, then the reverse of cleaner murder may happen...... In other words, there is indeed a possibility that a human merchant might try to kill a resident of Dark Territory. However, in the merchant parties there are skilled men from the Human World Army and clerics as escorts, additionally merchants are following regulations so they cannot dispatch without permission, so that wouldn’t be easy, I think..."
+
+Scheta also nodded to the words of Kirito.
+
+"I do not think there is a need to stop the trade business right now also because the merchant parties carry a lot of valuable medicine and media of the human world, so they are welcomed more than I had expected....... As a precaution, during merchants’ stay in Obsidia, one of my disciples will be attending them. "
+
+"Eh, disciples......? Scheta-san wasn’t transferred with a company.... Hmm, I was under impression you have come here alone by yourself...? "
+
+To Kirito who had a surprised expression on his face painted dark, Isukan answered in a voice that mixed pride and concern.
+
+"That means, Scheta is now not only an ambassador but also a guest instructor for the dark knight team"
+
+"What, a guest instructor...?"
+
+"When I went to visit the Knights Order, a young captain dragged me into a game, you know, a borrowed sword ......And well, I succeeded with only sheath without its contents. Now I have my own dojo at the headquarters of the Order."
+
+"There are only about ten disciples, but everyone is quite good."
+
+"Yep, they are......"
+
+Scheta added with a serious look towards Kirito who seemed to have no words.
+
+"I would like you to come and join the dojo and practice with disciples."
+
+"No, no, I have not practiced traditional swordsmanship for quite a while..."
+
+The shoulder of Kirito retreating as far as the chair back allowed was gently patted with Isukan’s stretched left hand.
+
+"Well, then come to the training hall of the fighting team after the knight team as well. There are quite a few people who doubt your strength, so please take this opportunity to force the “Law of the Strongest”."
+
+"I do not care about it! I have civil ambitions!"
+
+_Oh, this guy won’t let you to escape already......._thought Ronye watching the agitated Kirito.
+
+***
+
+
+### To be continued...
 
 
 ## Footnotes:
@@ -341,8 +533,8 @@ Besides two smiling men, who shook her head in amazement was Scheta, still holdi
 1. <a name="Prim1"></a>宵呼, “Evening Call”. 
 2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).
 3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
-4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “mir-ku”. The explanation for this will be given below.
-<!--5. <a name="Prim5"></a>-->
+4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “miruku” (ミルク). The explanation for this will be given below.
+5. <a name="Prim5"></a>It is ”katen” (カーテン) and “teburu” (テーブル) respectfully.
 <!--6. <a name="Prim6"></a>-->
 <!--7. <a name="Prim7"></a>-->
 <!--8. <a name="Prim8"></a>-->
