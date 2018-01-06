@@ -524,9 +524,99 @@ _Oh, this guy won’t let you to escape already......._ thought Ronye watching t
 
 ***
 
+Kirito and Ronye who borrowed a personal bathtub of Scheta and Isukan and washed off the face paint and dirt of the long journey, were introduced to the guest room on the same floor.
 
-### To be continued...
+It seemed that the two sudden visitors were made known inside the castle as couriers from Human World.
 
+Because it was hidden that Kirito was the Human World Prime Swordsman himself, the guards were looking suspiciously at the light clothing that would not be normal for a messenger, but they changed attitude after noticing swords hanging from the waists of the two people. After all, in Dark Territory, weapons of the Sacred Treasure class seem to be rarer than in Human World.
+
+They did a short break in this two-rooms apartment, then had lunch with the couple of Isukan and Scheta at noon. In the afternoon they were taken by a horse-drawn carriage to see the Dark Knights Order Headquarters and the training center of the Fist Fighter group in the center of the city; Kirito seemed to be able to really make a game with the fist fighter headmaster assistant called one-handed giant, but "Because we’re incognito!" made an appearance of fighting for his life and avoiding his blows in the last moment.
+
+After that, they saw the central market and the big stadium, but of course, it wasn’t just going on a pleasure jaunt from beginning to an end. Kirito and Isukan used every opportunity they saw to exchange opinions on the incident and Ronye continued paying attention to the surroundings to fulfill the role of escort. However, since she was accompanied by Scheta, a high-ranking Integrity Knight, called "Silent", there would have been no opportunity for Ronye to act should any attack happen, but —
+
+Now that she considered, she had noticed it way too late. Scheta, both when she was riding Yoiyobi and during the city tour, did not carry a sword at her waist.
+
+While being shaken by a horse-drawn carriage on the way back to the castle, Ronye shifted her body a little towards Scheta on the couch, and called.
+
+"Oh, Scheta-sama. Your sword seems to be missing, can’t help asking.......?"
+
+The knight nodded and narrowed both eyes as if remembering something nostalgic for a moment.
+
+"Yeah... For me, the "Black Lily Sword" is the first and last loved sword."
+
+"............"
+
+Ronye still could not infer the way of how the Integrity Knight could lose the beloved sacred treasure. Scheta faintly smiled slightly touching with her fingertips the hands of Ronye, who was in the loss of words.
+
+"I am now not a "silent" but rather "unarmed" knight<sup><a href="#Prim6">6</a></sup>. But I am pleased with what I have accomplished....... Sometimes, I remember my Black Lily, and then I feel lonely."
+
+"So… it is……"
+
+_── This person is totally unreachable and incomprehensible to me._
+
+Yet again, she felt how deepens and widens the abyss of difference between the her being a knight trainee and the high-ranked knight, and that moment it was the turn of Scheta to ask an unexpected question.
+
+"Had this sword just been given to you?"
+
+"Y-yes, I have not decided on its name."
+
+Nodding, she gently stroked the silvery guard.
+
+"Right, your connection to this sword is still very weak, but it is a very good sword. Be careful...... Although the war is over, the battle of the knight never ends."
+
+"── Yes!"
+
+When Ronye responded with a clear voice, Kirito and Isukan sitting in front looked back in surprise.
+
+Eventually the carriage passed through the city area and returned to the Obsidia Castle in the normal way of passing through the gates across the bridge.
+
+Although Obsidia Castle with its height of 500 mel<sup><a href="#Prim7">7</a></sup> and fifty floors was only slightly below the Central Cathedral, there was no automatic elevator as in Cathedral. In other words, it is only a matter of going up the stairs to reach to the upper level, which was also a countermeasure against the raiders.
+
+To the 49th floor where the Isukan lived, four people climbed up without a single stop. The couple and Kirito did not seem to lost breathe, but Ronye said after having several “**\~ha…\~ha…**” after arrival, that even in such a place she realizes the lack of training.
+
+Ronye, still panting, thanked the three who waited and that moment she noticed that the big stairs were still on and tilted her neck.
+
+"Hmm...... Scheta-sama, what is up there?"
+
+It was not the full-authority ambassador but the commander who answered the question.
+
+"There is a throne seat on the fiftieth floor. I only entered once or twice, though."
+
+"Oh...... is that the emperor's throne?"
+
+Now when Kirito asked, Isukan nodded, frowning.
+
+"It is, it is exactly what the Emperor Vector came down a year and few months ago."
+
+"Would you mind me taking a quick...?"
+
+Isukan jumped ahead and spread both hands in front of Kirito whose face became dangerously curious.
+
+"Of course...... of course, the door on the fiftieth floor was closed again with the "sealing chain" the moment Vector was killed, and it cannot be sliced with anything anyway. From the fiftieth floor, there is a legend, one can see the Mountain Range at the Edge and the Great Eastern Gate, so I tried to get in myself again, but...."
+
+Listening to the fist fighter explanation, when he said “it cannot be sliced”, the Integrity Knight nodded once and added.
+
+"I borrowed a sword from the treasury and tried it, but the chain could not be sliced. If it was a Black Lily Sword I could probably slice it though."
+
+"...... Bad luck<sup><a href="#Prim8">8</a></sup>............"
+
+Ronye who felt that "I want to challenge it with the Sword of the Night Sky!" said with the voice of Kirito will be the next phrase to sound, quickly pulled his right sleeve twice. It seems that Kirito also felt Ronye's "Absolutely unacceptable!", and after he looked up at the stairs once, he nodded again.
+
+"Okay, then I’d say the tour is over."
+
+"Sort of, this dinner some rare mon<sup><a href="#Prim9">9</a></sup> will be cooked so I have high expectations."
+
+"Looking forward to it."
+
+Seeing that the story was over, Scheta went down one step.
+
+"I will give milk to Lisetta. See you at the dinner."
+
+"Oops, I will also go. I still have seen her face only once today."
+
+Kirito, who waved his hands to the parents, immediately looked up the stairs to the top floor again. When Ronye silently shook her head, he said with a bitter smile.
+
+"I understand. ......Well, shall we go back to the room?"
 
 ## Footnotes:
 
@@ -535,8 +625,8 @@ _Oh, this guy won’t let you to escape already......._ thought Ronye watching t
 3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
 4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “miruku” (ミルク). The explanation for this will be given below.
 5. <a name="Prim5"></a>It is ”katen” (カーテン) and “teburu” (テーブル) respectfully.
-<!--6. <a name="Prim6"></a>-->
-<!--7. <a name="Prim7"></a>-->
-<!--8. <a name="Prim8"></a>-->
-<!--9. <a name="Prim9"></a>-->
+6. <a name="Prim6"></a>Originally: 無音 (no-sound; silent) and 無手 (no-arm; empty-handed).
+7. <a name="Prim7"></a>#KawaharaMath yep, the diameter is 300, the height is twice (I thought it’s a typo and “corrected” it to “more than 3 times”, but I’ll leave it that way, it at least makes sense there) the diameter, Kirito’s “pebble” flew more than a kilolu (to a non-top floor), and this all means that the height of the castle is 500 mel.
+8. <a name="Prim8"></a>This sounds “fūn” in Japanese, so Kirito might as well say sacred word _fun_.
+9. <a name="Prim9"></a>モン, no idea what this is, may be with the ending of the previous word this should be read as shi-mon, being some sort of Underworld salmon, but I couldn’t find any proofs.
 <!--10. <a name="Prim10"></a>-->
