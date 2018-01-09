@@ -129,13 +129,141 @@ The guards cheered behind, and amazed Isukan turned around and said with a smile
 
 "The story will be later, Isukan!"
 
+Voice of Kirito, who cut the praise short, was feeling more tense than when he instructed the couple to attack.
 
+"Minions, despite possibly taking some treasure here, did not try to attack us. The purpose of the dark arts master who released them is surely a diversion to hold us off!"
+
+The moment she heard it, the dim guess Ronye got turned into a specific fear, and at the same time Scheta quickly paled.
+
+"No way......"
+
+She muttered so with a faint voice and started to run fiery. Like a wind she rushed between Ronye and Kirito, through the guards, and jumped out of the treasury.
+
+"We too!"
+
+Kirito shouted pulling Isukan’s pajamas of Human World Eastern Empire style and began running.
+
+"Wha…, what is goi…, going on?"
+
+Kirito blushed and shouted to a fist fighter who leaked bewildered voice while kicking a polished obsidian floor barefoot.
+
+"Perhaps, the real purpose of the arts master is much more important than treasure"
+
+"More impor..."
+
+Isukan repeating after him suddenly opened the eyes wide. Ronye felt that she heard the sound of red golden hair standing upright.
+
+"Lisetta"
+
+Immediately after he murmured the name of the baby in a low voice, both feet of fist fighter radiated a light-red glow.
+
+**Gaan**! And the obsidian floor where he kicked off cracked like a spider's web. Rushing up skipping four or five steps he quickly separated from them by enormous accelerating and reached the top of the stairs few seconds after dashing ahead Scheta. Just behind him, Kirito glided in an ashihakobi<sup><a href="#Prim1">1</a></sup> style.
+
+Resisting the shiver that tried to make the whole body numb, Ronye ran hard after them. She climbed the stairs and jumped into the corridor of the 49th floor, but there was already no appearance of the three, only footsteps can be heard.
+
+Following the sound, she ran further and passed the child room first, then to the room behind it which probably was couple's bedroom.
+
+When she rushed into the open door, an unusual odor struck her nose.
+
+The light of one small ore lantern dimly lit the wide room, but still she clearly saw a big window shattered into pieces, the pool of pitch-black blood that spread before it and the two fallen guards.
+
+Probably the guards touched the blood pool smelling of minions. Both of them seem to still have a breath, is it wasn’t clear whether they were panting because of an injury or was it an action of poison. Apart from the guards, there was only Isukan in the room.
+
+"Guido, Gaiol, what happened!"
+
+A guard held a hand trying to hold off screaming Isukan from approaching.
+
+"Commander, don’t touch this......"
+
+Another one reported with more a chagrin on his face, than pain.
+
+"After the two of us went down for a while, when the window cracked...... when we entered, was a black monster…. We managed to fight it off, but unexpectedly a dark arts master appeared in the room, and he used dark art to make Guido and myself dizzy......."
+
+Then, as the second guard began breathlessly panting, the first one continued the story.
+
+"We got poisoned by the monster, and couldn’t move anymore. The arts master took Lisetta from the bed, and rode the monster out the window...... I saw it with my own eyes..."
+
+"………… I… see……"
+
+Isukan nodded to their words creaking his teeth.
+
+At the right side of the room, there was a bed for two people at the wall and a small baby bed behind it. Most likely Lisetta spent the day in bright sunshine of the kids’ room and in the night she slept with her parents.
+
+Cute little baby, only three months old, was kidnapped. Unsure how to act in those terrible circumstances, Ronye was just standing still, when Scheta and Kirito came into the room from the terrace behind the destroyed window.
+
+"...... I couldn’t find them."
+
+Scheta said this loudly, and Kirito gently shook his head.
+
+"I could not perceive them either......."
+
+Still in a bad mood, he glanced at the two guards laing down on the floor. He raised the right hand and generated elements just like previously in the treasury. But this time it was not cryogenic but white sparkling luminous elements. There were about a dozen, they divided further into and flew to the guards’ bodies.
+
+A warm glow wrapped the two of them, and most of the black liquid that had accumulated on the floor disappeared as if it was evaporated by the light. The guards strangely shook their bodies and took a deep breath, then abruptly stood up and drew their heads down towards Scheta and Isukan.
+
+"Commander, authorized ambassador, we could not fulfill our responsibilities and there’s no excuse for this!"
+
+"As long as they kidnapped Lisetta whom we should have protected at all costs, with our lives we..."
+
+Isukan in response to these words strongly shook the guards' shoulders.
+
+"This won’t return Lisetta. Better lend me your strength to regain my daughter."
+
+Even though his heart was probably shattered, the fist fighter said so with suppressed voice, and two of them stood straight again.
+
+"First of all, we need to hear, what was the appearance of dark arts master that has broken in here. Have you saw that person's face? Heard his voice?"
+
+"Well…"
+
+The first to answer was a tall guard who would be named Guido.
+
+"A deep black draped hood covered his face, it was invisible....... The voice was either of a man or of a woman, wasn’t clear..."
+
+"I see……"
+
+When Isukan bit his lips, Kirito opened his mouth instead.
+
+"How long did it pass since the arts master fled outside the window and until we entered the room?"
+
+The question was answered by a wide Gaiol.
+
+"Three...... no, at best it was two minutes......"
+
+"Two minutes...?"
+
+Kirito with a doubtful face turned his eyes towards the night sky outside the window. Scheta also knitted eyebrows, muttering.
+
+"He got on a wounded minion and disappeared in just two minutes...?"
+
+_According to lectures by librarians of the large library, minions' flight speed is about the same as people run. We are at a height of 500 mils, it seems impossible to completely disappear in just two minutes in any direction, but if the opponent is a highly-ranked dark arts master, a hiding technique or something alike may be used._ However, if Kirito and Scheta weren’t able to find them, Ronye wouldn’t be either.
+
+Being helpless, Ronnie crossed the floor and approached the baby’s bed.
+
+The bed shaped like a box was, of course, empty, except for pretty pacifiers and stuffed bear and dragon toys left behind; she was suddenly attacked by a feeling that her heart is being torn apart.
+
+She deflected her eyes, and that moment.
+
+Noticing that something strange fell on the stuffed dragon's figure, Ronye reached out her hand.
+
+It was a parchment rounded and fastened with a red string. Anyway you look, it was not a baby's toy.
+
+"Here...... In bed, there is......."
+
+While saying that, she wanted to pick the parchment, but the one who did it was Isukan moving at the speed of a lightning bolt.
+
+He easily cut a string that looked quite strong with fingertips and spread it. The left eye of Isukan opened wide, then he let a crooked groan from his throat, staggered and crushed on the bed.
+
+From his hand, Scheta took the parchment next. The expression of astonishment also spread over the face of the knight, and after gently biting her lips, she handed it over to Kirito.
+
+Standing beside Kirito who received the message, Ronye ran her eyes over the black characters.
+
+【By the sunset of the 21st day of the 2nd month, publicly execute the Prime Swordsman of the Human World Union Council at the Great Stadium due to the attempted assassination of the Dark Army General Commander, and send back the head to Human World. When that is not done, the head of the innocent baby will be delivered to Obsidia castle】
 
 ### To be continued...
 
-<!--## Footnotes:-->
+## Footnotes:
 
-<!--1. <a name="Prim1"></a>--> 
+1. <a name="Prim1"></a>足運び, characteristic way of moving, keeping the center of gravity low .
 <!--2. <a name="Prim2"></a>-->
 <!--3. <a name="Prim3"></a>-->
 <!--4. <a name="Prim4"></a>-->
