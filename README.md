@@ -1,6 +1,6 @@
 # Sao 19 Translation
-## Contains English (cleaned out machine) and Russian translation of Sword Art Online, volume 19 (Moon Cradle)
-## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 19 (Лунная Колыбель) 
+## Contains English (cleaned out machine) and Russian translation of Sword Art Online, volume 19 (Moon Cradle, part 1)
+## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 19 (Лунная Колыбель, часть 1) 
 
 Warning: I almost don't know Japanese (only Chinese a little), so translation is done through Google Translate. Unlike for Volume 18 (translation of which involved OCR), I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
