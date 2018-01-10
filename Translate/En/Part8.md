@@ -259,12 +259,129 @@ Standing beside Kirito who received the message, Ronye ran her eyes over the bla
 
 【By the sunset of the 21st day of the 2nd month, publicly execute the Prime Swordsman of the Human World Union Council at the Great Stadium due to the attempted assassination of the Dark Army General Commander, and send back the head to Human World. When that is not done, the head of the innocent baby will be delivered to Obsidia castle】
 
-### To be continued...
+"............ Tha-t-t is............"
+
+Leaking such words, Ronye shook her head several times. Today is the 21st day, just like it said. There was only about 13 or 14 more hours until the sunset which was set as the execution time limit.
+
+At first, she thought that Isukan and Scheta could not do such a thing.
+
+But quickly she understood that it was the life of the daughter of the two that was the price. Was there anything more important for the couple at that time?
+
+Ronye’s left hand slowly moved and touched the left hip. But there was no sword. It remained in the bedroom, just like Kirito’s one.
+
+Besides, even if they had swords...... If there’s a chance that Isukan obeys the threatening of the kidnappers, then what, fight with those two? And if Kirito and Ronye escape, Lisetta will die.
+
+_I definitely do not want to forsake that innocent baby. However, it cannot excuse me from fulfilling my role of Kirito’s escort. No way._
+
+Ronye stood, caught in a conflict tearing her apart that she could never imagine before. She tried to see the face of Kirito still holding the parchment, but couldn’t even move her neck.
+
+"That...... Your Excellency..."
+
+One of the guards standing side by side with his colleague by the wall said this in a faint voice. They surely wondered about the content of parchment, but Isukan lifted his gaze and pointed to the door with his right hand.
+
+"Guido, Gaiol, go out in the hall, do not let anyone inside."
+
+"Yes…"
+
+Saluting the Dark Territory army commander, two guards headed to the door. However, Gaiol stopped his legs and turned around.
+
+"There’s… one more thing......"
+
+When four people gazed him quickly, the guard kept shrinking his short neck more and more.
+
+"It's not a big deal... but as soon as the dark arts master and the monster left through the window, I felt like I heard some strange sound."
+
+"Sound... what kind of sound?"
+
+To Scheta's question, Gaiol answered after opening and closing the mouth several times as if searching for words.
+
+"It’s like a turning of stone mill drums, kind of “**gorigori**”..."
+
+"Stone mill drums...?"
+
+It seemed that even Isukan familiar with this castle could find nothing to think about. Gaiol saluted again and closed the door behind himself.
+
+In the bedroom filled with a heavy silence, the voice of Kirito sounded soon.
+
+"....... I’m so sorry, Isukan, Scheta-san. It is my responsibility that Lisetta was kidnapped..."
+
+"...What are you talking about, do not blame yourself?"
+
+He was in such a condition that even standing up was hard, and Isukan set down on the bed again, but still denied Kirito’s words.
+
+"The problem is, in addition to dizzy guards of Lisa, it's me who has been dazzled. Th demon... minion of the dark arts master is supposed to be unable to fly until this height, or at least so I thought. Only the dragons of the Dark Knights Order can fly to this point, but they are prohibited from coming anywhere other than the departure and arrival platform at the back of the castle. So, I was convinced that there were no dangers coming in through the window..."
+
+Both hands firmly gripped knees, and creaking added to the groaning. Scheta came to her husband and placed her slender hand on his.
+
+"But after all, I guess I provoked this situation."
+
+Kirito said again with a threatening letter in his right hand.
+
+"Ronye realized the possibility that the murder in Human World is a trap for make me go to Obsidia. But I decided that if I move to Obsidia in a day, no conspiracy could catch up with me. However, the guys who kidnapped Lisetta are good ones... they have a group in both Human World and Dark Territory and they have a means to contact each other faster than with machine dragon."
+
+"Machine... dragon? You used it to be able to move from Centoria to Obsidia in a day?<sup><a href="#Prim2">2</a></sup>"
+
+Kirito nodded to Scheta’s question.
+
+"Yes...... I will show it to you properly later. But now it's about Lisetta..."
+
+He turned his eyes to parchment and continued with a lower voice.
+
+"......Their goal is probably to make Human World and Dark Territory hostile again, and if you ignore, they will surely carry out their threat. I will do my best to find Lisetta from now on, but...... if I fail to return her, I should be......."
+
+"Shut up!!"
+
+Isukan sharply cut Kirito’s words when he was going to say “executed”.
+
+Ronye was aware that Kirito and Asuna moved from the real world to Underworld.
+
+_They are lying in something called "estiel" that exists in the real world, and they said that only the soul is moved to Underworld. Therefore, even if the whole life is lost in Underworld, the two will not die. It is expected that the soul returns to the real world and they wake up there.  
+Now Kirito is thinking about that. However, once they come back to the real world, they probably won’t be able to return to Underworld anymore —_ and they both said that. For Ronye it was synonymous with Kirito’s death. Of course, same went for all the people who have met Kirito and spent some time together. _…Human World... No, the entire Underworld still needs him._
+
+She could not put all the fears and thoughts swirling like a storm into words, but Ronye just came closer to Kirito and firmly grasped the hem of the black shirt.
+
+Scheta, who noticed the gesture, relaxed her mouth a little. She nodded to Ronye as if she could feel slightly relieved and said in a low voice.
+
+"First, I will go to the dark arts masters’ guild headquarters in the northern district to get the information. First of all, the who broke into this room is surely a stray master who does not belong to the current guild, but if minion was improved, I might be able to trace from that fact."
+
+"I understood... that, I will go with you. If Scheta is alone there, the arts masters may try to mislead."
+
+Isukan abruptly stood up and lifted the silver ring from the table by the bed and put it on the forehead. Scheta also began to change from her pajamas so Ronye hurriedly adverted her gaze away.
+
+Speaking of Kirito, he turned towards the broken window. He seemed to rubbing his lips a little, thinking of something, but as soon as the couple finished changing clothes, he turned around and said.
+
+"Is there any possibility that the arts master and minion who kidnapped Lisetta returned to the castle through another floor?"
+
+Isukan frowned and mumbled in a disturbed tone.
+
+"Um...... At this time all the windows should be locked, so if they broke in from outside the guards on each floor would have noticed. But...... if there was a stranger in the castle, he might have opened the window from inside..."
+
+Scheta nodded and added in a crisp tone.
+
+"Make all the guards search all over the castle."
+
+"Can me and Ronye help with that?"
+
+When Kirito offered, Isukan nodded without hesitation.
+
+"I beg you, I need your power when the minion comes out. Here, take this."
+
+He opened a small drawer in the top of a table, took out a silver necklace and passed it. When Kirito received with one hand, he put the thumb of the right hand to the silver ring of his forehead.
+
+"This is a testimony of the army commander assistant. Show it and give my name, this will open most of the closed doors."
+
+"I understand, thank you."
+
+When Kirito hung the chain with a coat of arms engraved on a silver plate on his neck, Isukan came up to him and strongly grasped the shoulders of Prime Swordsman.
+
+"──── relying."
+
+With this short word, he quickly left the room together with Scheta. When the door opened and closed, as if waiting for it, the 4 o'clock morning bells quietly rang.
 
 ## Footnotes:
 
 1. <a name="Prim1"></a>足運び, characteristic way of moving, keeping the center of gravity low .
-<!--2. <a name="Prim2"></a>-->
+2. <a name="Prim2"></a>I was under impression they discussed it… Given that one of the color illustrations contains the dialog not existing in the book, probably we can speculate that the segment where they talk by the window in part 7 was heavily rewritten or edited in the last moment.
 <!--3. <a name="Prim3"></a>-->
 <!--4. <a name="Prim4"></a>-->
 <!--5. <a name="Prim5"></a>-->
