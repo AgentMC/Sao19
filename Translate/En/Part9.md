@@ -1,7 +1,5 @@
 # Part 9
 
-<!--<sup><a href="#Prim1">1</a></sup>-->
-
 Kirito and Ronye returned to their apartment, changed from sleeping to regular clothes, equipped swords and began searching first from the forty-ninth floor.
 
 However, they did not open the doors of all the rooms. Kirito has a mighty mind power to find the location of Scheta from the other side of the river, because he could sense the presence of humans and monsters through doors and walls, it was sufficient just to concentrate on the center of each floor for a while.
@@ -189,11 +187,257 @@ Even though it was only one more floor, going up the stairs felt longer than fro
 
 Isukan, who slowly walked down a short corridor in front of the big door, touched the gray chain with his right hand, and moaned "cold" and pulled it back. But then he reached out again and held the chain tightly this time. He dropped it down and pulled with all his might, but the chain did not move, even a faint metal sound didn’t echo.
 
+"...... After all, I cannot break the seal......."
 
+He touched the black door with his right hand close to the chain, then put his left hand there as well, then clung to the door with his right ear.
 
-### To be continued...
+"I don’t hear anything...... But, if Lisa is in the castle, she can only be here..."
 
+Fist fighter retreated several steps and slowly lowered his waist, taking the stance of a fist shoot.
 
+A red flame wrapped his clenched right fist. The cold air trembled and shook, so Ronye unconsciously took a few steps back.
+
+And when she thought he was going to destroy the sealing chain with a naked fist...... Kirito made a step ahead.
+
+Walking up without any notion of being pushed back by the incarnation swirling around fist fighter's hand, he put his palm on the left shoulder of the latter.
+
+"I'll do it, Isukan."
+
+"No...... let me do it."
+
+"We’ll need your fists when fighting minions and kidnappers, and I am good at this kind of things."
+
+Hearing the words of Kirito that were calming down his fighting spirit, Isukan deeply breathed several times, then turned back and walked away, saying.
+
+"As usual, leaving the best for yourself, asshole. I understood... go on."
+
+With a bitter smile, he went back and stood by the side of his wife.
+
+Kirito stood in front of the chain in his place, carefully stroking the dully shining chain with the spread ahead right hand. After repeating this exercise several times, he tapped a point in the center part of the chain many times with his index finger.
+
+"Here... it is too small to be seen with one’s eyes, but there is definitely a scratch. Scheta-san, isn’t it?"
+
+Kirito asked the question without turning, and the Integrity Knight firmly nodded.
+
+"Yes, I told you before. Should it have been a Black Lily Sword, I’d cut it through."
+
+"I guess so...... This scratch, I’ll use it."
+
+Kirito nodded and stepped three steps away from the chain, then finally grasped the sword at his left hip.
+
+Looking at the sword pulled out with a sharp, clear sound, Isukan and Scheta faintly sighed.
+
+The sacred treasure-class equipment "Sword of the Night Sky" was not made of metal, rather of a jet black slightly transparent material. It looked a lot like obsidian forming Obsidia castle, but it’s blade radiating clearly felt tremendous weight, was once a branch of the huge cedar tree rising in one of the forests of Norlangarth empire. Master Sadore, currently appointed as a head of engineering in Central Cathedral, polished the branch to become a long sword spending the time of an entire year and six grinding stones; with this sword Kirito had defeated numerous Integrity Knights, banished Chief Elder Chudelkin and the Highest Priest Administrator, and eventually slashed Emperor Vector of the Dark Territory. Indeed, the legendary sword that saved the world.
+
+But probably, no matter how high is sword's priority, it alone cannot cut the sealing chain.
+
+There was no doubt that the chain was given the same "non-destructive attribute" as the exterior wall of Central Cathedral and the Immortal Wall dividing the capital of Centoria into four parts. Even Asuna with her god-like power could move Cathedral's wall but wasn’t able to destroy it.
+
+It was not sword skills or sword priority that could cut the chain, but the miraculous ability to rewrite "the matter of the world" — the power of incarnation.
+
+Kirito went away three more steps, then stretched his left hand forward and pulled the right hand holding the Sword of the Night Sky behind his shoulder. Firmly pressed the floor with both legs spread forward and backward, breathed in heavily, and held it.
+
+Kirito’s body who took a stance not of a traditional school was covered in red light. A tornado-like wind blew up from his feet, and Ronye was almost blown away, but stomped hard and kept on her feet.
+
+Eventually the red light gathered in the sword he held in the right hand and made the jet-black material shine brightly. Newborn vibrating sound of a dry timbre, gradually increasing the volume, eventually became a booming metallic sound reminiscent of the dragon’s roar. The air trembled, obsidian floor and even walls shook a bit.
+
+"Un...Unbelivab...le"
+
+Moaned Isukan.
+
+"This is... Kirito's incarnation..."
+
+Even Scheta leaked a surprised voice.
+
+Suddenly, the appearance of Kirito wearing only simple black trousers and shirt swayed in the raging wind and changed like a mirage ─ and became... The hem of the long black leather coat violently fluttered. The right side of the chest and both shoulders became dully glowed with steel armor.
+
+"**OOOOOO\~**!!"
+
+Kirito kicked the floor with a brief shout.
+
+The sword in his right hand shot out in a straight line carrying all of his will. The roaring sound rose to the limit, and a fine crack ran on both left and right walls.
+
+The distance to the chain was about 5 mel. It was clearly out of the range. However, as though it had extended the sword itself, crimson light formed a solid spear, that pierced through a point in the middle of the sealing chain.
+
+The sound has gone, the light has gone, the wind has gone, the appearance of Kirito returned to his normal look.
+
+In the silence, the sealing chain, without a sound, loosely dropped, divided into two in the middle. A heavy door trembled ── as if the door itself was revived, and a short heavy sound echoed.
+
+Kirito fell on his knees on the floor and Ronye quickly ran to him.
+
+"Senpai!"
+
+She held him under the left arm with both hands and helped to stand up. Scheta and Isukan also ran to them.
+
+"Hey, you OK, Kirito?"
+
+To the voice of Isukan, Kirito lifted the left hand and answered.
+
+"Ah...... I will recover soon. But that’s nothing, the door, quickly...... if the system, I mean, if the matter of the world finds something unusual, the chain may be repaired."
+
+"Yeah!"
+
+Scheta nodded, ran up to the big door and pressed both hands against obsidian panel that covered in sinister carvings. **Gogon**, the door trembled and slightly moved to the inside.
+
+"……opened."
+
+Kirito told Scheta who turned around in a blurred voice.
+
+"Both of you hurry! If a kidnapper is inside, they are already aware that the door was opened... I will follow you soon!"
+
+"**Oooo...oh\~**!"
+
+Isukan nodded and kicked a huge door open with his right foot. The passage continued ahead, but was filled with darkness of a kind different to the place where Ronye stood, and freezing cold air flew out.
+
+But Lisetta’s parents jumped into the passage without hesitation. Few seconds after the backs of two people disappeared in the dark, Kirito straightened, apparently only with his willpower, and looked at Ronye.
+
+"Let’s go as well."
+
+Hiding the concern of Kirito pushing himself to death, she nodded.
+
+"……Yes!"
+
+She also thought that maybe they should get the guards searching downstairs before entering the passage, but as Kirito said, it was a situation when every moment counted. Besides, if the enemy was a high-ranked dark arts master, there is a danger that there will be no help from guards who are swordsmen and less resistant to the dark arts.
+
+What she could do at the very least, was to take out the small bottle of the sacred medicine from the bag on her waist, pull out the stopper and hand it to Kirito. Kirito drunk a bitter-sour taste liquid with a wry face, but said "thank you" leaking a bit of blood back to the bottle. He passed the doorway together with Ronye and they stepped into the dark passage.
+
+It felt as if they passed through a transparent membrane. Hot water heating appeared not to not function here at all, and the whole body was caught in the air so cold that the white vapor was exhaled, but after a while they heard a faint voice that made Ronye forget the coldness and fear.
+
+It was no doubt that the baby cried.
+
+"............!"
+
+They exchanged gazes with Kirito and began running.
+
+The passageway bent to the left ahead. After turning, they saw a second door aside. A crying sound came from behind that open door.
+
+When they jumped in, it was a huge space.
+
+A dark red carpet on the floor. Columns with ugly monsters embossed on both sides. On the wall, a pale light-emitting ore lantern. And in the front, placed in the middle of double-height stage, a luxurious chair. No doubt that it was the throne where Emperor Vector had descended.
+
+Isukan and Scheta stood side by side in the center of the hall. Further, a black monster was stretching out its wings — a minion.
+
+And by the throne, there was someone like a shadow.
+
+Shadow wore a black hooded robe, but the skirt and sleeves of that robe were blurry like smoke and the figure could not be seen clear. It was slim, and quite tall. In the right hand, a dagger shining in a venomous purple, with its tip stretching to a baby held by the left arm.
+
+_The voice of crying Lisetta is so weak. She has been kept for over two hours in this cold, her life would have decreased considerably. I think, I should help immediately, but in this situation I cannot move even a bit._ The anger and irritation also transmitted from the backs of Scheta and Isukan.
+
+Black robe kidnapper, have turned his gaze to Ronye and Kirito from the darkness behind the hood ─ or so it seemed. Immediately afterwards, a strange voice sounded, as if a beast or bird talking human words.
+
+"...Well, so it was the Human World Prime Swordsman who slashed the sealing chain? This person is more troublesome than his reputation..."
+
+From that voice, age and race could not be estimated. However, there was something that can be certainly felt.
+
+"You bastard...... man! You’re not a dark arts master!"
+
+When Isukan shouted, the kidnapper leaked a strange laughter.
+
+"There are men among the Human World clerics, aren’t they? Then, can’t a man be a dark arts master?"
+
+"...No, that poison sword, it has a familiar look......Bastard, you are that dick from the assassins guild!"
+
+"Sword, what about it...... Such a sword, anyone can use it, no? Maybe I’m a fist fighter you threw out of the team......?"
+
+Again, the kidnapper laughed as if mocking, but suddenly gave a cold voice as if the person who was talking changed.
+
+"The talk is over. This way you left no opportunity for public executions, but you can still deliver the head of a Prime Swordsman. Authorized ambassador, your hands are great in slicing, so cut the head of the Prime Swordsman now. Or your daughter won’t live."
+
+His gray right hand protruded from the black robe bringing the dagger close to Lisetta’s face.
+
+The backs of Isukan and Scheta strained as if made of stone.
+
+That moment ──
+
+**Kinn\~**! A sharp sound echoed, and the tip of the poison dagger was thrown away. The whole body of Lisetta was covered with a sphere of white light. The kidnapper almost dropped the baby but immediately caught the ball.
+
+Lisetta did not do anything. But next to Ronye, the right hand of Kirito stretched straight in the direction of the throne emitting light of the same color. He was protecting the baby with an incarnational barrier.
+
+"Scheta! Isukan!"
+
+Kirito cried with a somewhat painful voice.
+
+"I will not keep it for long! Lisetta......!"
+
+**"O\~oyo!!**"
+
+The whole body of Isukan who shouted back was covered with a light resembling a burning flame.
+
+At the same time, a man in a black robe said a strange word. In response, the minion began to move.
+
+"**Bushshaaaaa\~!**"
+
+The roar of the monster was interrupted by the shout of a fist fighter.
+
+"**U-ra-ra-ra-ra────!!**"
+
+Isukan rushed and hit a belly of the minion with a burning fist. The monster's bulky body, bulged from the belly to the limbs and swelled──
+
+And like a leather bag filled with liquid, it exploded with a large amount of dark black blood sprinkled around. Isukan accepted poisonous blood covering his entire body with his arms crossed.
+
+Immediately afterwards, a slim shadow flashed from the back of Isukan. Scheta who avoided the direct hit by poisonous blood rushed to the throne at the speed which made her look like a gray spot.
+
+"............ !!"
+
+With the only sound being the sliced air, she made the sword blur through his right hand.
+
+The right arm of the kidnapper holding a purple dagger was cut off from the shoulder and fell to the floor. Scheta threw her right hand to also cut the left arm that held Lisetta.
+
+── However
+
+Something small showed under the black hood, at the mouth.
+
+Blowing needle.
+
+Scheta quickly pulled up the left hand to stop the needle, but a delicate body immediately began to fall on the ground.
+
+Firmly holding Lisetta protected by the sphere of light, a man in a black robe ran to the left side of the throne trying to slip away.
+
+But there was only a black wall extending there, there was no escape anywhere.
+
+*I won’t let you…….*
+
+A storm of thoughts formed in her head, and in that moment, Ronye pulled out the sword and ran.
+
+On the other side, kidnapper was rushing towards the wall with his black robe flipping. In his chest, a large jewel shined brightly in a red color.
+
+The light of the same color ran through a part of the wall. A square separated from the obsidian wall and lifted resounding...... like an enigmatic stone mill drum, such as heavy rocks rubbing together.
+
+The kidnapper holding Lisetta dashed towards the window that should have not existed.
+
+The distance to the kidnapper was more than 10 mel. With Ronye's leg strength, it is not an option to reach him in a single leap.
+
+*But I’ll get him. I’ll reach.*
+
+"**Yaaaaa────!!**"
+
+Ronye kicked off the floor, squeezing out everything from the bottom of the body.
+
+A right hand brandished the sword. At that moment when the arm and sword melted in a solid move fit into a very precisely determined position and angle, the blade released a dazzling light-blue light.
+
+Ronye's body accelerated as is pushed by an invisible hand. Drawing a pale trajectory in the air in a moment she covered the ten-mel distance in one go.
+
+Aincrad style high speed rush technique, "Sonic Leap".
+
+A secret sword move, which Kirito said to mean in sacred words "jumping with a speed of sound", cut the kidnapper’s left arm from the body.
+
+Shortly after, Kirito's mental barrier disappeared, and Lisetta was thrown into the air.
+
+The man in the black robe who lost both arms, even without stopping his feet and spilling a lot of blood, jumped on him window.
+
+It may have been possible to knock the kidnapper down, should she proceed with further sword skill. But Ronye chose to stop moving and catch the Lisetta.
+
+![Image](/Translate/Img/p253.jpg)
+
+The kidnapper jumped into the window with the head in front. His figure disappeared, melting in the morning light.
+
+At the same time, Ronye firmly caught the body of Lisetta with her left hand and hugged her to her chest. She crouched, put the sword on the floor, and wrapped the crying baby with both arms to warm the child.
+
+"......Lisa-chan, don’t be scared. It’s all right now...... all right now......"
+
+Whispering and softly stroking her cheek, soon she made whining to gradually come down and then a little hand touched Ronnie's arm. On the left side, the sound of the closed window sounded again.
+
+Until someone touched her back, Ronye kept holding the baby hard.
 
 ## Footnotes:
 
