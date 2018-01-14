@@ -529,5 +529,5 @@ And then two humans and one dragon for quite some time looked up at the semicirc
 4. <a name="Prim4"></a>Literally “snow peach”.
 5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
 6. <a name="Prim6"></a>…anymore, see Vol.18
-7. <a name="Prim7"></a>See [here]([https://en.wikipedia.org/wiki/Noblesse_oblige).
+7. <a name="Prim7"></a>See [here](https://en.wikipedia.org/wiki/Noblesse_oblige).
 8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigaki” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigaki”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.

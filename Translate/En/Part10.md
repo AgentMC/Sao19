@@ -64,7 +64,7 @@ Kirito asked so and turned around, Isukan replied with a voice full of disregard
 
 Scheta nodded deeply to his words.
 
-"Yes, I will discuss this with the Knights Order and the Commercial Guild. I will not let such a mess occur in Obsidia anymore. "
+"Yes, I will discuss this with the Knights Order and the Commercial Guild. I will not let such a mess occur in Obsidia anymore."
 
 Kirito leaned forward to Isukan who declared this.
 
@@ -108,7 +108,7 @@ When the flight stabilized, after exhaling a long breath, Kirito in the front se
 
 Shortening her neck, she touched gently the silver guard of the loved sword laid in the gap between the chair and the wall.
 
-"...At that time, it seems that the sword has lent its power. In your shoes I could not jump that distance, absolutely. "
+"...At that time, it seems that the sword has lent its power. In your shoes I could not jump that distance, absolutely."
 
 "W-well... that's a good sword."
 

@@ -125,7 +125,7 @@ In a moment, the minion on the right exploded into countless fragments, the left
 
 The guards cheered behind, and amazed Isukan turned around and said with a smile of admiration.
 
-"You are amazing beyond those rumors, Kirito. I was told, even high-ranked clerics can generate only five elements with one hand, one per finger... "
+"You are amazing beyond those rumors, Kirito. I was told, even high-ranked clerics can generate only five elements with one hand, one per finger..."
 
 "The story will be later, Isukan!"
 
@@ -380,7 +380,7 @@ With this short word, he quickly left the room together with Scheta. When the do
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>足運び, characteristic way of moving, keeping the center of gravity low .
+1. <a name="Prim1"></a>足運び, characteristic way of moving, keeping the center of gravity low.
 2. <a name="Prim2"></a>I was under impression they discussed it… Given that one of the color illustrations contains the dialog not existing in the book, probably we can speculate that the segment where they talk by the window in part 7 was heavily rewritten or edited in the last moment.
 <!--3. <a name="Prim3"></a>-->
 <!--4. <a name="Prim4"></a>-->

@@ -149,7 +149,7 @@ General commander and authorized ambassador inhaled at the same time.
 
 Escrow moved the head awkwardly.
 
-"...... When Vector came down and ten clans of Dark Territory were gathered at that time, I certainly saw a window in the throne hall. But now, looking from the outside, there are only rocks above the 49th floor, no windows.... "
+"...... When Vector came down and ten clans of Dark Territory were gathered at that time, I certainly saw a window in the throne hall. But now, looking from the outside, there are only rocks above the 49th floor, no windows...."
 
 "Well, that’s your answer."
 
@@ -441,7 +441,7 @@ Until someone touched her back, Ronye kept holding the baby hard.
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>#KawaharaMath In vol.18 Kirito has been revived about 1500 to 2000 kilolu to the north of the World End Alter (see illustration). Not only was he able to locate the “huge heterogenous object” at least 1000 kilolu to the south (Alice would reach Alter in \~6 hours if Kirito flies at \~300 km/h, so Subtilizer who is slightly faster than 120 km/h being dragon’s max speed, let’s say, 150 km/h ,would be in about 1100 km from Kirito at the moment of him finishing off Vasago), but also to fly these 1500 to 2000 kilolu with Asuna in hands over even less productive area than “normal” Dark Territory where he can “fly in a stable manner” for 10 kilolu only.
+1. <a name="Prim1"></a>#KawaharaMath In vol.18 Kirito has been revived about 1500 to 2000 kilolu to the north of the World End Alter (see illustration). Not only was he able to locate the “huge heterogenous object” at least 1000 kilolu to the south (Alice would reach Alter in \~6 hours if Kirito flies at \~300 km/h, so Subtilizer who is slightly faster than 120 km/h being dragon’s max speed, let’s say, 150 km/h, would be in about 1100 km from Kirito at the moment of him finishing off Vasago), but also to fly these 1500 to 2000 kilolu with Asuna in hands (and 3 super-high-priority swords!) over even less productive area than “normal” Dark Territory where he can “fly in a stable manner” for 10 kilolu only.
 2. <a name="Prim2"></a>#KawaharaMath Nope, it could, remember, 120 km/h max?
 <!--3. <a name="Prim3"></a>-->
 <!--4. <a name="Prim4"></a>-->

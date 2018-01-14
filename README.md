@@ -4,8 +4,7 @@
 
 Warning: I almost don't know Japanese (only Chinese a little), so translation is done through Google Translate. Unlike for Volume 18 (translation of which involved OCR), I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
-Overall progress: `#################################################> 99.26%`  
-ETA: 14 Jan 2018
+Overall progress: done, 14 Jan 2018.
 
 - [Initial illustrations](Translate/En/Ills_start.md)
 - [Intro](Translate/En/Intro.md)
@@ -19,11 +18,12 @@ ETA: 14 Jan 2018
 - [Part 8](Translate/En/Part8.md)
 - [Part 9](Translate/En/Part9.md)
 - [Part 10](Translate/En/Part10.md)
+- [Afterword](Translate/En/AW.md)
 
 Внимание: я японского почти совсем не знаю (только немного говорю на китайском), так что перевод выполняется с помощью Гугл Переводчика. С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 80% соответствия оригиналу и 90% соответствия фанатскому анлейту... ну, когда он появится) — то пожалуйста кидайте пулреквесты.
 
 Прогресс: `##>------------------------------------------------ 5.81%`  
-Состояние: заморожен до перевода английского текста.
+Состояние: перевод скоро начнётся.
 
 Содержание:
 

@@ -98,7 +98,7 @@ Shouting so, he pulled Ronye's hand, and they went along the left bank of the ri
 
 Kirito stopped at a place where the river got a little wider, put two bags on the ground and looked up again at Obsidia castle.
 
-Obsidian-black rocky mountain looked like a tower rather than a mountain because its base was about 300 mel in diameter, while its height was more than three times that. Most of the side facing the town was presented as a castle, with magnificent columns and large windows glittering in the morning sun, but the back side was almost a rocky mountain, only a large terrace was hanging high above which was probably the dragon departure ground.
+Obsidian-black rocky mountain looked like a tower rather than a mountain because its base was about 300 mel in diameter, while its height was about two times that. Most of the side facing the town was presented as a castle, with magnificent columns and large windows glittering in the morning sun, but the back side was almost a rocky mountain, only a large terrace was hanging high above which was probably the dragon departure ground.
 
 Unexpectedly Kirito lifted his right hand and drew it straight towards the top of the castle. Moved five stretched fingers as if looking for something small.
 
@@ -116,7 +116,7 @@ _Kirito did not cast any sacred art. So, this is a secret mystery of Integrity K
 
 With a short shout, Kirito swept his right hand with tremendous momentum.
 
-A white light flickered as if it was one of knight Renri's “Twin Edged Wings” and instantly flew a distance of over 1 kilometer, hitting the handrail of a small terrace near the top of Obsidia castle. Ronye's trained eyes clearly recognized that a small obsidian fragment spilled from the handrail struck by the blade.
+A white light flickered as if it was one of knight Renri's “Twin Edged Wings” and instantly flew a distance of half a kilolu, hitting the handrail of a small terrace near the top of Obsidia castle. Ronye's trained eyes clearly recognized that a small obsidian fragment spilled from the handrail struck by the blade.
 
 "What a......., se-se-se-se-se-senpai, what are you doing?! You scratched the castle!"
 
@@ -570,7 +570,7 @@ When Ronye responded with a clear voice, Kirito and Isukan sitting in front look
 
 Eventually the carriage passed through the city area and returned to the Obsidia Castle in the normal way of passing through the gates across the bridge.
 
-Although Obsidia Castle with its height of 500 mel<sup><a href="#Prim7">7</a></sup> and fifty floors was only slightly below the Central Cathedral, there was no automatic elevator as in Cathedral. In other words, it is only a matter of going up the stairs to reach to the upper level, which was also a countermeasure against the raiders.
+Although Obsidia Castle with its height of 500 mel and fifty floors was only slightly below the Central Cathedral, there was no automatic elevator as in Cathedral. In other words, it is only a matter of going up the stairs to reach to the upper level, which was also a countermeasure against the raiders.
 
 To the 49th floor where the Isukan lived, four people climbed up without a single stop. The couple and Kirito did not seem to lost breathe, but Ronye said after having several “**\~ha…\~ha…**” after arrival, that even in such a place she realizes the lack of training.
 
@@ -598,13 +598,13 @@ Listening to the fist fighter explanation, when he said “it cannot be sliced�
 
 "I borrowed a sword from the treasury and tried it, but the chain could not be sliced. If it was a Black Lily Sword I could probably slice it though."
 
-"...... Bad luck<sup><a href="#Prim8">8</a></sup>............"
+"...... Bad luck<sup><a href="#Prim7">7</a></sup>............"
 
 Ronye who felt that "I want to challenge it with the Sword of the Night Sky!" said with the voice of Kirito will be the next phrase to sound, quickly pulled his right sleeve twice. It seems that Kirito also felt Ronye's "Absolutely unacceptable!", and after he looked up at the stairs once, he nodded again.
 
 "Okay, then I’d say the tour is over."
 
-"Sort of, this dinner some rare mon<sup><a href="#Prim9">9</a></sup> will be cooked so I have high expectations."
+"Sort of, this dinner some rare things<sup><a href="#Prim8">8</a></sup> will be cooked so I have high expectations."
 
 "Looking forward to it."
 
@@ -626,7 +626,5 @@ Kirito, who waved his hands to the parents, immediately looked up the stairs to 
 4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “miruku” (ミルク). The explanation for this will be given below.
 5. <a name="Prim5"></a>It is ”katen” (カーテン) and “teburu” (テーブル) respectfully.
 6. <a name="Prim6"></a>Originally: 無音 (no-sound; silent) and 無手 (no-arm; empty-handed).
-7. <a name="Prim7"></a>#KawaharaMath yep, the diameter is 300, the height is twice (I thought it’s a typo and “corrected” it to “more than 3 times”, but I’ll leave it that way, it at least makes sense there) the diameter, Kirito’s “pebble” flew more than a kilolu (to a non-top floor), and this all means that the height of the castle is 500 mel.
-8. <a name="Prim8"></a>This sounds “fūn” in Japanese, so Kirito might as well say sacred word _fun_.
-9. <a name="Prim9"></a>モン, no idea what this is, may be with the ending of the previous word this should be read as shi-mon, being some sort of Underworld salmon, but I couldn’t find any proofs.
-<!--10. <a name="Prim10"></a>-->
+7. <a name="Prim7"></a>This sounds “fūn” in Japanese, so Kirito might as well say sacred word _fun_.
+9. <a name="Prim8"></a>(this footnote was altered post the chapter had been translated) モン, "thing" is a specific of Isukan's speech. He uses it to refer to dishes, people, artifacts and even events.
