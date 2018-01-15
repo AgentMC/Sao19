@@ -29,14 +29,14 @@ Overall progress: done, 14 Jan 2018.
 
 - [Начальные иллюстрации](Translate/Ru/Ills_start.md)
 - [Вступление](Translate/Ru/Intro.md)
-- [Часть 1](Translate/Ru/Part1.md) (0.00%)
-<!--- [Часть 2](Translate/Ru/Part2.md)  -->
-<!--- [Часть 3](Translate/Ru/Part3.md)  -->
-<!--- [Часть 4](Translate/Ru/Part4.md)  -->
-<!--- [Часть 5](Translate/Ru/Part5.md)  -->
-<!--- [Часть 6](Translate/Ru/Part6.md)  -->
-<!--- [Часть 7](Translate/Ru/Part7.md)  -->
-<!--- [Часть 8](Translate/Ru/Part8.md)  -->
-<!--- [Часть 9](Translate/Ru/Part9.md)  -->
-<!--- [Часть 10](Translate/Ru/Part10.md)-->
-<!--- [Послесловие](Translate/Ru/AW.md) -->
+<!--- [Часть 1](Translate/Ru/Part1.md) (0.00%) -->
+<!-- [Часть 2](Translate/Ru/Part2.md)  -->
+<!-- [Часть 3](Translate/Ru/Part3.md)  -->
+<!-- [Часть 4](Translate/Ru/Part4.md)  -->
+<!-- [Часть 5](Translate/Ru/Part5.md)  -->
+<!-- [Часть 6](Translate/Ru/Part6.md)  -->
+<!-- [Часть 7](Translate/Ru/Part7.md)  -->
+<!-- [Часть 8](Translate/Ru/Part8.md)  -->
+<!-- [Часть 9](Translate/Ru/Part9.md)  -->
+<!-- [Часть 10](Translate/Ru/Part10.md)-->
+<!-- [Послесловие](Translate/Ru/AW.md) -->
