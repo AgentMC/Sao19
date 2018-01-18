@@ -176,7 +176,7 @@ Scheta Synthesis Twelve.
 
 Among current integrity knights, she was a senior knight following Fanatio and Dusolbert in the hierarchy, and her sword power was so strong that rumors lined her up with the former headmaster Bercouli Synthesis One.
 
-They said there is nothing that cannot be cut by her sacred treasure "Black Lily Sword" given by the Highest Priest, and in a Foreign World War, first she countered the main force of fist fighters, and then bravely<sup><a href="#Prim2">2</a></sup> fought a fierce battle against the large army of red knights.
+They said there is nothing that cannot be cut by her divine object "Black Lily Sword" given by the Highest Priest, and in a Foreign World War, first she countered the main force of fist fighters, and then bravely<sup><a href="#Prim2">2</a></sup> fought a fierce battle against the large army of red knights.
 
 However, by the end of the battle, she left Central Cathedral and stayed at Obsidia castle as a full authority representative for the Human World Union Council.
 
@@ -220,7 +220,7 @@ Ronye who desperately denied it, saw a small smile appearing on Scheta’s pale 
 
 "It might have been a long and hard trip, Ronye. You better take a break at the castle."
 
-She signaled with her right hand, and Yoiyobi laid down. There was no saddle, but thanks to that, all three of them could get on packed together. With Ronye in front, Kirito behind, and Scheta in the middle they rode the dragon which easily took off after running a bit on the riverbank, not frightened at all by the weight of the two of sacred treasure class long swords and three human beings.
+She signaled with her right hand, and Yoiyobi laid down. There was no saddle, but thanks to that, all three of them could get on packed together. With Ronye in front, Kirito behind, and Scheta in the middle they rode the dragon which easily took off after running a bit on the riverbank, not frightened at all by the weight of the two of divine object-class long swords and three human beings.
 
 Powerfully flapping wings, it quickly raised, aiming at the upper part of Obsidia castle. The guards noticed them, but it was known that it was a dragon of full authority ambassador, so there was no appearance of a fuss.
 
@@ -384,7 +384,7 @@ Isukan sighed and Kirito nodded with a sad face, so Ronnie blinked and asked.
 
 "Sorry, that parent skull ...what is it?"
 
-"Oh, I learned about it when the war ended. There is a sacred treasure used by the emperor Vector to give orders to ten armies at the time of a Foreign World War. One big parent skull and ten smaller children skulls in one set; when you talk to parent skull, that voice would reach instantly to child skulls at a remote place."
+"Oh, I learned about it when the war ended. There is a divine object used by the emperor Vector to give orders to ten armies at the time of a Foreign World War. One big parent skull and ten smaller children skulls in one set; when you talk to parent skull, that voice would reach instantly to child skulls at a remote place."
 
 She instinctively rounded eyes hearing the description from Kirito.
 
@@ -528,7 +528,7 @@ Kirito and Ronye who borrowed a personal bathtub of Scheta and Isukan and washed
 
 It seemed that the two sudden visitors were made known inside the castle as couriers from Human World.
 
-Because it was hidden that Kirito was the Human World Prime Swordsman himself, the guards were looking suspiciously at the light clothing that would not be normal for a messenger, but they changed attitude after noticing swords hanging from the waists of the two people. After all, in Dark Territory, weapons of the Sacred Treasure class seem to be rarer than in Human World.
+Because it was hidden that Kirito was the Human World Prime Swordsman himself, the guards were looking suspiciously at the light clothing that would not be normal for a messenger, but they changed attitude after noticing swords hanging from the waists of the two people. After all, in Dark Territory, weapons of the divine object-class seem to be rarer than in Human World.
 
 They did a short break in this two-rooms apartment, then had lunch with the couple of Isukan and Scheta at noon. In the afternoon they were taken by a horse-drawn carriage to see the Dark Knights Order Headquarters and the training center of the Fist Fighter group in the center of the city; Kirito seemed to be able to really make a game with the fist fighter headmaster assistant called one-handed giant, but "Because we’re incognito!" made an appearance of fighting for his life and avoiding his blows in the last moment.
 
@@ -546,7 +546,7 @@ The knight nodded and narrowed both eyes as if remembering something nostalgic f
 
 "............"
 
-Ronye still could not infer the way of how the Integrity Knight could lose the beloved sacred treasure. Scheta faintly smiled slightly touching with her fingertips the hands of Ronye, who was in the loss of words.
+Ronye still could not infer the way of how the Integrity Knight could lose the beloved divine object. Scheta faintly smiled slightly touching with her fingertips the hands of Ronye, who was in the loss of words.
 
 "I am now not a "silent" but rather "unarmed" knight<sup><a href="#Prim6">6</a></sup>. But I am pleased with what I have accomplished....... Sometimes, I remember my Black Lily, and then I feel lonely."
 
