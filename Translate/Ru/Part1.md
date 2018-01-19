@@ -1,159 +1,161 @@
-# Part 1
+# Часть 1
 
-"Ronye, over here!"
+"Ронье, сюда!"
 
-Standing on tip toes and looking at the direction from where the voice came, she saw the burning red hair swaying across the crowd.
+Встав на цыпочки и посмотрев в направлении, откуда пришёл голос, та увидела ярко выделяющиеся в толпе колыхавшиеся огненно-рыжие волосы.
 
-She was muttering apologizes “I am sorry, I am sorry” to Central Cathedral's clerics and staff members while pushing her way through. Several people turned around, somewhat frustrated, but after noticing Tsukigaki following Ronye, gave the way.
+Бормоча извинения “Простите, извиняюсь” она проложила себе дорогу сквозь клериков и персонал Центрального Собора. Несколько людей с недовольными лицами обернулись к ней, но, увидев следующего за Ронье Цукигаки, без лишних слов дали дорогу.
 
-Somehow Ronye made it to the front row and breathed a deep breath.
+Кое-как добравшись до переднего ряда, Ронье глубоко вздохнула.
 
-"Hey, finally, it starts already!"
+"Ну наконец-то, они начинают уже!"
 
-The redhead girl inflating cheeks was the best friend of Ronye, who turned and apologized.
+Недовольно надувшая щёки рыжеволосая девушка была лучшей подругой Ронье, которая в ответ, обернувшись, извинилась.
 
-"I'm sorry, I got lost as to what to wear ......"
+"Прости, никак не могла выбрать что одеть......"
 
-"Got… lost, but in the end, stayed with your usual appearance"
+"Выбрать… не могла, а в итоге выглядишь как всегда."
 
-The name of a surprised girl was Tiese Shtolienen. She was in the same status of Integrity Knight apprentice as Ronye. Autumn-colored eyes similar to her hair were shining vividly, her slim body was wrapped in cute patterned jacket and indigo skirt. She had lowered the red leather sheath on the waist, it even seems to be a sort of jewelry fitted with clothes.
+Удивлённую девушку звали Тейза Шутлинен. Она, как и Ронье, имела звание ученика Рыцаря Целостности. Её глаза цвета осенних листьев, по оттенку близкие к волосам, ярко сияли, её стройная фигура дополнялась курткой с милым узором и юбкой цвета индиго. Висящие на поясе ножны из красной кожи она приспустила, так что казалось это был аксессуар, дополнявший её облик.
 
-_I should have brought the Southern Empire shawl I bought last week_, regretted the other one moving her gaze away, noticing Shimosaki<sup><a href="#Prim1">1</a></sup>, the young dragon she was raising, rubbing against Tsukigaki’s nose, and a young man wearing a gentle smile behind Tiese.
+_Эх, нужно было притащить ту шаль сделанную в Южной Империи, что я купила на прошлой неделе_, с сожалением подумала другая, и отведя взгляд, заметила Шимосаки<sup><a href="#Prim1">1</a></sup>, молодого дракона, что та растила, трущегося об нос Цукигаки, а также молодого человека, мягко улыбавшегося рядом с Тейзой.
 
-He was looking more like a boy than a young man, but the in addition to heavy long sword he was equipped with two crossed knives bent in the middle. Priority which is given to the sword was also considerable, but the one of throwing blades was simply outrageous. That weapon that looks thin like paper was nothing else than a "sacred treasure" class weapon.
+Хоть он и был на вид скорее мальчишка, а не молодой мужчина, но в дополнение к тяжёлому длинному мечу его экипировку составляли два скрещенных, изогнутых в середине ножа. Приоритет, которым обладал меч, и так был значительным, но вот у метательных ножей он был просто огромен. Эти клинки, напоминавшие тонкую бумагу, были ничем иным как оружием класса "божественный инструмент".
 
-Ronye lifted the right fist, moved an arm horizontally and hit the chest, and placed the left hand on the handle of the sword greeting the young man with the formal knight bow.
+Ронье подняла правый кулак, двинула им горизонтально и ударила себя в грудь, а левую руку положила на рукоять меча, приветствуя молодого человека официальным рыцарским поклоном.
 
-"Good morning, Renri-sama<sup><a href="#Prim2">2</a></sup>"
+"Доброе утро, Ренри-сама<sup><a href="#Prim2">2</a></sup>."
 
-Integrity Knight Renri Synthesis Twenty-Seven answered to that with a wry smile from the other side of the dragons.
+Рыцарь целостности Ренри Синтезис Твенти-Севен ответил на это, криво усмехнувшись по другую сторону от драконов.
 
-"Good morning, Ronye-san ...... You do not have to worry about fight so much, as today it's a long-awaited fest."
+"Доброе утро, Ронье-сан...... Не всегда нужно беспокоиться о готовности к бою, особенно сегодня, в долгожданный праздник."
 
-"Fest... What fest is it?"
+"Праздник... А какой сегодня праздник?"
 
-She tilted her head unconsciously.
+Она неосознанно наклонила голову.
 
-_Today ── it is the seventeenth February, three hundred and eighty-second year according to the Human World calendar, just a regular weekday.  
-Also, neither in the "Human World Fundamental Law" issued last year, nor in the “Taboo Index” being actively revised, there is not a single line instructing to celebrate this day._
+_Сегодня ── семнадцатое февраля триста восемьдесят второго года по календарю Мира Людей, обычный рабочий день.  
+А ещё, ни в "Фундаментальном законе Мира Людей", выпущенном в прошлом году, ни в активно пересматриваемом “Индексе Табу”, нет ни одной строчки, предписывающей праздновать этот день._
 
-However, looking around, the vast Central Cathedral front square was crowded with as many onlookers as the total count of it’s staff. Everyone seemed to have a terrible trouble trying to get drinks and snacks.
+Однако, огланувшись, она увидела, что обширная площадь перед Центральным Собором была битком набита зеваками, в количестве не менее чем весь его персонал. И похоже, каждый старался раздобыть напитки и закуски.
 
-Furthermore, the front gate of Cathedral which is usually closed tightly seemed to be open to citizens of the central capital today. Two improvised standing areas provided on the left and right of the main gate inside, were crowded with the number of onlookers which could easily surpass a thousand.
+Более того, обычно плотно закрытые главные ворота Собора сегодня были открыты для граждан центральной столицы. Так что две импровизированные стоячие зрительские зоны слева и справа от центральных ворот на территории Собора были заполнены множеством зрителей, возможно, их число превосходило тысячу.
 
-"... Well, can’t name this anything but a festival. Can’t help it, senpai...... When Prime Swordsman does something, it definitely looks like this"
+"... Ну а как это ещё назвать, если не праздником? Тут уж не попишешь, когда сенпай...... то есть Премьер-Мечник что-то затевает, всё вот так обычно и выглядит."
 
-Ronye also nodded to the words that Tiese spoken with embarrassed face.
+Ронье кивнула, соглашаясь со словами, которые Тейза произнесла со смущённым лицом
 
-"Well, I guess.... Let’s hope he won’t destroy Cathedral today"
+"Ну, полагаю.... будем надеяться, что сегодня он этой штукой Собор не разрушит."
 
-On the other side of the crowd, where three people gathered their line of sight ──
+Напротив толпы, там, куда в тот момент смотрела эта троица ──
 
-As they say, the words could not describe it.
+Смотря на это, кто-нибудь мог сказать, что у него просто нет слов.
 
-The strange sound echoed from the space in the middle of the front square, a separated area of about one hundred square mel, and on a pure white stone floor, a “metal dragon statue” appeared.
+Странный звук раздавался из центральной части передней Соборной площади, где в ограждённым квадратном пространстве со стороной примерно в сто мелов, на белокаменном полу, стояла “статуя металлического дракона”.
 
-However, as a proof that it is not just a decoration, the upper part of the sharp head was made of transparent glass. Short wings attached to the left and right sides of the trunk were flat, and instead of legs, two thick cylinders stretched out from a big swollen back. There was no tail.
+Однако, словно бы доказывая, что это не просто украшение, верхняя часть острой головы была сделана из прозрачного стекла. Короткие плоские крылья были прикреплены по бокам от круглого тела, а вместо ног из раздутого зада торчали два толстых цилиндра. Хвоста не было.
 
-It can be said that it’s total length was about 5 mel, and orange flames were peeking out from the holes above and below the cylinders and in the back, but it’s identity could not be understood at all.
+Навскидку его полная длина была около 5 мелов, из отверстий выше и ниже задних цилиндров вырывалось пламя, но вот что это такое было совершенно непонятно.
 
-_……One thing certain is that it makes me feel badly disgusted._
+_……Понятно тут только одно, что эта штука выглядит жутко отвратительно._
 
-Muttering this deep within her heart, Ronye removed her gaze from a metallic dragon and stared at three people standing nearby.
+Подумав так про себя, Ронье перевела взгляд с металлического дракона на троицу, стоящую рядом с ним.
 
-Then one of them ── a young swordswoman with the long chestnut hair fluttering in the breeze having a fine sword hanging on the left hip on top of a pearl skirt, turned back as if feeling Ronye's gaze. She smiled once and raised a hand as if beckoning her.
+Затем, одна из них — молодая мечница с длинными каштановыми волосами, подрагивающими на лёгком ветерке, и с тонком клинком, висящим на правом бедре поверх жемчужной юбки, — обернулась, будто бы почувствовав взгляд Ронье. Она улыбнулась и подняла руку, подзывая их.
 
-"Hey, come over here"
+"Привет, подходите к нам."
 
-As Tiese got hesitant and stepped back for a moment, Ronye moved forward and soon daringly crossed the yellow barrier rope. Behind her back, of course, followed Tsukigaki.
+Тейза в сомнении отступила на шаг назад, Ронье же пошла вперёд, без страха пересекая жёлтое верёвочное ограждение. За ней, естественно, следовал Цукигаки.
 
-Under focused gaze of numerous spectators gathered, pulling her head in to the limit, she slowly crossed the square. Stopping in front of a swordswoman, she stretched out to the fingertips and returned the knight’s greeting again.
+Под тяжестью взглядов многочисленных собравшихся наблюдателей, до предела втянув голову в плечи, она медленно пересекла площадь. Остановившись перед мечницей, она вытянулась по стойке смирно и повторила рыцарское приветствие.
 
-"Good morning, Vice-Prime Swordsman-sama"
+"Доброе утро, Вице-Премьер-Мечник-сама."
 
-"Good morning, Ronye-san. It looks like we’re celebrating today, so you can make it more comfortable"
+"Утро доброе, Ронье-сан. У наст тут вроде как праздник сегодня, так что можешь расслабиться."
 
-She said that while having a light smile on her face beautiful enough to be disappointing, and Ronye relaxed shoulders and answered.
+Она произнесла это с улыбкой на своём прекрасном до невозможности лице, и Ронье расслабила плечи и сказала.
 
-"...... Yes, Asuna-sama"
+"......Да, Асуна-сама."
 
-"I told you so many times, don’t add that “sama”"
+"Я же много раз просила, не надо это “-сама” добавлять."
 
-She sharpened her lips, but it was hard to accept this.
+Но, хоть она и поджала губы, такую просьбу было сложно принять.
 
-A woman standing before Ronye’s eyes and looking a little older than her — a Vice Prime Swordsman of the Human World Union Council Asuna — was respected by everyone, in a sense, respected more than the Prime Swordsman himself. Because she was believed by all the people of the Human World that to be a reincarnation of "Genesis God Stasia", one of the three goddesses of Genesis mythology.
+Девушка, стоящая перед Ронье и выглядевшая лишь немного старше её самой — Вице-Премьер-Мечник Объединённого Совета Мира Людей Асуна — была уважаема всеми, в каком-то смысле, даже более, чем сам Премьер-Мечник. Ведь все жители Мира Людей безоговорочно верили, что она была реинкарнацией "богини созидания Стасии", одной из трёх богинь из мифа о сотворении мира.
 
-While she continues to deny that she is actually a god, Ronye witnessed a scene where Asuna have created a huge rift in the ground with a sword to cut the inevitable clash with other army. _Once you’ve seen that, you cannot even imagine omitting "sama"._
+И хоть она и продолжала отрицать, что является божеством, Ронье сама видела, как Асуна своим мечом сотворила в земле огромный каньон дабы недопустить неотвратимое столкновение двух армий. _Однажды такое увидев, даже представить сложно, чтобы не добавлять "-сама"._
 
-Even directly ordered 『do not add “sama”』by the higher Knight whom she should be obliged to obey, she swung her purple neck left and right with the firm intention to continue, seeing which Asuna switched the subject with a bitter smile.
+Так что даже пусть 『не добавлять “-сама”』 и было прямым приказом вышестоящего рыцаря, которому следовало безусловно подчиняться, она лишь помотала головой на покрасневшей шее влево-вправо, явно намекая, что не прекратит, на что Асуна лишь с горькой улыбкой сменила тему.
 
-"So, Ronye-san. You are the best in thermal element sacred art, aren’t you?"
+"Так, Ронье-сан. У тебя же лучше всего получается священное искусство с термальными элементами, не так ли?"
 
-"I… yes, I am"
+"Я… да, так и есть."
 
-Feeling awkward, she nodded. Asuna then moved her face close and continued in a low voice.
+Чувствуя некоторую неловкость, она кивнула. Асуна приблизила своё лицо к ней и продолжила, понизив голос.
 
-"Well then, there is a little favor to ask. As we have thermal elements array and you have mutual predisposition to each other, I would like you to teach me how to let them out."
+"Тогда вот что, хочу попросить о небольшой услуге. Поскольку у нас тут массив термальных элементов, а у вас с ними хорошее взаимопонимание, Я бы хотела, чтобы ты рассказала мне, как они будут высвобождаться."
 
-"Eh, oh ......? Is there a thermal element in it?"
+"Э, о......? Так в этой штуке термальные элементы?"
 
-Ronnie could not immediately understand the meaning of words, and she moved her gaze, blinking.
+Ронье не сразу поняла значение слов и, моргнув, перевела взгляд.
 
-She looked up at the highest point of a metal dragon, and then saw two men discussing something beside it.
+Она сперва посмотрела на верхушку металлического дракона, а затем на тех двоих, что что-то обсуждали возле него.
 
-"...... all in all, Kiri-boy, even if you say that the thermal element can is computationally resistant to the heat that one generates, that is because there is sufficient supply of permanent freezing! Grandson is not good at cryogenic element, so if you take any delay during the sacred art, the fully charged element can will blow in a blink of an eye!"
+"......так что, Кири-бой, даже если ты и говоришь, что по расчётам бак термальных элементов устойчив к температурам, что они генерируют, так это только из-за постоянного притока охладителя! А ты, внучок, не особо с криогенными элементами дружишь, так что если хоть не секунду зазеваешься со священным искусством, то полностью заряженный бак термалки разнесёт — глазом не моргнёшь!"
 
-The one proclaiming this loud speech full of unknown words was a man of about fifty years old owning a magnificent beard. That person well-known to Ronye, was a metalworker producing the best armor in the capital city of Centoria named Sadore. For a long time, he used to operate a shop in a downtown, and after a cooperation with the Integrity Knights Order in the "Rebellion of Four Empires", he took office as Central Cathedral's chief engineer.
+Тот, кто громогласно произносил это полную непонятных слов речь, был мужчиной примерно пятидесяти лет, обладавшим шикарной бородой. Ронье хорошо знала этого человека, мастера по металлу по имени Садоре, создававшего лучшую броню в столичном городе Центории. Долгое время он держал магазинчик в центральном районе, а после поддержки ордена Рыцарей Целостности во время "Восстания Четырёх Империй" занял должность главного инженера Центрального Собора.
 
-The one being spoken to by Sadore-shi<sup><a href="#Prim3">3</a></sup>  immediately became totally blushed, like a little kid ──
+Тот, к кому Сдоре-ши<sup><a href="#Prim3">3</a></sup> обращался, немедленно покрасневший, как маленький ребёнок ──
 
-With black hair and black eyes, his appearance was one of a fairly ordinary young man.
+Со своими чёрными волосами и карими глазами, обладал внешностью вполне обычного молодого человека.
 
-He wore long-sleeved jacket and trousers of a strange gray color. There was no weapon on his waist. He combined hands fitted with brown leather gloves behind the head and talked back to old Sadore with a slightly tired face.
+Он был одет в куртку с длинными рукавами и штаны странного серого цвета. На его поясе не было оружия. Сложив на затылке руки в чёрных кожаных перчатках, он заговорил со стариком Садоре с немного раздражённым лицом.
 
-"Hey, hearing this hurts my ear like an insect lurking inside. Old man, I guess it’s time to stop that “Kiri-boy”."
+"Эй, слышать подобное мне больнее насекомого, грызущего мои уши изнутри. Старик, когда ты уже прекратишь это своё “Кири-бой”?"
 
-"Hmph, don’t even hope it. Since that day three years ago, when you brought that hard branch to my shop so I had to completely use six grinding stones of precious black rocks to sharpen him into a sword, I decided to call you my grandson forever."
+"Хмф, и не надейся. С того самого дня три года назад, когда ты принёс в мою лавку ты жёсткую ветку, на которую, чтобы обратить её в меч, я истратил шесть точил из бесценного чёрного камня, я решил, что всегда буду называть тебя внучком."
 
-"...... Mind you, without that sword, this world would be in great trouble..."
+"......А что меч, без того меча этому миру настал бы..."
 
-The complaining young man suddenly turned around and saw Ronye.
+Жалующийся молодой человек внезапно развернулся и увидел Ронье.
 
-Since they met for the first time, he did not change, leaving an impression of a somewhat childish person. As soon as Ronye saw a wide smile on his face, something tightened deep in her chest.
+С того самого дня, как они впервые встретились, он ничуть не изменился, оставляя всегда какое-то несерьёзное  впечатление. Как только Ронье увидела на его лице широкую улыбку, что-то сжалось в глубине её груди.
 
-Ronnie lowered her head, aspiring not to put it on the table.
+Ронье склонила голову, стараясь не показать этого.
 
-"Good morning, Kirito-senpai"
+"Доброе утро, Кирито-сенпай."
 
-This time she would like to use “sama” as well, but exclusively for this person a “sama ban” was actually issued in official documents. So unavoidably, she used “senpai” as she would do back then when they both were students.
+Она бы и сейчас с радостью использовала “-сама”, но эксклюзивно для этого человека был издан “запрет на -сама” в форме официального документа. Так что она неизбежно использовала “сенпай”, с того самого времени, как они ещё были студентами.
 
-Former Elite Swordsmen Trainee at the Sword Mastery Academy in North Centoria, a young man named Kirito who is currently appointed to the position of the Prime Swordsman of the Human World Union Council, said raising his right hand with a smile.
+Бывший Элитный мечник-стажёр в Академии Искусства Меча Северной Центории, молодой человек по имени Кирито, в данный момент бывший Премьер-Мечником Объединённого Совета Мира Людей, сказал, с улыбкой поднимая руку в приветствии.
 
-"Oh, Ronye! How are you doing?"
+"О, Ронье! Как жизнь?"
 
-A young dragon appeared from behind of Ronye and loudly singing “kurururu” and flapping small wings it pounced on Kirito and began licking his cheeks without refrain. After smiling involuntarily from the look of that situation, she also greeted Sadore.
+Молодой дракон выбежал из-за Ронье и с громким “**ку-ру-ру-ру-ру**”, хлопая крыльями, налетел на Кирито и начал безудержно лизать его щёки. Невольно улябнувшись от происходящего, она поприветствовала Садоре.
 
-"Good morning, master."
+"Доброе утро, мастер."
 
-"Oh, good morning, young Ronye."
+"А, утро доброе, юная Ронье."
 
-Having exchanged that, Ronye quickly approached the old man with a gentle smile, and asked.
+Обменявшись с ним приветствиями, Ронье быстро подошла к улыбавшемуся старику и спросила.
 
-"So, that ...... you were taking about just now, what is it like, that thermal element can?"
+"Так это...... то, о чём вы сейчас говорили, этот бак термальных элементов, что оно такое?"
 
-"Well, here, look at the back of “machine dragon” prototype No. 1"
+"Эмм, вот, взгляни на зад этого первого прототипа “искусственного дракона”"
 
-"Machine... dragon?"
+"Искусственного... дракона?"
 
-It was an unfamiliar word once again, but she quickly understood that it was the name of a metallic dragon that aroused in front of her.
+Снова прозвучало неизвестное слово, но она догадалась, что так называли металлического дракона, возвышавшегося перед ней.
 
-Looking at it again she felt somewhat uncomfortable to call “dragon” a creature without life which the emitted strange sound called “Hiruuruuru” from the back part swollen in an elliptical shape.
+Вновь окинув его взглядом, её коснулось неуютное ощущение от того, что  “драконом” называли безжизненное создание, издававшее странный звук “**хи-ру-ру-ру**” из раздутого в форме эллипса зада.
 
-"There, two charged containers made from western adamant steel, there are only 10 thermal elements contained in each".
+"Вот тут у нас два заряженных контейнера из Адамантиевой стали из Восточной Империи, и в каждом содержится по десять термальных элементов."
 
-"Eh....... Eeeeh!"
+"Э....... Ээээээ!"
 
-As soon as she heard of it, Ronye bend backward filling dizzy.
+Как только она это услышала, Ронье отшатнулась назад, словно почувствовав себя нехорошо.
+
+### Продолжение завтра
 
 Thermal element was the most difficult thing among the eight attributes being the source of sacred art. Unlike the cryogenic and the aerial ones which can be kept in the space for a while, if you leave it as generated, it will quickly emit heat and light and disappear. If you use thermal element, you must never lose concentration until it is processed or discharged — that is the first fundamental thing apprentice clerics are taught of.
 
@@ -163,7 +165,7 @@ Thermal element was the most difficult thing among the eight attributes being th
 
 "............... It is, ehm ............"
 
-Even though it is said to be a contrivance, for Ronye thermal and cryogenic elements are the sources of the sacred art which is the sacrament of Gods and is far from the smith craft and metalworking. She has never thought of what will happen when combining the two.
+Even though it is said to be a contrivance, for Ронье thermal and cryogenic elements are the sources of the sacred art which is the sacrament of Gods and is far from the smith craft and metalworking. She has never thought of what will happen when combining the two.
 
 "............... That thing, so what will happen if it works...?"
 
@@ -187,102 +189,102 @@ Then, she noticed that there is a thing that seems to be nothing but a chair ins
 
 "Swish! Flying... Like a dragon in the sky."
 
-It was Kirito who stood next before she finished.
+It was Кирито who stood next before she finished.
 
 Next to them, Tsukigaki sniffed the metal wings of the “machine dragon”, and turned away with clearly disappointed face.
 
 "Un......, un..., un..., unreasonable, senpai!"
 
-She shouted while pulling the sleeve of Kirito 's strange clothes.
+She shouted while pulling the sleeve of Кирито 's strange clothes.
 
 "Well, you didn’t think that we plan to discharge all twenty thermal elements at the same time, which will clearly blow out the entire thing, did you!? This is done similar to a cathedral elevator."
 
 "Yup, since the nozzle is adjustable and initially sealed, you can raise or lower the pressure in the venison. Nothing is better to fly the skies than the explosive power of a thermal element..."
 
-Finally smiling, Kirito turned around.
+Finally smiling, Кирито turned around.
 
 "Besides, there are so many people waiting to see such a thing... If you say that we are cancelling now, the “Central Government Rebellion” will happen next."
 
 "Ah, wasn’t it senpai who gathered them all!"
 
-A lot of people gathered today in the Central Cathedral front square because Kirito has widely announced that “we will conduct a public experiment by the Cathedral arsenal”".
+A lot of people gathered today in the Central Cathedral front square because Кирито has widely announced that “we will conduct a public experiment by the Cathedral arsenal”".
 
 As the peace came to the Underworld, it is natural that staff members and citizens who have greatly enjoyed the recent "Northern Cave Protective Dragon Restoration Experiment", will show up as soon as the Human World Prime Swordsman, who is the biggest noise source, does something again.
 
-At that time, as it seemed Kirito made a minor mistake controlling the resurrected white dragon, almost all planted trees of Cathedral were frozen unfortunately. Ronnie who knew it unintentionally bend backwards.
+At that time, as it seemed Кирито made a minor mistake controlling the resurrected white dragon, almost all planted trees of Cathedral were frozen unfortunately. Ronnie who knew it unintentionally bend backwards.
 
-Her back was supported by a Vice-Prime Swordsman standing right behind. Asuna who had a long relationship with Kirito said with a face that looked like she gave up.
+Her back was supported by a Vice-Prime Swordsman standing right behind. Асуна who had a long relationship with Кирито said with a face that looked like she gave up.
 
-"Don’t waste your time, Ronye-san. There’s nothing we can do, it will happen."
+"Don’t waste your time, Ронье-сан. There’s nothing we can do, it will happen."
 
 "Bu... but...... it is not right............"
 
-The head turning left and right, made her rethink it once again. In the last years Ronye had learned the cases of “there is no other way but to do it” if stubborn Kirito comes up with something.
+The head turning left and right, made her rethink it once again. In the last years Ронье had learned the cases of “there is no other way but to do it” if stubborn Кирито comes up with something.
 
-Intending to do everything possible to at the very least avoid catastrophe, Ronye focused her mind on the heart of the “machine dragon”.
+Intending to do everything possible to at the very least avoid catastrophe, Ронье focused her mind on the heart of the “machine dragon”.
 
-Even though she was appointed as an apprentice, Ronnie still has not yet reached the level where she could freely utilize the "incarnation" which was the secret of the Knights. It was completely impossible for her to invoke sacred art by shortening the incantation to as little as her will like Kirito and higher Knights did, but recently she became able to perceive the state of the generated elements.
+Even though she was appointed as an apprentice, Ronnie still has not yet reached the level where she could freely utilize the "incarnation" which was the secret of the Knights. It was completely impossible for her to invoke sacred art by shortening the incantation to as little as her will like Кирито and higher Knights did, but recently she became able to perceive the state of the generated elements.
 
 As Sadore-shi said, a lot of thermal elements were contained inside the machine dragon. However, the thermals are never quiet. She felt how they are trembling and pulsing as if trying to blow away from the surrounding shell.
 
 _Such activity at this state of the elements, what will happen if we release it?_ ..... her back chilled but there was no choice but to continue watching the progress.
 
-"... Well, I could feel the elements for the time being, Asuna-sama, they seem to be controlled well......."
+"... Well, I could feel the elements for the time being, Асуна-сама, they seem to be controlled well......."
 
-Asuna next to her answered in a loud but trembling voice.
+Асуна next to her answered in a loud but trembling voice.
 
 "Thank you, then keep the circuit as it is"
 
 "I will"
 
-Just as Ronye nodded, Kirito loudly said from a distance.
+Just as Ронье nodded, Кирито loudly said from a distance.
 
-"Well then, here we start! Asuna, countdown, if you please!"
+"Well then, here we start! Асуна, countdown, if you please!"
 
 "Why should it be me!"
 
 "Like in old times, when we were getting ready for the boss room rush!"
 
-Asuna swiftly nodded to the cryptic words of Kirito, then raised her right hand and recited the initial phrase of a sacred art.
+Асуна swiftly nodded to the cryptic words of Кирито, then raised her right hand and recited the initial phrase of a sacred art.
 
 "System call!"
 
 She quickly and smoothly constructed "wide area loudness sacred art" combining aerial and crystal elements. She could use an incarnation, but there were no enemies around so there was no reason in concealing the technique.
 
-Asuna raised her lips to the thin film of glass floating in the center of the vortex-like air.
+Асуна raised her lips to the thin film of glass floating in the center of the vortex-like air.
 
 『Everyone who gathered, we kept you waiting for long! Here and now, by the Central Cathedral arsenal, we are doing the flight experiment of “Machine Dragon — Prototype No. 1”! 』
 
 The loud voice echoed through the crowed square, and both the Cathedral officials standing on the other side of the narrow strands and the citizens of the central city packed in the seats in front of the main gate all happily cheered. Looking up to the Central Cathedral, the armor of Integrity Knights could be seen shining brightly on the large terrace around the thirtieth floor high above.
 
-In the applause and cheers, Kirito waved his hand towards visitors and began to climb a ladder standing against the machine dragon. He quickly reached the head and opened a transparent glass plate sliding it inward.
+In the applause and cheers, Кирито waved his hand towards visitors and began to climb a ladder standing against the machine dragon. He quickly reached the head and opened a transparent glass plate sliding it inward.
 
 He sat on the chair set facing the sky and fixed the body with a leather band. After wearing big eyeglasses previously hanging on his neck, he gave thumb up with the left hand to master Sadore.
 
-Old Sadore followed by Ronye and Asuna retreated for more than 20 mel. Ronye increased the distance carefully while paying attention so as not to lose the contact to thermal elements.
+Old Sadore followed by Ронье and Асуна retreated for more than 20 mel. Ронье increased the distance carefully while paying attention so as not to lose the contact to thermal elements.
 
 『Then, I begin the countdown! Everyone, please join me! 』
 
-Asuna called out onlookers in an awfully familiar tone<sup><a href="#Prim4">4</a></sup>. She put both hands up in the air and extended ten fingers.
+Асуна called out onlookers in an awfully familiar tone<sup><a href="#Prim4">4</a></sup>. She put both hands up in the air and extended ten fingers.
 
 『Altogether, ten! Nine! Eight! 』
 
-Approximately 1000 voices responded to the numbers Asuna shouted folding her fingers. Same moment, Tiese and Renry also joined the count with smiles on their faces.
+Approximately 1000 voices responded to the numbers Асуна shouted folding her fingers. Same moment, Tiese and Renry also joined the count with smiles on their faces.
 
-Ronye shouted together with them holding tightly to Tsukigaki’s neck.
+Ронье shouted together with them holding tightly to Tsukigaki’s neck.
 
 『Seven! Six! Five!』
 
-Unexpectedly, the vibrations of thermal elements increased in strength. Kirito began direct control with incarnation.
+Unexpectedly, the vibrations of thermal elements increased in strength. Кирито began direct control with incarnation.
 
-Kirito's intense mind power flowed into the connected Ronye through elements serving as a mediator.
+Кирито's intense mind power flowed into the connected Ронье through elements serving as a mediator.
 
 Again, something tightened deeply in her chest.
 
 _── I cannot just let this feeling go out.  
-── As a Kirito-senpai’s companion, I have to keep it sleeping quietly until that time when I get old and my life runs out._
+── As a Кирито-senpai’s companion, I have to keep it sleeping quietly until that time when I get old and my life runs out._
 
-Ronye shouted louder, aspiring to hide her heating eyes from Asuna standing next to her.
+Ронье shouted louder, aspiring to hide her heating eyes from Асуна standing next to her.
 
 『Four! Three! Two! 』
 
@@ -290,7 +292,7 @@ The sound of the machine dragon is increasing rapidly. The dull silver shining v
 
 『One! ...... Zero!! 』
 
-The stone pavement of the square was shaken by the incantation finished with faintly heard Kirito's cry.
+The stone pavement of the square was shaken by the incantation finished with faintly heard Кирито's cry.
 
 "Discharge!!"
 
@@ -304,31 +306,31 @@ From that smoke ──.
 
 The metal dragon jumped out straight like a silver arrow.
 
-A high-pitched sound resonated through the sky that Ronye had never heard before. While dragging the long flame tail from the two cylinders, the dragon rising higher and higher.
+A high-pitched sound resonated through the sky that Ронье had never heard before. While dragging the long flame tail from the two cylinders, the dragon rising higher and higher.
 
-Ronye felt sore pain in the palms of both hands enveloped with the raging fever of released heat. Inherently, whatever the material container is made of, the ultra-high heat should completely destroy it and the whole machine dragon should be exploding. However, ultra-low temperature ice elements are sent one after another into the narrow tube embedded in the sealed can, reducing the temperature of the container. As a result, the explosive power of the thermal element is released only in one direction from the nozzle cylinder, and the huge machine dragon is blown straight.
+Ронье felt sore pain in the palms of both hands enveloped with the raging fever of released heat. Inherently, whatever the material container is made of, the ultra-high heat should completely destroy it and the whole machine dragon should be exploding. However, ultra-low temperature ice elements are sent one after another into the narrow tube embedded in the sealed can, reducing the temperature of the container. As a result, the explosive power of the thermal element is released only in one direction from the nozzle cylinder, and the huge machine dragon is blown straight.
 
 Now, for the first time in the history of Underworld, a human is soaring through the sky riding something other than a dragon.
 
 "............ amazing ......"
 
-Tears for the reason different than before filled both eyes of Ronye.
+Tears for the reason different than before filled both eyes of Ронье.
 
 Through her blurred distorted vision, she saw the silver dragon climbing up more and more as far as reaching over the Central Cathedral.
 
 _If the dragon remains in one place on the ground, the surrounding space sacred power will be exhausted quickly due to the cryogenic elements generated constantly, but traveling at a high speed, it should be possible to barely catch up with the supply of spatial resources. Then, that man-made dragon may be able to rise to a height that cannot be reached even with a real dragon._
 
-As soon as she thought this, Ronye felt that she realized the true intention of the Human World Prime Swordsman.
+As soon as she thought this, Ронье felt that she realized the true intention of the Human World Prime Swordsman.
 
-Kirito’s goal is not just to just fly ── perhaps, with the machine dragon, even the "end wall of the world" that no creature can cross, may be surpassed.......
+Кирито’s goal is not just to just fly ── perhaps, with the machine dragon, even the "end wall of the world" that no creature can cross, may be surpassed.......
 
 However, the moment her thoughts reached that far.
 
-Suddenly, Ronye felt the signs that the thermal elements are expanding.
+Suddenly, Ронье felt the signs that the thermal elements are expanding.
 
 _The sealed can is beginning to distort. It melts with high heat. I do not know the reason, but the supply of cryogenic elements that should lower the temperature of the can is insufficient._
 
-"Ah, Asuna-sama! Thermal elements are──"
+"Ah, Асуна-сама! Thermal elements are──"
 
 As she was saying that, they heard “Bo-mum!” which didn’t sound nice at all, and saw black smoke running from one of nozzle cylinders.
 
@@ -340,15 +342,15 @@ The Central Cathedral, ninety-fifth floor wall.
 
 "Cra…crashes!"
 
-Ronye grasped hands in front of her chest and shouted. A loud scream rised from the onlookers as well.
+Ронье grasped hands in front of her chest and shouted. A loud scream rised from the onlookers as well.
 
-With the sound “Shats!” Asuna pulled out the small sword from her waist.
+With the sound “Shats!” Асуна pulled out the small sword from her waist.
 
 A bright yellow light shining with the light of Solus divided into seven colors, pointed straight to Cathedral.
 
 "....... Yoisho!"<sup><a href="#Prim5">5</a></sup>
 
-Asuna cried it loud and menacingly like a god should, and at the same time moved the tip of the sword to the left.
+Асуна cried it loud and menacingly like a god should, and at the same time moved the tip of the sword to the left.
 
 As if being pulled by it, the top of the huge Central Cathedral beginning with 95th floor shifted to the west with a heavy sound.
 
@@ -362,21 +364,21 @@ Although some energy has been consumed to rise the dragon, the power that was si
 
 Normally, one finger can control only one generated element, so even high-level clerics could not overcome the limit of ten instances.
 
-Rumors said, the former head of the Elder Council that used to manage the Axiom Church once used his toes to rise this limit to twenty, and the deceased Highest Priest Administrator seemed to have manipulated nearly a hundred instances using her hair, but of course Ronye never witnessed that.
+Rumors said, the former head of the Elder Council that used to manage the Axiom Church once used his toes to rise this limit to twenty, and the deceased Highest Priest Administrator seemed to have manipulated nearly a hundred instances using her hair, but of course Ронье never witnessed that.
 
-Even the knight Ronye was struck, not saying anything about the citizens who packed in Cathedral. High there in the air, an orange flash flared up so bright it should be called the second Solus, followed by the roar and a cruel shake as if heavens have fallen to the ground. Most of the onlookers screamed and covered heads with both hands.
+Even the knight Ронье was struck, not saying anything about the citizens who packed in Cathedral. High there in the air, an orange flash flared up so bright it should be called the second Solus, followed by the roar and a cruel shake as if heavens have fallen to the ground. Most of the onlookers screamed and covered heads with both hands.
 
 However, of course, unprocessed thermal elements have only exploded in the sky, so no damage has been none to the ground several hundred mel away from the bright phenomenon.
 
 At the end of the line of sight of the visitors who raised their faces, the dark black smoke expanded fully covering the top of the Cathedral which returned back to the original position.
 
-After seeing the explosion of the scale several times larger than the fireworks celebrating the New Year fired from this square two months ago, ── perhaps everyone thought that the Prime Swordsman who was in the steel dragon had passed anyway. Naturally, Ronye thought so as well, clenching both hands in front of her chest and opening her eyes wide.
+After seeing the explosion of the scale several times larger than the fireworks celebrating the New Year fired from this square two months ago, ── perhaps everyone thought that the Prime Swordsman who was in the steel dragon had passed anyway. Naturally, Ронье thought so as well, clenching both hands in front of her chest and opening her eyes wide.
 
 "Ki............"
 
-_Kirito-senpai!_
+_Кирито-senpai!_
 
-As soon as she was about to shout, Asuna next to her tapped Ronnie's shoulder lightly and said.
+As soon as she was about to shout, Асуна next to her tapped Ronnie's shoulder lightly and said.
 
 "He's all right"
 
@@ -394,11 +396,11 @@ The flight technique that should have been lost with the death of the Highest Pr
 
 There was no other person capable of doing such things at the moment. The watchers looking up roared all at once, and eventually the roar turned into a huge cheer and applause.
 
-Although the “machine dragon flight experiment” have probably failed for more than a half of its initial goal, Kirito gently descended waving and smiling. Ronnie also clapped both hands hard looking up at his figure.
+Although the “machine dragon flight experiment” have probably failed for more than a half of its initial goal, Кирито gently descended waving and smiling. Ronnie also clapped both hands hard looking up at his figure.
 
-Kirito’s style of implementing an outrageous idea causing extraordinary results have never changed even after years.
+Кирито’s style of implementing an outrageous idea causing extraordinary results have never changed even after years.
 
-The vision of his smiling figure once again became blurred in Ronye’s both eyes.
+The vision of his smiling figure once again became blurred in Ронье’s both eyes.
 
 Blinking fast she prayed quietly deep in the back of her heart.
 
@@ -406,8 +408,8 @@ _Should it ever come true, I hope that day would last forever._
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>霜咲, Frost Bloom.
-2. <a name="Prim2"></a>As a reminder, "-sama" honorific is a more respectful version of "-san" for people of a higher rank than oneself.
-3. <a name="Prim3"></a>師, teacher, mentor. It is a shortening for his complete title, "master".
+1. <a name="Prim1"></a>霜咲, Морозное цветение, "Хладоцвет".
+2. <a name="Prim2"></a>Напоминаю, хонорифик "-сама" — это более уважительная версия "-сан" для людей высших по рангу, чем говорящий.
+3. <a name="Prim3"></a>師, учитель, наставник. Сокращение его полного титула, которое можно перевести как "мастер". Не в смысле "хозяин, повелитель", естественно, а в смысле "профессионал своего дела".
 4. <a name="Prim4"></a>Refers to kids shows where watchers should sing/count together with the lead.
 5. <a name="Prim5"></a>よいしょー, expression of effort or strain
