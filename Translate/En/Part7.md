@@ -60,7 +60,7 @@ Its appearance piercing the morning glow of the Dark Territory, which was much r
 
 "... Unlike Central Cathedral built by Higher Priest Administrator’s sacred art, that castle was carved out of a rocky mountain with human hands."
 
-Having heard the words of Kirito, Ronnie also sighed unwillingly.
+Having heard the words of Kirito, Ronye also sighed unwillingly.
 
 "How many months... years did it take?"
 
@@ -180,7 +180,7 @@ They said there is nothing that cannot be cut by her divine object "Black Lily S
 
 However, by the end of the battle, she left Central Cathedral and stayed at Obsidia castle as a full authority representative for the Human World Union Council.
 
-In other words, she was the best person for Kirito and Ronnie to contact first — but, the question, how did Kirito bring her here, remained unanswered. Kirito swung the blade of mind against the castle, and Scheta was the single person who noticed it and flew to them — it seems to be only a result of a lucky coincidence that this haphazard strategy happened to be successful.
+In other words, she was the best person for Kirito and Ronye to contact first — but, the question, how did Kirito bring her here, remained unanswered. Kirito swung the blade of mind against the castle, and Scheta was the single person who noticed it and flew to them — it seems to be only a result of a lucky coincidence that this haphazard strategy happened to be successful.
 
 Holding back the desire to question Kirito, Ronye kept watching the interaction between the two of them.
 
@@ -380,7 +380,7 @@ Currently, the communication between Centoria and Obsidia relies on a horse ridi
 
 "That's right……I wish I had found a parent skull......."
 
-Isukan sighed and Kirito nodded with a sad face, so Ronnie blinked and asked.
+Isukan sighed and Kirito nodded with a sad face, so Ronye blinked and asked.
 
 "Sorry, that parent skull ...what is it?"
 

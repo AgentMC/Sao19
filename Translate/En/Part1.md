@@ -97,7 +97,7 @@ Feeling awkward, she nodded. Asuna then moved her face close and continued in a 
 
 "Eh, oh ......? Is there a thermal element in it?"
 
-Ronnie could not immediately understand the meaning of words, and she moved her gaze, blinking.
+Ronye could not immediately understand the meaning of words, and she moved her gaze, blinking.
 
 She looked up at the highest point of a metal dragon, and then saw two men discussing something beside it.
 
@@ -121,7 +121,7 @@ The complaining young man suddenly turned around and saw Ronye.
 
 Since they met for the first time, he did not change, leaving an impression of a somewhat childish person. As soon as Ronye saw a wide smile on his face, something tightened deep in her chest.
 
-Ronnie lowered her head, aspiring not to put it on the table.
+Ronye lowered her head, aspiring not to put it on the table.
 
 "Good morning, Kirito-senpai"
 
@@ -209,7 +209,7 @@ A lot of people gathered today in the Central Cathedral front square because Kir
 
 As the peace came to the Underworld, it is natural that staff members and citizens who have greatly enjoyed the recent "Northern Cave Protective Dragon Restoration Experiment", will show up as soon as the Human World Prime Swordsman, who is the biggest noise source, does something again.
 
-At that time, as it seemed Kirito made a minor mistake controlling the resurrected white dragon, almost all planted trees of Cathedral were frozen unfortunately. Ronnie who knew it unintentionally bend backwards.
+At that time, as it seemed Kirito made a minor mistake controlling the resurrected white dragon, almost all planted trees of Cathedral were frozen unfortunately. Ronye who knew it unintentionally bend backwards.
 
 Her back was supported by a Vice-Prime Swordsman standing right behind. Asuna who had a long relationship with Kirito said with a face that looked like she gave up.
 
@@ -221,7 +221,7 @@ The head turning left and right, made her rethink it once again. In the last yea
 
 Intending to do everything possible to at the very least avoid catastrophe, Ronye focused her mind on the heart of the “machine dragon”.
 
-Even though she was appointed as an apprentice, Ronnie still has not yet reached the level where she could freely utilize the "incarnation" which was the secret of the Knights. It was completely impossible for her to invoke sacred art by shortening the incantation to as little as her will like Kirito and higher Knights did, but recently she became able to perceive the state of the generated elements.
+Even though she was appointed as an apprentice, Ronye still has not yet reached the level where she could freely utilize the "incarnation" which was the secret of the Knights. It was completely impossible for her to invoke sacred art by shortening the incantation to as little as her will like Kirito and higher Knights did, but recently she became able to perceive the state of the generated elements.
 
 As Sadore-shi said, a lot of thermal elements were contained inside the machine dragon. However, the thermals are never quiet. She felt how they are trembling and pulsing as if trying to blow away from the surrounding shell.
 
@@ -376,7 +376,7 @@ After seeing the explosion of the scale several times larger than the fireworks 
 
 _Kirito-senpai!_
 
-As soon as she was about to shout, Asuna next to her tapped Ronnie's shoulder lightly and said.
+As soon as she was about to shout, Asuna next to her tapped Ronye's shoulder lightly and said.
 
 "He's all right"
 
@@ -394,7 +394,7 @@ The flight technique that should have been lost with the death of the Highest Pr
 
 There was no other person capable of doing such things at the moment. The watchers looking up roared all at once, and eventually the roar turned into a huge cheer and applause.
 
-Although the “machine dragon flight experiment” have probably failed for more than a half of its initial goal, Kirito gently descended waving and smiling. Ronnie also clapped both hands hard looking up at his figure.
+Although the “machine dragon flight experiment” have probably failed for more than a half of its initial goal, Kirito gently descended waving and smiling. Ronye also clapped both hands hard looking up at his figure.
 
 Kirito’s style of implementing an outrageous idea causing extraordinary results have never changed even after years.
 

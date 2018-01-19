@@ -126,7 +126,7 @@ Ronye hurriedly looked out through the glass lid. The gray cobblestones and figu
 
 Watching the ground Ronye was thinking that this was certainly a cheating. As the rising speed increased, the size of those seen outside decreased accordingly. Eventually the white morning haze concealed them, the rose garden spreading north of the arsenal and the white wall of Cathedral occupied the sight.
 
-She put both hands together and looked straight ahead; the dark-blue before dawn sky had spread far and wide. Ronnie lost her words to the beauty of the horizon that was starting to slowly illuminated with red.
+She put both hands together and looked straight ahead; the dark-blue before dawn sky had spread far and wide. Ronye lost her words to the beauty of the horizon that was starting to slowly illuminated with red.
 
 When the dragon had risen as high as the large public bath on Cathedral’s ninetieth floor, it stopped the elevation and began to move horizontally. It was quite different from the powerful flapping of the real dragons, more like gliding on the water surface. Nothing else could be heard than a low humming wind noise. This way the citizens of Centoria would not notice them unless they were looking up at the sky at dawn.
 
@@ -152,7 +152,7 @@ When Ronye muttered that, Kirito nodded with a bitter smile.
 
 "Maybe it’s due to a lack of training, but... but it is still meaningless if in the end only I can cross the "wall". In the future it is necessary to set up scheduled flights via large dragons, or make a mechanism like a Cathedral elevator so that all the inhabitants of the Dark Territory... no, entire Underworld can freely come and go."
 
-Ronnie looked out the window, astonished by Kirito's idea of attaching an elevator to the "end wall of the world", height of which was not known to anyone, but she thought she is getting used to this feeling of astonishment.
+Ronye looked out the window, astonished by Kirito's idea of attaching an elevator to the "end wall of the world", height of which was not known to anyone, but she thought she is getting used to this feeling of astonishment.
 
 The machine dragon seemed to have passed through the city of East Centoria unnoticed, and fields and meadows covered with snow that had fallen a while ago spread before her eyes. Although it was still a cold view, wheat will start to grow in March, the ground will be covered with new green.
 
@@ -164,7 +164,7 @@ This time, Kirito did not answer for a while.
 
 Eventually, she heard a voice low like a muttering.
 
-"If people of Human World all think like Ronnie......."
+"If people of Human World all think like Ronye......."
 
 "Er... what do you mean...?"
 
@@ -266,7 +266,7 @@ Looking over Kirito's shoulder, she saw a faint light ahead on the ground alread
 
 "That is...... the capital of Dark Territory, Obsidia..."
 
-After mumbling so with a hoarse voice, Ronnie asked the Prime Swordsman.
+After mumbling so with a hoarse voice, Ronye asked the Prime Swordsman.
 
 "...... Kirito-senpai, have you been there?"
 
@@ -290,7 +290,7 @@ A lot of lights lit up the rock, because that was the former emperor Vector's ca
 
 "It's about 10 kilolu remaining... All right, it's time to switch to incarnational flight and land."
 
-Surprised with the words of Kirito, Ronnie asked back.
+Surprised with the words of Kirito, Ronye asked back.
 
 "Why are we going to get off that far?"
 
@@ -312,7 +312,7 @@ During the flight she was inevitably in close contact with Kirito, so her heart 
 
 They landed on the broad road that led to Obsidia castle town. The cobblestone was polished as marble, as in the daytime numerous humans, sub-humans, and carriages were going one after another, but at that time that would probably be after 10 o'clock in the evening there was no shadow there.
 
-As Ronnie was usually in bed by that time, as soon as her feet touched the ground, she was attacked by intense sleepiness coupled with tiredness of a long journey, but shaking her head a lot helped fighting it away. Her escort mission begins from this moment ────
+As Ronye was usually in bed by that time, as soon as her feet touched the ground, she was attacked by intense sleepiness coupled with tiredness of a long journey, but shaking her head a lot helped fighting it away. Her escort mission begins from this moment ────
 
 Or, so she thought.
 
@@ -376,7 +376,7 @@ Ronye finally released both hands from cheeks and asked about unfamiliar words i
 
 "It's a city in the dark world in about 30 kilolu southwest from here."
 
-In truth, she wanted to know the meaning of the 'fu' that he mentioned before part of brother and sister, but enduring curiosity it a lot, Ronnie nodded.
+In truth, she wanted to know the meaning of the 'fu' that he mentioned before part of brother and sister, but enduring curiosity it a lot, Ronye nodded.
 
 "I understand, let's go, senpai."
 
@@ -386,7 +386,7 @@ She covered head with a hood, took a long sword that has not been assigned a nam
 
 "Oh no, I’m now your brother and you’re my sister. Your brother will bring his sister's luggage."
 
-With a happy smile, Kirito took Ronye's bag in his right hand, hung his leather bag on his left shoulder and started walking. Ronnie bothered her head as to what she should call Kirito when they enter the city and ran after him.
+With a happy smile, Kirito took Ronye's bag in his right hand, hung his leather bag on his left shoulder and started walking. Ronye bothered her head as to what she should call Kirito when they enter the city and ran after him.
 
 ***
 
@@ -422,7 +422,7 @@ Ronye never met her, but she knew that the "green swordsman Leafa" who disappear
 
 "……Yes"
 
-Ronnie answered realizing that each time he tried to forget, that fundamental anxiety was waking him up like everlasting waves.
+Ronye answered realizing that each time he tried to forget, that fundamental anxiety was waking him up like everlasting waves.
 
 It didn’t take long though before Kirito continued in a normal way.
 
@@ -522,7 +522,7 @@ Whether was accustomed to that or simply being drunk, but fist fighter took bowl
 
 There was something inside the bowl that could only be described as a thick brown soup. It seemed that various items were contained in it, but since the liquid was almost opaque, what was being boiled could not be determined by looking down.
 
-Ronnie sat down with Kirito at a vacant table, urged by a fist fighter with his bowl, and prepared her spirits.
+Ronye sat down with Kirito at a vacant table, urged by a fist fighter with his bowl, and prepared her spirits.
 
 She scooped up some liquid concentrated like stew cooked for three consecutive days, blew it and put in the mouth. _Spicy!_ she thought at first, but at once felt sourness, and after that the taste brought complicated richness with a shade of bitterness, and ended with a faint sweet aftertaste.
 
@@ -606,7 +606,7 @@ In response to Kirito's question, the fighter shrugged his shoulders and answere
 
 "If you came from Faldera I don’t need to tell you...... the land is just killing everything in this dark world. Humans and subhumans have always been suffering from hunger and thirst. Even the big war that ended the "era of iron and blood" began with a fight for a lake of some tribe’s origin..."
 
-Ronnie and Kirito, who were not familiar with the history of the Dark Territory, must only silently nod. Fist fighter drank another gulp and kept on talking diligently.
+Ronye and Kirito, who were not familiar with the history of the Dark Territory, must only silently nod. Fist fighter drank another gulp and kept on talking diligently.
 
 "......Our ancestors managed to survive in this Dark Territory because there was a legend we believed. Someday the Human World gate will open and we will move to a promised rich land."
 
@@ -636,7 +636,7 @@ Kirito, who made a big yawn, murmured such a thing in a confused tone.
 
 "Well, I’ll manage somehow."
 
-Finally, Kirito laughed and started to walk to the east exit of the square; Ronnie inevitably chased him.
+Finally, Kirito laughed and started to walk to the east exit of the square; Ronye inevitably chased him.
 
 ***
 
@@ -718,9 +718,9 @@ She then pulled up the cotton-top cover up to his neck, and when thumping in her
 
 "Ah... I'm sorry, my mother always did this when I was a child."
 
-"I see...... Would be great to see Ronnie's parents, someday..."
+"I see...... Would be great to see Ronye's parents, someday..."
 
-As Kirito said such words looking up at the ceiling, Ronnie remembered her last month homecoming. It obviously revived the memories of a number of proposals from her relatives, but somehow, she pushed them back.
+As Kirito said such words looking up at the ceiling, Ronye remembered her last month homecoming. It obviously revived the memories of a number of proposals from her relatives, but somehow, she pushed them back.
 
 ".......Yes, I'm sure my parents will be happy."
 

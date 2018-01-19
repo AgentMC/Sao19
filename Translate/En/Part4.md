@@ -87,7 +87,7 @@ The sword moved down barely reflecting the light of the candle.
 
 _── Stop it!_
 
-Ronnie tried to shout, but sooner than that ──
+Ronye tried to shout, but sooner than that ──
 
 **Kin!** A sharp sound echoed, and sparks were scattered from the commander's sword as if it was struck by an invisible blade, it slipped out of his hand and stuck in the wall behind.
 
@@ -275,7 +275,7 @@ It was Kirito's motion, not voice, that broke it. He casually extended the right
 
 Although he omitted even the starting phrase of the sacred art to generate metallic element, three glowing silver light spots appeared under his palm. They quickly melted into one and started to change its shape, glittering. One end curved and thickened, the other side became sharp and elongated.
 
-It was a single-edged dagger that Goblin tribe preferred, which Ronnie saw many times, dropping down to the round table making a distinctive sound. The thick blade and the roughly scraped handle were full of small details crafted with exceptional attention — but still, there were some differences seen compared to the real one.
+It was a single-edged dagger that Goblin tribe preferred, which Ronye saw many times, dropping down to the round table making a distinctive sound. The thick blade and the roughly scraped handle were full of small details crafted with exceptional attention — but still, there were some differences seen compared to the real one.
 
 First, the texture of the surface was too smooth. Besides, the handle of a real one should be wrapped with dyed leather, and here it was made entirely of metal, same piece with the blade. Should one take a closer look, it was obvious that it was a metallic element-crafted substitute.
 
@@ -331,7 +331,7 @@ Kirito suddenly shook his head and said quite casually.
 
 When the meeting was over, Solus was already disappearing over the western horizon.
 
-Ronnie rushed to the dragon stables to the west of Cathedral and waved cheerfully to Tiese was taking care of Tsukigaki.
+Ronye rushed to the dragon stables to the west of Cathedral and waved cheerfully to Tiese was taking care of Tsukigaki.
 
 "I'm sorry, I got late!"
 
@@ -345,7 +345,7 @@ Her redheaded friend, stood by for a while turning her head around, then asked c
 
 "So... how was the meeting?"
 
-Sitting on a bench placed along the walls of the stable, Ronnie told her the summary of extraordinary meeting.
+Sitting on a bench placed along the walls of the stable, Ronye told her the summary of extraordinary meeting.
 
 Tiese finished listening with a difficult face and eventually muttered.
 

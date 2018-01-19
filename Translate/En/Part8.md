@@ -43,7 +43,7 @@ Kirito seemed to have finally awakened after blinking several times, and said wh
 
 "We might be able to help with something."
 
-He lightly tapped her shoulder, so Ronnie could only nod.
+He lightly tapped her shoulder, so Ronye could only nod.
 
 "But if you continue standing in the doorway, I will have to go back!"
 
@@ -55,13 +55,13 @@ That voice crying "Down there!" definitely belonged to Isukan. They nodded each 
 
 On the right side at the end of the corridor, they saw a large two-sash door in front. The obsidian door decorated with silver, clearly guarding a considerably important area, was opened wide, and the voice of the guards filled with fear and hatred were constantly heard from the inside.
 
-Kirito and Ronnie quickly passed through a corridor of about 20 meters and jumped into the room.
+Kirito and Ronye quickly passed through a corridor of about 20 meters and jumped into the room.
 
 Immediately, innumerable bright lights glowing on both sides dazzled the eyes. In light of ore lanterns, the guards of about ten people were standing in the passage, and ahead of them, was a large room filled with a myriad of decorated weapons and armor, all sorts of jewelry and ornaments. It must be an armor store of Obsidia castle, or a treasury.
 
 "It's monsters......!"
 
-From the other side of the guards, the voice of Isukan resounded again. Kirito who had stopped the movement, jumped over the guards and disappeared behind them. Ronnie also agreed, and having checked that the cloak covers her pajamas, she made a short run-up and kicked off the floor.
+From the other side of the guards, the voice of Isukan resounded again. Kirito who had stopped the movement, jumped over the guards and disappeared behind them. Ronye also agreed, and having checked that the cloak covers her pajamas, she made a short run-up and kicked off the floor.
 
 Aincrad sword style followed by Kirito and Asuna emphasized the importance of running and jumping besides the characteristic continuous sword skill, and Ronye practiced every day. Thanks to that effort she succeeded in jumping over a group of guards and could hear men's surprised voices behind, but didn’t pay attention to that.
 
@@ -83,7 +83,7 @@ A fire-like glow wrapped Isukan’s clenched fist. But Scheta standing next to h
 
 As Isukan groaned, two minions, as if they understood the talk of two people, spew out the air with sound “**fshaaa, fshaaa**”.
 
-This was the first time to see with her own eyes, but Ronnie had some knowledge about minions. They were artificial creatures used by Dark Territory dark arts masters thrown in large quantity into the early stage of the “Battle by the Great Eastern Gate” of the Foreign World War, successfully annihilated by the use of complete armament control of the divine object "Time Piercing Sword" of the knight commander Bercouli. So, human forces soldiers did not suffer any damage at all, just saw the glimpse of slightly oversized bats, but the real thing was far more frightening than that. The length of the body was nearly 2 mel, and the claws blackening at the ends of the long arms were long and sharp like knifes.
+This was the first time to see with her own eyes, but Ronye had some knowledge about minions. They were artificial creatures used by Dark Territory dark arts masters thrown in large quantity into the early stage of the “Battle by the Great Eastern Gate” of the Foreign World War, successfully annihilated by the use of complete armament control of the divine object "Time Piercing Sword" of the knight commander Bercouli. So, human forces soldiers did not suffer any damage at all, just saw the glimpse of slightly oversized bats, but the real thing was far more frightening than that. The length of the body was nearly 2 mel, and the claws blackening at the ends of the long arms were long and sharp like knifes.
 
 Moreover, it had strong resistance to a sacred art of any attribute, as well as puncturing and crushing damage, and it seemed that the most effective would be to slash with a sharp blade, but Scheta did not have a sword, of course. Ronye and Kirito, regretting to not have brought the sword from the room, both were unarmed.
 
@@ -237,7 +237,7 @@ Kirito with a doubtful face turned his eyes towards the night sky outside the wi
 
 _According to lectures by librarians of the large library, minions' flight speed is about the same as people run. We are at a height of 500 mils, it seems impossible to completely disappear in just two minutes in any direction, but if the opponent is a highly-ranked dark arts master, a hiding technique or something alike may be used._ However, if Kirito and Scheta weren’t able to find them, Ronye wouldn’t be either.
 
-Being helpless, Ronnie crossed the floor and approached the baby’s bed.
+Being helpless, Ronye crossed the floor and approached the baby’s bed.
 
 The bed shaped like a box was, of course, empty, except for pretty pacifiers and stuffed bear and dragon toys left behind; she was suddenly attacked by a feeling that her heart is being torn apart.
 

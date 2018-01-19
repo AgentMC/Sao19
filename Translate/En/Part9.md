@@ -435,7 +435,7 @@ At the same time, Ronye firmly caught the body of Lisetta with her left hand and
 
 "......Lisa-chan, don’t be scared. It’s all right now...... all right now......"
 
-Whispering and softly stroking her cheek, soon she made whining to gradually come down and then a little hand touched Ronnie's arm. On the left side, the sound of the closed window sounded again.
+Whispering and softly stroking her cheek, soon she made whining to gradually come down and then a little hand touched Ronye's arm. On the left side, the sound of the closed window sounded again.
 
 Until someone touched her back, Ronye kept holding the baby hard.
 

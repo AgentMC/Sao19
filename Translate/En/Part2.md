@@ -100,7 +100,7 @@ But there are a few exceptions.
 
 Specifically, from all the former aristocrats in Centoria, two people were brought into an Integrity Knights apprenticeship: Ronye of the house Arabel, and Tiese of the house Shtolienen.
 
-Last month Ronnie returned to her parents' house for the first time after she became a knight apprentice. Parents and younger brothers whom she hasn’t seen for the whole year were all happy, especially her younger brother, a student of Northern Centoria Sword Masters Academy, who tried to swing Ronye's sword — and could not even draw it — than challenged Ronye to arm-wrestling — and wasn’t able to push in half a cen — which made him terribly excited. Her father asked about the life in Cathedral, her mother's cooking was as delicious as ever, it was a fun night.
+Last month Ronye returned to her parents' house for the first time after she became a knight apprentice. Parents and younger brothers whom she hasn’t seen for the whole year were all happy, especially her younger brother, a student of Northern Centoria Sword Masters Academy, who tried to swing Ronye's sword — and could not even draw it — than challenged Ronye to arm-wrestling — and wasn’t able to push in half a cen — which made him terribly excited. Her father asked about the life in Cathedral, her mother's cooking was as delicious as ever, it was a fun night.
 
 The next day, three father's older brothers and their families unexpectedly arrived very early, and they brought plenty of gifts.
 
@@ -112,7 +112,7 @@ If you take such a knight as a bride, the house's status and income will rise at
 
 _── No matter if I’m the knight apprentice, the most important role of a woman is to give birth and bring up a child. Sure, they say even the head of integrity knights, even that kind of person raises a baby. And there is no law that could say anything is wrong with “my recommendation is my son”, but not like this, not with this person..._
 
-In the past, Kirito secretly told Ronnie and Tiese.
+In the past, Kirito secretly told Ronye and Tiese.
 
 The Highest Priest who ruled the former Axiom Church gathered those who excelled in sword skill and sacred art from all empires and turned them into an integrity knight. However, in fact, knights were deprived from previous memories by the forbidden technique called “The synthesis ritual”, and instead they were given false memories that they were summoned from the divine world.
 
@@ -122,7 +122,7 @@ Suppressing her feelings and a wish to create a smoke screen with sacred art and
 
 But ──
 
-In her mind, Ronnie could not help thinking _“Thank you Dad”_ and bowing.
+In her mind, Ronye could not help thinking _“Thank you Dad”_ and bowing.
 
 _My father told me that I should marry a man who really wanted to marry me, but in his deepest thoughts he must want to see the grandchild's face as soon as possible. No, even before, both father and mother were concerned that their daughter has joined Integrity Knights._ If not for the war, Ronye would normally graduate from the Sword Master Academy, marry some archetypal second or third son or a son-in-law of some low-class aristocrat, following the footsteps of her ancestors from the Arabel family.
 
@@ -185,7 +185,7 @@ Shaking his head Kirito put hands on his waist.
 
 "Well, Kirito-kun, I’d say you must be doing something about safety before increasing the power!"
 
-While they were having that conversation where there were more sacred words then normal ones, Ronnie managed to raise her hand.
+While they were having that conversation where there were more sacred words then normal ones, Ronye managed to raise her hand.
 
 "Ah, that ....... Sorry, Kirito-senpai ..."
 
@@ -219,7 +219,7 @@ Ronye lowered her head and glanced at Kirito who babbled something unclear while
 
 "I’d say best is two... well, better three pieces, well then you get’em and I go ahead!"
 
-Without giving Ronnie a single chance to pinch his mouth, Kirito disappeared in the northern door leading to the lift shaft.
+Without giving Ronye a single chance to pinch his mouth, Kirito disappeared in the northern door leading to the lift shaft.
 
 And already from there, he shouted in a loud voice to Ronye, who let her hands fall down onto the neck of Tsukigaki approaching her.
 
@@ -239,7 +239,7 @@ Kirito stood with a right hand on the young olive tree<sup><a href="#Prim5">5</a
 
 "It’s nothing, because this is also a responsibility of a trainee."
 
-Returning a smile, Ronnie quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Kirito whose eyes shined like those of a child. She took a slice for herself and for Tsukigaki, poured tea into two cups and said "Here you are".
+Returning a smile, Ronye quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Kirito whose eyes shined like those of a child. She took a slice for herself and for Tsukigaki, poured tea into two cups and said "Here you are".
 
 "Enjoy the meals!"
 
@@ -391,7 +391,7 @@ Besides, both chieftain Hagashi and his first-born child chief Kosogi fell one a
 
 Ronye who visited their land following Kirito lost her words to the sight of sick goblins left on the beds of the poor straw and crying weak hungry children. Even if the worst situation is pushed back by a large amount of emergency supplies brought from the Human World, it will not be a fundamental problem resolution. In that land one simply couldn’t support the prolific goblin population in the first place.
 
-But Ronnie did not try to think about their "future" until now. No, she tried to forget them. Figures of goblin children who galling and hitting each other like crazy trying to fetch not so tasty hard-baked breads from her own hands.
+But Ronye did not try to think about their "future" until now. No, she tried to forget them. Figures of goblin children who galling and hitting each other like crazy trying to fetch not so tasty hard-baked breads from her own hands.
 
 _Since then, goods should be continuously sent from the Human World. Maybe once in a while I tell myself that something is wrong, but looking back now I see that in the rich Human World, although I was a lower-class aristocrat, I lived as nobles do without any inconvenience._
 
@@ -453,7 +453,7 @@ Seeing him again flying to areas that the she could not understand, Ronye raised
 
 That was as well an unfamiliar concept to Ronye.
 
-For Ronnie, who was born and grew up in North Centoria, a huge wall that divides the city into sectors — the "timeless wall" — was the beginning. Eventually she learned that the vast Norlangarth empire spreading from it and also learned that it was forming a circular Human World together with the other three empires.
+For Ronye, who was born and grew up in North Centoria, a huge wall that divides the city into sectors — the "timeless wall" — was the beginning. Eventually she learned that the vast Norlangarth empire spreading from it and also learned that it was forming a circular Human World together with the other three empires.
 
 She was taught about the endless mountain range surrounding the Human World and the dreadful territory that is spread far beyond that since she entered her childhood school at the age of eight years.
 
@@ -497,7 +497,7 @@ Kirito then spent five minutes and taught her about the global spherical structu
 
 The "Morning Star Lookout" on the 95th floor of the Central Cathedral was open to the all the skies around. Standing at that floor, looking at the ground, it was visible that the horizon far away draws a gentle upward arc.
 
-_If the world is truly spherical, — it seems like it is obvious — but when you try to wrap your head around, you start realizing things, thought Ronnie watching Lunaria floating in the sky._
+_If the world is truly spherical, — it seems like it is obvious — but when you try to wrap your head around, you start realizing things, thought Ronye watching Lunaria floating in the sky._
 
 Unexpectedly, words she had never thought of went out from her lips.
 

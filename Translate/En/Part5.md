@@ -63,7 +63,7 @@ Sadore hit the outer plate of the silver-shining machine dragon with a big hand 
 
 "Wait a moment, please!"
 
-Ronnie hurriedly broken in the conversation between them.
+Ronye hurriedly broken in the conversation between them.
 
 "Aside from the safety of the dragon, there is still the danger of senpai being targeted! To go alone to the Dark Territory, it is pretty much..."
 
@@ -131,7 +131,7 @@ The Human Army decoy platoon Ronye and Tiese participated which was focused on d
 
 Floating in the jet-black night sky, Asuna with her pure and radiant appearance, was seen as no one else than Genesis God Stacia, drawn on the murals of the Arabel family house and pictures in the Sword Mastery Academy. Asuna raised a rainbow shining sword and created a huge hole in the ground banishing the dark knight who was about to kill Ronye to the bottom of the earth. Ronye who witnessed that miracle believed without any doubt that Asuna is Stacia God herself.
 
-Later Asuna as well as Kirito ─ and additionally, Emperor Vector and the dark knight Ronye fought ─ turned out to be "real world people". Nevertheless, Ronnie's gratitude and respect never faded at all even after more than a year after the war.
+Later Asuna as well as Kirito ─ and additionally, Emperor Vector and the dark knight Ronye fought ─ turned out to be "real world people". Nevertheless, Ronye's gratitude and respect never faded at all even after more than a year after the war.
 
 But facing each other alone in such a way made Ronye's heart to throb fast.
 
@@ -166,7 +166,7 @@ Many colorful armors were lined up in the area wide as a large training ground o
 
 "... as usual, it is a wonderful view"
 
-As Ronnie let out the admiration voice, Asuna nodded.
+As Ronye let out the admiration voice, Asuna nodded.
 
 "It is true. But, even this is quite a few to fulfill the needs of Lina’s, I mean, general Selrut’s Human World Army. It seems Kirito wanted to release the majority and let them to be used equally for the support of Human World and Dark Territory, but it was really opposed by Dusolbert."
 
@@ -180,7 +180,7 @@ _Should this ever be the case... I want families and students in the North Cento
 
 Asuna standing behind her patted Ronye’s shoulder and said with a mischievous look on her face.
 
-"So, hmm.... Integrity Knight trainee Ronnie Arabel, how much is your current weapon control authority?"
+"So, hmm.... Integrity Knight trainee Ronye Arabel, how much is your current weapon control authority?"
 
 "Er, wha…? Why does Asuna-sama asks such a thing..."
 
@@ -204,7 +204,7 @@ Speaking of Priority 39, it does not extend to the level of divine objects, but 
 
 "I ... could not .... Asuna-sama!"
 
-When Ronnie swung both hands and head at the same time, Asuna grinned and said.
+When Ronye swung both hands and head at the same time, Asuna grinned and said.
 
 "That gesture, it looks a bit like Kirito-kun"
 
@@ -220,7 +220,7 @@ Once again, wiggle and waving.
 
 "Not at all, for sure."
 
-Asuna suddenly made a step towards Ronye and gently pit her hands to Ronnie's back. Although at first her body became completely stiff, sweet and refreshing scent of melati<sup><a href="#Prim4">4</a></sup> and gentle warmth quickly melt the tension.
+Asuna suddenly made a step towards Ronye and gently pit her hands to Ronye's back. Although at first her body became completely stiff, sweet and refreshing scent of melati<sup><a href="#Prim4">4</a></sup> and gentle warmth quickly melt the tension.
 
 "It was Ronye-san and Tiese-san, and Alice, who protected Kirito when he couldn’t move. For me, you are the true heroes... I won’t ever be able to thank you enough..."
 
@@ -276,7 +276,7 @@ Then, Kirito who listened last two sentences silently stopped polishing "the swo
 
 "I'm sorry, but the moment I eat my pie I will be executing my connection with yours, Kirito."
 
-When listening to that exchange, Ronnie unexpectedly smiled and laughed. Laughing, she felt like she could understand the words of Yujio.
+When listening to that exchange, Ronye unexpectedly smiled and laughed. Laughing, she felt like she could understand the words of Yujio.
 
 From that day on, with the permission of the dorm guardian those two decided to brush and polish platinum oak wooden swords from the training ground every day to heal the damage caused by training. It did not take a while until they become able to freely swing a wooden sword.
 
@@ -286,7 +286,7 @@ Recalling the voice of Tiese striving to meet Yujio-senpai, Ronye stretched her 
 
 _Swordsman does not choose a sword. It is the sword that picks the owner. Should I open my heart and pour love to them, any sword will surely respond._
 
-Ronnie's hands caught the third from left — a long sword with silver guard and pommel, with handle wrapped with rough black leather resembling Kirito’s hair, emitting a soft sheen. Brand new handle leather was a little hard feeling, but she thought that if she handles it with care it will soon become familiar with her palm.
+Ronye's hands caught the third from left — a long sword with silver guard and pommel, with handle wrapped with rough black leather resembling Kirito’s hair, emitting a soft sheen. Brand new handle leather was a little hard feeling, but she thought that if she handles it with care it will soon become familiar with her palm.
 
 She breathed in and exhaled, then gently lifted the sword.
 

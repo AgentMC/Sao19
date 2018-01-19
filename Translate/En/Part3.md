@@ -4,7 +4,7 @@ Ronye kept thinking over Kirito's words all the time after an unexpected tea cer
 
 Neither over a story about the other side of the end wall of the world nor the fact that the world is spherical nor regarding traveling to the moon. She was rather thinking about the topic that first popped up, a possibility of a “new war”.
 
-Ronnie also thought that the wealth of the Human World will certainly continue to accumulate dissatisfaction among sub-people. However, actual war – the one that comes as an armed invasion, — to be honest it was hard to believe in this.
+Ronye also thought that the wealth of the Human World will certainly continue to accumulate dissatisfaction among sub-people. However, actual war – the one that comes as an armed invasion, — to be honest it was hard to believe in this.
 
 As now the "Peace Treaty of the Five Peoples"<sup><a href="#Prim1">1</a></sup> was concluded with the Dark Territory which should be clearly known to all races. Although it is a primitive law compared to ones of Human World, there was a prohibition of both killing and properly plundering there.
 
@@ -56,11 +56,11 @@ After pulling the air in again, Ronye asked fearfully.
 
 To that, Tiese lowered her gaze to the floor in front of her and gave a short nod.
 
-Ronnie held the question of who made the proposal, which was naturally ready to jump out of her mouth. That time there was only one male who might propose the marriage to Tiese. It was senior integrity knight "Twin Edged Wings" Renri Synthesis Twenty-Seven.
+Ronye held the question of who made the proposal, which was naturally ready to jump out of her mouth. That time there was only one male who might propose the marriage to Tiese. It was senior integrity knight "Twin Edged Wings" Renri Synthesis Twenty-Seven.
 
 It was obvious from the time of the Foreign world war that he has feelings to Tiese. It could be said that it was rather late proposal than surprising one.
 
-Ronnie was about to say "congratulations" imaging the figure of a young male knight who always keeps a light smile.
+Ronye was about to say "congratulations" imaging the figure of a young male knight who always keeps a light smile.
 
 However, still looking downwards Tiese quickly shook her head.
 
@@ -82,7 +82,7 @@ Ronye sharply breathed in.
 
 But he has left this world.
 
-Ronnie believed that her redheaded best friend overcame that sorrow. Hoped, that she saved precious memories like jewels deeply in the heart and began walking forward again.
+Ronye believed that her redheaded best friend overcame that sorrow. Hoped, that she saved precious memories like jewels deeply in the heart and began walking forward again.
 
 But a transparent drop spilled from red eyelashes to the cheek told her that she was wrong.
 
