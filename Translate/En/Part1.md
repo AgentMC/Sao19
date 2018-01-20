@@ -197,7 +197,7 @@ She shouted while pulling the sleeve of Kirito 's strange clothes.
 
 "Well, you didn’t think that we plan to discharge all twenty thermal elements at the same time, which will clearly blow out the entire thing, did you!? This is done similar to a cathedral elevator."
 
-"Yup, since the nozzle is adjustable and initially sealed, you can raise or lower the pressure in the venison. Nothing is better to fly the skies than the explosive power of a thermal element..."
+"Yup, since the nozzle is adjustable and initially sealed, you can raise or lower the pressure with the flow of aerial elements. Nothing is better to fly the skies than the explosive power of a thermal element..."
 
 Finally smiling, Kirito turned around.
 
@@ -231,7 +231,7 @@ _Such activity at this state of the elements, what will happen if we release it?
 
 Asuna next to her answered in a loud but trembling voice.
 
-"Thank you, then keep the circuit as it is"
+"Thank you, then keep en eye on the circuit."
 
 "I will"
 
@@ -286,7 +286,7 @@ Ronye shouted louder, aspiring to hide her heating eyes from Asuna standing next
 
 『Four! Three! Two! 』
 
-The sound of the machine dragon is increasing rapidly. The dull silver shining violently shakes and the light leaking from the bottom tube changes color from red to orange and yellow.
+The sound of the machine dragon is increasing rapidly. The dull silver shining surface violently shook and the light leaking from the bottom tube changed color from red to orange and yellow.
 
 『One! ...... Zero!! 』
 
@@ -320,7 +320,7 @@ _If the dragon remains in one place on the ground, the surrounding space sacred 
 
 As soon as she thought this, Ronye felt that she realized the true intention of the Human World Prime Swordsman.
 
-Kirito’s goal is not just to just fly ── perhaps, with the machine dragon, even the "end wall of the world" that no creature can cross, may be surpassed.......
+_Kirito’s goal is not just to just fly ── perhaps, with the machine dragon, even the "end wall of the world" that no creature can cross, may be surpassed......._
 
 However, the moment her thoughts reached that far.
 
