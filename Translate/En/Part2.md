@@ -100,7 +100,7 @@ But there are a few exceptions.
 
 Specifically, from all the former aristocrats in Centoria, two people were brought into an Integrity Knights apprenticeship: Ronye of the house Arabel, and Tiese of the house Shtolienen.
 
-Last month Ronye returned to her parents' house for the first time after she became a knight apprentice. Parents and younger brothers whom she hasn’t seen for the whole year were all happy, especially her younger brother, a student of Northern Centoria Sword Masters Academy, who tried to swing Ronye's sword — and could not even draw it — than challenged Ronye to arm-wrestling — and wasn’t able to push in half a cen — which made him terribly excited. Her father asked about the life in Cathedral, her mother's cooking was as delicious as ever, it was a fun night.
+Last month Ronye returned to her parents' house for the first time after she became a knight apprentice. Parents and younger brother whom she hasn’t seen for the whole year were all happy, especially her younger brother, a student of Northern Centoria Sword Mastery Academy, who tried to swing Ronye's sword — and could not even draw it — than challenged Ronye to arm-wrestling — and wasn’t able to push in half a cen — which made him terribly excited. Her father asked about the life in Cathedral, her mother's cooking was as delicious as ever, it was a fun night.
 
 The next day, three father's older brothers and their families unexpectedly arrived very early, and they brought plenty of gifts.
 

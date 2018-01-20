@@ -388,9 +388,9 @@ A shadow unexpectedly spread his arms.
 
 The part of the sleeves fabric stretched after them melting and changing shape to thin wings extending from the shoulders.
 
-When dragon-like wings similar fluted twice, three times, the speed of the fall decreased and eventually it completely stopped.
+When dragon-like wings fluted twice, three times, the speed of the fall decreased and eventually it completely stopped.
 
-The flight technique that should have been lost with the death of the Highest Priest. No, it was not actually a sacred art. It was only possible by incarnation to rewrite the “world’s logic” to transform the fabric of clothing into genuine wings and become a creature allowed to fly in the sky.
+The flight technique that should have been lost with the death of the Highest Priest. No, it was not actually a sacred art. It was only possible by incarnation to rewrite the “matter of the world” to transform the fabric of clothing into genuine wings and become a creature allowed to fly in the sky.
 
 There was no other person capable of doing such things at the moment. The watchers looking up roared all at once, and eventually the roar turned into a huge cheer and applause.
 
