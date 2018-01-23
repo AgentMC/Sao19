@@ -171,7 +171,7 @@ Smiling Fanatio left her and headed for the exit. The meeting was already over, 
 
 She heard the whispering voice of amazed Kirito, standing with half a fearful face. Next to him stood Asuna wearing a subtle smile.
 
-"Well, well, as they will become knights and ride the dragons, isn’t it a good thing to be accustomed to high places?"
+"Well, well, as they will become knights and ride the dragons, isn’t it a good thing for kids to be accustomed to high places?"
 
 "With this baby and Scheta’s one, the future seems more and more uncer...... tain, I mean fun."
 
@@ -229,7 +229,7 @@ And already from there, he shouted in a loud voice to Ronye, who let her hands f
 
 In the large kitchen on the 10th floor Ronye found round cakes with plenty of sugar icing with called Yukimomo ─ that was chief’s special, ─ put one in a basket with a pot of tea and headed to the 80th floor of Cathedral.
 
-The automatic elevator she took swiftly lifted her. This device was once operated by the hand of a human, but now the girl who was working like some sort of automate has been liberated from her awful job and they say now she is anticipated as an owner of an outstanding aerial sacred art skill and holds apposition in the arsenal.
+The automatic elevator she took swiftly lifted her. This device was once operated by the hand of a human, but now the girl who was working like some sort of automate has been liberated from her awful job and they say now she is anticipated as an owner of an outstanding aerial sacred art skill and holds a position in the arsenal.
 
 The 80th floor of the Central Cathedral known as "The Cloudtop Garden", was an indoor flower garden. In the middle of the vast grassland fully covered with innumerable flowers, on the top of a smoothly raised hill there was a figure of a Human World Prime Swordsman in his black clothes.
 
@@ -237,7 +237,7 @@ Kirito stood with a right hand on the young olive tree<sup><a href="#Prim5">5</a
 
 "Oh, sorry I had to bother you."
 
-"It’s nothing, because this is also a responsibility of a trainee."
+"It’s nothing, because this is also a responsibility of a valet."
 
 Returning a smile, Ronye quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Kirito whose eyes shined like those of a child. She took a slice for herself and for Tsukigaki, poured tea into two cups and said "Here you are".
 
@@ -335,8 +335,7 @@ After thinking a bit in the same direction with Kirito, Ronye suddenly looked ba
 
 "And what was it?"
 
-"Why do you want to cross the end wall!
-
+"Why do you want to cross the end wall!  
 Because I am so long by the side of Kirito-senpai, I know the feelings of senpai who wants to get over if there are walls…... but I think nowadays there are various …… more important things"
 
 Although she felt the need to say that vigorously, she realized that it was more like a sermon, and shrugged her neck. Kirito tapped Ronye’s shoulder lightly.
@@ -528,6 +527,6 @@ And then two humans and one dragon for quite some time looked up at the semicirc
 3. <a name="Prim3"></a>Her pearl skirt left it, I guess?
 4. <a name="Prim4"></a>Literally “snow peach”.
 5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
-6. <a name="Prim6"></a>…anymore, see Vol.18
+6. <a name="Prim6"></a>…anymore, see Vol.17-18
 7. <a name="Prim7"></a>See [here](https://en.wikipedia.org/wiki/Noblesse_oblige).
 8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigaki” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigaki”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.

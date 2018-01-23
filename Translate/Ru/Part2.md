@@ -137,229 +137,228 @@ _── Прости, папа. Мама. Может, я и не выйду ни
 
 ***
 
-### Продолжение завтра
+Малыш Берчи проснулся в её руках, прервав тяжкие мысли Ронье тихим похныкиванием.
 
-Baby Berchie in her arms woke up and interrupted Ронье's thoughts with a small sob.
+Она сразу же попыталась укачать его неумелыми движениями. Но хныканье не прекращалось.
 
-Hastily, she gently rocked him with awkward hand movements. But there was no sign of sobs stopping.
+"Ну же, будь хорошим мальчиком."
 
-"Hey, good boy, good boy."
+И хоть она старалась как могла успокоить его, лицо младенца покраснело и исказилось, показывая что тот готов разреветься —
 
-Though she tried hard to comfort him but the face of the baby instantly dyed red and distorted, ready to transition to crying ─
+Но за мгновенье до того, вытянувшиеся спереди руки подняли недовольного ребёнка.
 
-Just before that, hands stretched from the front and lifted the disgruntled boy.
+"Этот ребёнок так просто не успокоится."
 
-"He won’t be satisfied with that, this child"
+Сказавшей это была его мать, командир рыцарей Фанатио. На её прекрасном лице, обрамлённом тёмными волосами, играла чарующая улыбка.
 
-Who was standing there was his mother, the knight commander Фанатио. Smile full of charm on a beautiful face framed with smooth black hair.
+"Полетай!"
 
-"Sail high!"
+Иными словами, она подбросила малыша Берчи вверх без какой-либо поддержки. Её жест был полон лёгкости, однако выполнен он был с силой, которой обладал сильнейший Рыцарь Целостности.
 
-In other words, she tossed baby Berchie free of support straight up. It was a completely light gesture, but made with the strongest Integrity Knight's strength.
+Вращаясь, ребёнок взлетал высоко в воздух, приближаясь к высоченному потолку “Великого коридора Духовного Света”.
 
-As the child swirled around, it risen high in the air, aiming for the tremendously high ceiling of the “Great Corridor of the Spiritual Light”.
+"Нааа....... Фунааа......ах, абууу......!" 
 
-"Nah....... Fuanah...... ah, aboo......!" 
+Ронье замерла, удивившись его странному голосу. Малыш остановился в точке, где он едва не коснулся картины на потолке, изображавшей богов, и начал падать прямо вниз.
 
-Ронье froze at his strange voice. The boy stopped at the point where he almost touched the ceiling picture depicting gods, and started to fall straight down.
+Опять-таки, он упал точно в руки своей матери. После чего сразу же засмеялся и стал издавать радостные звуки.
 
-And again, he fell precisely in both hands of his mother. Immediately he started to laugh and make loud joyful sounds.
+"Воистину, будущее всё больше беспокоит меня. Ронье, спасибо, что приглядела за ним. Теперь уж и я постараюсь."
 
-"Indeed, the future concerns me. Ронье, thanks for looking after him. I will do my best from now on."
+Улыбаясь, Фанатио оставила её и направилась к выходу. Совещание было окончено, так что за ней последовали Дюсольберт и главы департаментов.
 
-Smiling Фанатио left her and headed for the exit. The meeting was already over, so Дюсольберт and the heads of departments also followed.
+"......ну, значит и вот так детей тоже воспитывают......"
 
-"...... that’s another method of bringing up a kid......"
+Она услышала шёпот поражённого Кирито, стояжего с наполовину испуганным лицом. Рядом с ним была Асуна, слегка улыбаясь.
 
-She heard the whispering voice of amazed Кирито, standing with half a fearful face. Next to him stood Асуна wearing a subtle smile.
+"Но ведь если в будущем дети станут рыцарями и будут летать на драконах, не лучше ли их сразу приучать к высоте?"
 
-"Well, well, as they will become knights and ride the dragons, isn’t it a good thing to be accustomed to high places?"
+"Учитывая этого малыша и ребёнка Шейты, будущее видится всё более и более неопреде...... в смысле, скучать не придётся."
 
-"With this baby and Шейта’s one, the future seems more and more uncer...... tain, I mean fun."
+Качая головой, Кирито стоял, уперев руки в бока.
 
-Shaking his head Кирито put hands on his waist.
+"Раз на сегодня с работой покончено, пора бы мне взглянуть как там идёт подготовка к запуску Версии 2..."
 
-"As today's work has been done, I got to take a little look at the state of Version 2..."
+"О, ааааа? Ты уже следующую готовишь?"
 
-"Oh, uhhhhhhhh? Are you ready for the next one?"
+"Она потрясная — там добавлен компрессор между термальным движком и соплами, прям турбо......."
 
-"That one is amazing — there is a fumes compressor between the thermal engine and the thruster, such a turbo......."
+"Хэй, Кирито-кун, позаботься-ка о безопасности прежде чем повышать мощность!"
 
-"Well, Кирито-kun, I’d say you must be doing something about safety before increasing the power!"
+Пока они вели этот разговор, где священных слов было больше, чем нормальных, Ронье подняла руку.
 
-While they were having that conversation where there were more sacred words then normal ones, Ронье managed to raise her hand.
+"А, это....... Простите, Кирито-сенпай..."
 
-"Ah, that ....... Sorry, Кирито-сенпай ..."
+"Хмм?"
 
-"Hmm?"
+"О, я спрос...... Я кое-что спросить хотела......."
 
-"Oh, I, a question...... I have something I'd like to ask......."
+Удивлённый Кирито поморгал глазами, но затем мягко улыбнулся и кивнул.
 
-Surprised Кирито blinked his black eyes for a moment, but soon gently smiled and nodded.
+"А, хорошо. Раз так, почему бы нам не устроить немного раннее чаепитие. Что думаешь, Асуна?"
 
-"Oh, good. Well then, why don’t we have a little early tea. What do you think Асуна?"
+Стоявшая в направлении его взгляда Вице-Премьер-Мечник отозвалась "Умм".
 
-At the direction of his line of sight, the Vice-Премьер-Мечник raised a voice "Umm".
+"Я бы с удовольствием, но у меня запланирована лекция по священному искусству в большой библиотеке."
 
-"I'd like to go out with you, but after this I am supposed to take a sacred art lecture at the big library."
+"Понял. Уж лучше не пропускать. Эти библиотекари нового поколения такие страшные......"
 
-"I see. The second-generation librarians are so scary. It is better not and skip......"
+"Только для несерьёзных студентов."
 
-"Only for non-serious students"
+Усмехнувшись и похлопав Кирито по спине, Асуна отошла на шаг и повернулась к Ронье.
 
-Smiling at Кирито and patting him on the back, Асуна went a step away and turned to Ронье.
+"Что же, во время чаепития, Ронье-сан, убедись, пожалуйста, что Кирито не ест слишком много сладкого."
 
-"Well, at the tea time, Ронье-сан, please make sure Кирито does not eat to many sweets"
+"Я, я поняла!"
 
-"I, I understood!"
+Ронье кивнула и посмотрела на Кирито, бормотавшего нечто неопределённое, пока Асуна шла прочь, оставляя за собой радужное отражение<sup><a href="#Prim3">3</a></sup>. Кирито дождался, пока её спина исчезла в большой южной двери и развернулся.
 
-Ронье lowered her head and glanced at Кирито who babbled something unclear while Асуна walked away leaving a rainbow-colored reflection<sup><a href="#Prim3">3</a></sup>. Кирито waited until her back disappeared in the big southern door and turned around.
+"Отлично. Так, давай-ка...... давненько там не был, не против пойти на 80й этаж? И Ронье, я бы не отказался от торта Юкимомо<sup><a href="#Prim4">4</a></sup>."
 
-"Well then. So, let’s...... haven’t been there for a long time, would you like to go to the 80th floor? And Ронье, I want to have the Yukimomo<sup><a href="#Prim4">4</a></sup> cake."
+"Так точно. Я принесу кусок с кухни."
 
-"Affirmative. I’ll fetch some from the kitchen."
+"Я бы сказал, что лучше пару... нет, пожалуй, три куска, в общем, ты тащи, а я буду ждать там!"
 
-"I’d say best is two... well, better three pieces, well then you get’em and I go ahead!"
+И не оставив Ронье ни единого шанса что-либо возразить, Кирито исчез в северной двери, ведущей к шахте лифта.
 
-Without giving Ронье a single chance to pinch his mouth, Кирито disappeared in the northern door leading to the lift shaft.
+И уже оттуда он прокричал Ронье, руки которой бессильно упали на шею подошедшего Цукигаки.
 
-And already from there, he shouted in a loud voice to Ронье, who let her hands fall down onto the neck of Tsukigaki approaching her.
-
-"...It would be better to take the whole thing."
+"...А вообще, знаешь, лучше целый принеси."
 
 ***
 
-In the large kitchen on the 10th floor Ронье found round cakes with plenty of sugar icing with called Yukimomo ─ that was chief’s special, ─ put one in a basket with a pot of tea and headed to the 80th floor of Собор.
+В большой кухне 10го этажа Ронье нашла круглые торты с большим количеством сахарной глазури под названием Юкимомо ─ особое блюдо от шефа, ─ положила один в корзину вместе с чайным набором и направилась на 80й этаж Собора.
 
-The automatic elevator she took swiftly lifted her. This deВице-was once operated by the hand of a human, but now the girl who was working like some sort of automate has been liberated from her awful job and they say now she is anticipated as an owner of an outstanding aerial sacred art skill and holds apposition in the arsenal.
+Автоматический лифт, которым она воспользовалась, быстро вознёс её наверх. Это устройство когда-то управлялось рукой человека, но теперь та девушка, что раньше работала, словно какой-то автомат, была освобождена от своей ужасной работы, и поговаривали, что за счёт её высоко оценённых навыков работы с воздушными элементами она получила должность в арсенале.
 
-The 80th floor of the Центральный Собор known as "The Cloudtop Garden", was an indoor flower garden. In the middle of the vast grassland fully covered with innumerable flowers, on the top of a smoothly raised hill there was a figure of a Мира Людей Премьер-Мечник in his black clothes.
+80й этаж Центрального Собора, известный под названием "Заоблачный сад", был внутренним цветочным садом. В середине широкой лужайки, усыпанной бесчисленными цветами, на верхушке пологого холма, стояла фигура Премьер-Мечника Мира Людей, облачённого в свой чёрный наряд.
 
-Кирито stood with a right hand on the young olive tree<sup><a href="#Prim5">5</a></sup> planted in the center of the hill, but smiling turned around when Ронье approached.
+Кирито стоял, положив руку на молодую оливу<sup><a href="#Prim5">5</a></sup>, посаженную в середине холма, но развернулся, улыбаясь, когда Ронье приблизилась.
 
-"Oh, sorry I had to bother you."
+"Прости, что пришлось тебя побеспокоить."
 
-"It’s nothing, because this is also a responsibility of a trainee."
+"Нет-нет, таковы обязанности камердинера."
 
-Returning a smile, Ронье quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Кирито whose eyes shined like those of a child. She took a slice for herself and for Tsukigaki, poured tea into two cups and said "Here you are".
+Улыбнувшись в ответ, Ронье быстро расстелила плед. Она достала из корзины блюда и передала нарезанный большими ломтями торт Кирито, глаза которого засияли, как у ребёнка. Она отрезала кусок себе и Цукигаки, разлила чай по двум чашкам и сказала "Вот, пожалуйста".
 
-"Enjoy the meals!"
+"Приятного аппетита!"
 
-Shouting, Кирито started stuffing his mouth as if competing with the dragon. Watching this picture, Ронье was feeling warmth spreading from the deep of her chest.
+Выкрикнув, Кирито начал набивать рот, будто бы соревнуясь с драконом. Наблюдая за этой картиной, Ронье почувствовала как из глубин её груди распространяются волны тепла.
 
-_In times like now, when I can stay with Кирито like this and have this comforting feeling, I only wish one thing. I wish I had time freeze sacred art...... then, I’d freeze this moment forever._
+_В подобные дни, когда я могу вот так проводить время с Кирито, ощущая это тёплое чувство, я мечтаю только об одном. Чтобы я знала священное искусство, способное останавливать время...... и тогда, я бы остановила этот миг навечно._
 
-But of course, there’s no sacred art of time manipulation<sup><a href="#Prim6">6</a></sup>. One can’t go back in time, it can’t be stopped, it keeps constantly flowing towards the future.
+Но конечно, священного искусства, управляющего временем, не существовало<sup><a href="#Prim6">6</a></sup>. Нельзя было отправиться назад во времени, затормозить его, оно всё продолжало неустанно плыть в будущее.
 
-Because of the nature of the time, this world has overcome the greatest crisis and thus it was possible to obtain perfect peace. Someday Ронье will be officially appointed to be an Integrity Knight, and the day will come when she rides on the Tsukigaki’s back who grew up and soars the sky. Of course, she was looking forward to that time. But this very moment, another wish has engulfed her. _Stop, time, stop._
+Благодаря природе времени, этот мир смог преодолеть величайший кризис и прийти к долгожданному миру. Однажды Ронье официально назначат Рыцарем Целостности, и придёт тот день, когда она верхом на подросшем Цукигаки будет бороздить небеса. Конечно, она с нетерпением ждала этого момента. Но в тот момент, её целиком поглотило совершенно противоположное желание. _Остановись, время, остановись._
 
-"....... nye. Ронье?"
+"....... нье. Ронье?"
 
-Ронье who suddenly heard Кирито's voice, raised a startled face.
+Ронье, внезапно услышавшая голос Кирито's, подняла испуганное лицо.
 
-"Oh, I'm sorry! Another piece?"
+"Ой, простите! Ещё кусочек?"
 
-"No, well, I want it, but ... that's something else."
+"Нет, то есть да, я не против, но... я вообще-то о другом."
 
-Presenting an empty dish while saying so, Кирито slightly tilted his head.
+Передавая ей пустое блюдце, говоривший это Кирито слегка наклонил голову.
 
-"Certainly, have you not told me there’s something you want to ask me about?"
+"Точно, ты же сказала, что что-то хочешь у меня спросить?"
 
-"Ah……"
+"А……"
 
-Finally remembering her own words, Ронье hurriedly spoke.
+Наконец вспомнив собственные слова, Ронье затараторила.
 
-"I'm sorry! Well... that’s about that iron dragon my сенпай made, uh,... ”machine dragon” thing."
+"Ой, простите! Ну... это про того стального дракона, что сенпай сделал, эм,... ”искусственный дракон”, вот ту штуку."
 
-Кирито nodded while grudgingly devouring two pieces received from Ронье.
+Кирито кивнул, сосредоточенно поглощая два ломтя, полученные от Ронье.
 
-"Yup"
+"Ага"
 
-"Oh, somehow, I thought .... No, I was rather worried......."
+"А, в общем, я подумала.... Нет, даже, скорее меня обеспокоило......."
 
-Unconsciously throwing looks to the right and left, Ронье asked in a low voice.
+Неосознанно кидая быстрые взгляды по сторонам, Ронье спросила тихим голосом.
 
-"Could it be... сенпай is planning to .......jump over the "end wall of the world" with that machine dragon?
+"Может ли такое быть, что... сенпай собирается.......на искусственном драконе перепрыгнуть "стену конца мироздания"?
 
-As soon as Кирито heard this strange voice, he struck the air with his right hand while hitting his chest with his left hand. Ронье hurriedly grasped the cup of tea, drinking it all at once and let out a long breath.
+Как только Кирито услышал её неуверенный голос, он рубанул воздух перед собой правой рукой, а левой стукнул себя в грудь. Ронье быстро схватила чашку чая, выпила её сразу всю и выпустила долгий выдох.
 
-After that, the black-haired young man smiled like a mischievous child who had not changed at all since when they first met.
+После этого, черноволосый молодой человек улыбнулся, словно вредный ребёнок, что совсем не изменился с их первой встречи.
 
-"......something that I expect from a mentored trainee. An ability to keep secrets."
+"......есть кое-что, что я ожидаю от камердинера, которого наставлял. Способность держать язык за зубами."
 
-"Sure, yes, I can!"
+"Я, да, конечно!"
 
-"Yeah, well, I do."
+"Ну, в общем, собираюсь."
 
-Having nodded as if not saying anything special, Кирито sat rubbing his chin. Ронье stared at him for a moment, stunned.
+Кивнув, словно бы и не сказал ничего особенного, Кирито сидел почёсывая подбородок. Ронье на какое-то время уставилась на него, поражённая.
 
-The end wall of the world. It is the common name for the cliff of an infinite height surrounding the Underworld consisting of the Мира Людей and the Тёмной Территории.
+Стена конца мироздания. Так обычно называли утёс бесконечной высоты, окружавший Подмирье, состоявшее из Мира Людей и Тёмной Территории.
 
-It was too far from Centoria, so Ронье has seen it melting in the blue sky with her own eyes only once. While following Кирито she had visited the Mountain Goblin areal in the northern part of the Тёмной Территории, she noticed a breathtaking view of an incredible cliffing upstanding from behind the horizon.
+Она была слишком далеко от Центории, так что Ронье лишь однажды своими глазами видела её, растворяющуюся в небесной вышине. Вместо с Кирито посетив ареал горных гоблинов в северной части Тёмной Территории, поразилась захватывающему зрелищу невероятной громадины, растущей из-за горизонта.
 
-According to goblins’ stories, the wall seemed to be made of ultra-hard mineral, not soil. It was not easy to open a small hole especially digging a cave or staircase. It seems that everyone who tried to climb it in the history of 300 years encountered death.
+Гоблины рассказывали, что стена эта вроде как сделана из какого-то супер-прочного материала, не почвы. В ней было безмерно сложно просто проделать отверстие, не говоря уже о том, чтобы выкопать пещеру или лестницу. Судя по всему, всех, кто за 300-летнюю историю пытался взобраться наверх, постигла смерть.
 
-A similar tale is also in the Giant and Ogre tribes, and the wall is eventually the absolutely inviolable, as its name suggests, "the end wall of the world" is the boundary, which all the races living in the Тёмной Территории must respect.
+Похожие истории рассказывали в племенах гигантов и огров, о том, что эта абсолютно непреодолимая стена, как и предполагает её название, "стена конца мироздания" является границей, которую должны безоговорочно уважать все расы, живущие на Тёмной Территории.
 
-It should be ──
+Ну, или такой она должна быть ──
 
-"Ah, that, um"
+"А, это, умм..."
 
-Even though it was expected, Ронье was still largely surprised by the positive answer, so she worked though hard. After having a gulp of tea, somehow she managed to summarize the words.
+Хоть это и предвиделось, Ронье всё равно сильно удивилась утвердительному ответу, так что она с трудом собралась с мыслями. Глотнув чая, она, наконец, каким-то чудом сумела собрать слова в кучу.
 
-"......Umm....... So have сенпай already tried to cross the wall with your own flying technique?"
+"......Умм....... А сенпай не пытался уже пересечь стену своей собственной полётной техникой?"
 
-"Yup"
+"Ага."
 
-However, after nodding, Кирито immediately shook his head.
+Однако, кивнув, Кирито тут же замотал головой.
 
-"I tried and I gave up, neither the aerial sacred art nor the incarnation wind I created was good enough, it seems that the gravity increases indefinitely when approaching an altitude above a certain level ......"
+"Я пытался и потерпел поражение, ни священного искусства из воздушных элементов, ни инкарнационого потока ветра, который я создал, не было достаточно, похоже, при достижении определённой высоты  гравитация начинает бесконечно увеличиваться......"
 
-Leaning against the trunk of the olive, Кирито kept on speaking words as if explaining to himself.
+Опершись на ствол оливы, Кирито продолжал говорить, словно уговаривая сам себя.
 
-"... However, when I threw the knife straight up above the limit, it flew to a considerable height, so it did not refuse to allow all the objects, probably only those being classified as human type, and I tried to manipulate that but I could not change my unit ID even when I grew the wings... All in all, I think the last resort is to be completely sealed in some movable shell. Then we only have to bet on the possibility that the system recognizes that it as entirely non-alive object..."
+"... Однако, стоило мне бросить нож выше предела, и он подлетел весьма высоко, так что объекты оно не блокирует, наверное только единицы, относимые к человеческому типу, и я попытался это поэксплойтить, но не смог поменять свой unit ID, даже отрастив крылья... В общем и целом, я думаю, единственный вариант — это лететь, полностью поместившись в какую-то мобильную оболочку. Тогда остаётся только надеяться на ту возможность, что система воспримет её как целиком неживой объект..."
 
-It was hard to keep up with the story, and Ронье raised her hand.
+Ей было сложно успевать за этим потоком слов, и Ронье подняла руку.
 
-"That means, though a human of flesh and blood cannot overcome the wall, it may be possible to exceed its height if riding a metal dragon, right?"
+"То есть, хотя человек из плоти и крови и не может преодолеть стену, это может получиться, если лететь в металлическом драконе?"
 
-"Hmm……?"
+"Хммм……?"
 
-Кирито finally raised his face to her and after blinking several times began nodding.
+Кирито, наконец, поднял к ней свой взгляд, и немного поморгав, пустился кивать.
 
-"Oh, sure. Yes, yes, that's right. Actually, I already tried something like leather or paper airplane moved by sacred art or incarnation...... to tie off from a dragon. But it was in vain... It seems the movement of clothes and armor is considered the same as if I myself moved. It is necessary to fly with the power of the dragon. However, it’s a vicious circle because when it comes to resisting the high heat of thermal elements, it inevitably becomes metallic, but then considering the total weight you have to ensure enough power to take off, which increases the number of thermal elements required..."
+"Да, точно. Всё так и есть. Если честно, я уже даже пытался запустить что-то типа кожаного или бумажного самолёта...... чтобы не привязываться к идее дракона. Но всё было напрасно... Походе, движения брони и одежды эквивалентны самостоятельному движению. Нужно лететь с помощью дракона. Однако, тут я упираюсь в замкнутый круг, потому что как только задумываешься о сопротивлении термальным элементам, то неизбежно приходишь к металлическому варианту, но учитывая, как это влияет на общий вес, приходится увеличивать подъёмную силу, что, в свою очередь, увеличивает количество термальных элементов..."
 
-"Um, ha... it's a difficult thing......."
+"Ум, да... сложно......."
 
-After thinking a bit in the same direction with Кирито, Ронье suddenly looked back to him.
+Подумав немного, глядя в том же направлении, что и Кирито, Ронье внезапно повернулась обратно к нему.
 
-"No, it’s different! That, what I wanted to ask......"
+"Нет, другое! То, о чём я хотела спросить......"
 
-"And what was it?"
+"И о чём же?"
 
-"Why do you want to cross the end wall!
+"Почему вы хотите пересечь стену!  
+Я давно знаю Кирито-сенпая, я знаю чувства сенпая, его стремление преодолеть все преграды…... но мне кажется на сегодня есть другие…… более важные вещи."
 
-Because I am so long by the side of Кирито-сенпай, I know the feelings of сенпай who wants to get over if there are walls…... but I think nowadays there are various …… more important things"
+Она попыталась высказать свои мысли серьёзно, но поняла, что это прозвучало скорее как упрёк, и втянула голову в плечи. Кирито похлопал Ронье по плечу.
 
-Although she felt the need to say that vigorously, she realized that it was more like a sermon, and shrugged her neck. Кирито tapped Ронье’s shoulder lightly.
+"Спасибо, Ронье. Ты всегда заботилась, чтобы я чего-то не того не удумал."
 
-"Thank you, Ронье. You always worry I don’t think anything wrong."
+Она засмеялась, а сердце радостно подпрыгнуло. Было бы очень трудно скрыть эти чувства. Но Кирито, словно бы ничего и не заметив, сложил руки за головой и отвёл взгляд вдаль.
 
-She laughed and her heart suddenly began to jump. It was hard to hide these feelings from being noticed. Showing no appearance of noticing Ронье’s state, Кирито put his hands to the back of his head and turned his eyes away.
+"........... но, я думаю, что на сегодняшний день преодоление этой стены — это главный приоритет всего Подмирья."
 
-"........... but, I think that crossing that wall is the top priority task in the Underworld now."
+"Но... что это значит?"
 
-"Well... what does that mean?"
+"......Не говори никому, даже Тейзе и Фанатио."
 
-"...... Do not tell anyone else, even Тейза and Фанатио."
+Внезапно услышав такое, она широко открыла глаза, но каким-то чудом сохранила спокойствие.
 
-Suddenly having heard such a thing, she opened her eyes wide but somehow stayed calm.
+Но действительно поразилась она следующим словам Кирито.
 
-But truly amazing were words of Кирито that followed.
+"── Дело в том, что война разгорится вновь."
 
-"── The thing is, the war will start once again."
+"............! Нет, не может быть ...... Ведь только-только настало мирное время..."
 
-"............! No, no way ...... The peaceful era has just finally come..."
+### Продолжение завтра
 
 Drawing a deep sigh, Кирито shook his head with a difficult face.
 
@@ -526,10 +525,10 @@ And then two humans and one dragon for quite some time looked up at the semicirc
 ## Footnotes:
 
 1. <a name="Prim1"></a>Здесь: сугубо официальный хонорифик, используемый при обращении к вышестоящему офицеру.
-2. <a name="Prim2"></a>Какое-то насекомое из Подмирья, судя по всему, зависящее от воды. Тут какая-то игра слов, но я не смог её нагуглить, извините.
-3. <a name="Prim3"></a>Her pearl skirt left it, I guess?
-4. <a name="Prim4"></a>Literally “snow peach”.
-5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
-6. <a name="Prim6"></a>…anymore, see Vol.18
+2. <a name="Prim2"></a>Какое-то насекомое из Подмирья, судя по всему, зависящее от воды. Тут определённо игра слов, но я не смог её нагуглить, извините.
+3. <a name="Prim3"></a>Я так полагаю, его оставила её жемчужная юбка?
+4. <a name="Prim4"></a>Буквально “снежный персик”.
+5. <a name="Prim5"></a>Кандзи для этой разновидности османтуса используется конкретно для вида, называемого “ароматная олива”.
+6. <a name="Prim6"></a>…более, см. тома.17-18
 7. <a name="Prim7"></a>See [here](https://en.wikipedia.org/wiki/Noblesse_oblige).
 8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigaki” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigaki”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.
