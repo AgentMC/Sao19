@@ -334,7 +334,7 @@ Besides two smiling men, who shook her head in amazement was Шейта, still h
 
 Исукан pushed out the guards who ran inside through the door after hearing the roar and blocked it with two legs from a chair, then lined up some other chairs by the window.
 
-Of course, the guards were doubtful of Кирито and Ронье, but either due to the "Law of the Strongest" or maybe because of Исукан’s authority, they were convinced by the commander's comment "Worry not, I’ll explain later".
+Of course, the guards were doubtful of Кирито and Ронье, but either due to the "Закону Сильнейшего" or maybe because of Исукан’s authority, they were convinced by the commander's comment "Worry not, I’ll explain later".
 
 As the guards had gone away the nine o'clock bells rang and the baby woke up as if it was a signal for getting up, and began to cry. Шейта lifted her up from the bed and they sat together on one of the chairs; the child began to drink milk from a baby bottle made of fibo fruit, same as in Мира Людей.
 
@@ -396,7 +396,7 @@ She instinctively rounded eyes hearing the description from Кирито.
 
 Исукан sighed and added.
 
-"The problem is that human being killed... It would be impossible......For everyone who are going on sightseeing in Мира Людей, I have letters in writing saying that fighting and killing is prohibited by the name of Тёмной Территории tribe leaders and the commander of the Тёмной Территории himself. One by one, I have signed all of them... As long as there is a "the law of the strongest", only one person can ignore that order in the dark world."
+"The problem is that human being killed... It would be impossible......For everyone who are going on sightseeing in Мира Людей, I have letters in writing saying that fighting and killing is prohibited by the name of Тёмной Территории tribe leaders and the commander of the Тёмной Территории himself. One by one, I have signed all of them... As long as there is a "the Закону Сильнейшего", only one person can ignore that order in the dark world."
 
 The moment Ронье thought it was, of course, that Исукан himself, Шейта added:
 
@@ -516,7 +516,7 @@ To Кирито who had a surprised expression on his face painted dark, Ису�
 
 The shoulder of Кирито retreating as far as the chair back allowed was gently patted with Исукан’s stretched left hand.
 
-"Well, then come to the training hall of the fighting team after the knight team as well. There are quite a few people who doubt your strength, so please take this opportunity to force the “Law of the Strongest”."
+"Well, then come to the training hall of the fighting team after the knight team as well. There are quite a few people who doubt your strength, so please take this opportunity to force the “Закону Сильнейшего”."
 
 "I do not care about it! I have civil ambitions!"
 

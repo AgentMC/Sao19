@@ -169,7 +169,7 @@ _── Прости, папа. Мама. Может, я и не выйду ни
 
 "......ну, значит и вот так детей тоже воспитывают......"
 
-Она услышала шёпот поражённого Кирито, стояжего с наполовину испуганным лицом. Рядом с ним была Асуна, слегка улыбаясь.
+Она услышала шёпот поражённого Кирито, стоящего с наполовину испуганным лицом. Рядом с ним была Асуна, слегка улыбаясь.
 
 "Но ведь если в будущем дети станут рыцарями и будут летать на драконах, не лучше ли их сразу приучать к высоте?"
 
@@ -311,7 +311,7 @@ _В подобные дни, когда я могу вот так проводи
 
 Однако, кивнув, Кирито тут же замотал головой.
 
-"Я пытался и потерпел поражение, ни священного искусства из воздушных элементов, ни инкарнационого потока ветра, который я создал, не было достаточно, похоже, при достижении определённой высоты  гравитация начинает бесконечно увеличиваться......"
+"Я пытался и потерпел поражение, ни священного искусства из воздушных элементов, ни инкарнационного потока ветра, который я создал, не было достаточно, похоже, при достижении определённой высоты  гравитация начинает бесконечно увеличиваться......"
 
 Опершись на ствол оливы, Кирито продолжал говорить, словно уговаривая сам себя.
 
@@ -358,169 +358,167 @@ _В подобные дни, когда я могу вот так проводи
 
 "............! Нет, не может быть ...... Ведь только-только настало мирное время..."
 
-### Продолжение завтра
+Глубоко вздохнув, Кирито со сложным выражением на лице покачал головой.
 
-Drawing a deep sigh, Кирито shook his head with a difficult face.
+"Прости, но вряд ли это надолго....... Великие Восточные врата рухнули, запущен проект по обмену, и множество туристов из Тёмной Территории посещают нас. Даже сейчас они наслаждаются обетованными пейзажами и едой. Но рано или поздно, они заметят. То, чем наши миры в корне отличаются."
 
-"I am sorry, but will probably not last for long. ...... The Great Eastern Gate collapsed, the exchange project of two worlds began, and a lot of tourists came from the Тёмной Территории. Right now, they are enjoying promised landscapes and food. But, everyone will eventually notice. That two worlds have crucial difference."
+"Отличаются...?"
 
-"A difference...?"
+"Ага. Земля Мира Людей плодородна, а в Тёмной Территории — ужасно бедна. Ты и сама видела это, Ронье, это кроваво-красное небо и угольно-чёрную землю....... Единственное место, где  плодородных земель хватает — вокруг столицы Обсидии, но её эксклюзивно контролируют люди. На данный момент, орки, гоблины и гиганты в целом усмирены, но недовольство будет постоянно нарастать....... Мы с Асуной старались изо всех сил, чтобы сделать возможным возделывание земель суб-людей, но всё было напрасно. Пространственных ресурсов...... поток священной силы там безмерно мал."
 
-"Ara. Мира Людей's land is so rich and the Тёмной Территории is awfully poor. You saw it Ронье, that bloody sky and the charcoal black ground....... The only place where they have plenty of rich ground is around the capital city of Obsidia, but humans are exclusively controlling it. Right now, goblins, orks and giants are mostly calmed down again, but dissatisfaction is steadily accumulating. ...... Me and Асуна worked hard to make it possible to plant the territory of sub-people, but it was useless. Spatial resources ...... The supply of sacred power is hopelessly small."
+Ронье беззвучно слушала слова Кирито.
 
-Ронье listened to words of Кирито without a sound.
+В её голове и вправду вспыхнула картина пустынной Тёмной Территории. Но до этого момента она никогда не задумывалась об этом с такой точки зрения. Ни одной идеи, как с этим бороться, к ней в голову не приходило.
 
-Indeed, the desolated view of the Тёмной Территории was burning in her mind. But until now, she never thought about it from such perspective. Not a single idea of how to handle it came to her mind.
+"...... сенпай...... я..."
 
-"...... сенпай...... I ..."
+Чёрные глаза Кирито встретились со взглядом бормотавшей Ронье, и он по-доброму её улыбнулся.
 
-Кирито’s black eyes met muttering Ронье and he smiled softly.
+"Извини, я не виню тебя, Ронье. Выбора нет, ведь Подмирье изначально создавалось именно таким. Его единственная цель — война между бедной Тёмной Территорией и богатым Миром Людей. И ведь эта война действительно случилась, и лишь ценой множества жертв нам едва удалось избежать худшего конца. Я никогда не позволю подобному повториться, ради жизней тех, кто пал на том  поле боя."
 
-"I'm sorry, I do not blame Ронье. There is no choice, the Underworld is made from the beginning like that. The only goal is the war between the poor Тёмной Территории and the rich Мира Людей. And the war began in fact, with so many sacrifices, and we barely avoided the worst ending possible. I will never let the same thing happen again, for the sake of lives lost in that battle."
+"Но тогда, что же нам делать...?"
 
-"But, then, what shall we do ...?"
+"Ответ тут лишь один. Суб-люди не должны довольствоваться обиталищем у дальних границ Тёмной Территории, куда их неизбежно вытеснили, им нужна страна, которой они могли бы гордиться. Не "ареал суб-людей". Настоящая страна."
 
-"There is only one answer. For sub-people, it should not be an inhabitation at the remote boundaries of the Тёмной Территории that they were inevitably dislodged to, they need a country they can be proud of. Not a land of "sub-people". A real country."
+"Настоящая...... страна."
 
-"Real ...... country"
+Ронье, до того не всегда поспевавшая за полётом мысли Кирито, на этот раз мгновенно поняла точное значение его слов.
 
-Ронье previously was trying to keep up with the story of Кирито as much as she could, but she felt she could instantaneously understand the clear meaning of those words.
+Ронье своими глазами видела лишь территорию горных гоблинов. Они обитали в холмистой области, простиравшейся на северо-восток прямо от Великих Восточных Врат. В земле не росла пшеница, в воде не плавала рыба, это буквально была пустошь.
 
-It is only the territory of mountain goblin tribe that Ронье saw with her own eyes. They dwell in hilly areas progressing all the way from the Great Eastern Gate to the northeast. Wheat does not grow in the ground, fish do not live in the water, it is a literal desolation.
+Кроме того, и вождь Хагаши, и его первенец вождь Косоги пали один за другим на поле боя, и пока шли выборы нового вождя, восстановление племени не очень-то двигалось вперёд. В прежние дни, когда Тёмная Территория следовала лишь "Закону Сильнейшего", его бы совершенно точно уничтожили бы гиганты или орки, а может быть и равнинные гоблины.
 
-Besides, both chieftain Hagashi and his first-born child chief Kosogi fell one after another, and while a new chief was being chosen, the tribal reconstruction hasn’t progressed too well. In the earlier days when the Тёмной Территории followed only "Law of the Strongest", it would have been destroyed by the giant or the ork tribe, possibly the flat goblin tribe.
+Ронье, посетившая их землю вместе с Кирито, лишилась слов от вида больных гоблинов, оставленных лежать на подстилках из тонкой соломы, и плачущих слабых голодных детей. Пусть худшее развитие событий и было ненадолго отдалено большим количеством гуманитарной помощи, привезённой из Мира Людей, но в корне это проблему не решило. Эта скудная земля просто не способна была поддерживать плодовитую гоблинскую популяцию.
 
-Ронье who visited their land following Кирито lost her words to the sight of sick goblins left on the beds of the poor straw and crying weak hungry children. Even if the worst situation is pushed back by a large amount of emergency supplies brought from the Мира Людей, it will not be a fundamental problem resolution. In that land one simply couldn’t support the prolific goblin population in the first place.
+Но Ронье до этого дня не пыталась задумываться об их "будущем". Наоборот, она пыталась их забыть. Фигуры гоблинских детей, толкающихся и дерущихся друг с другом, как ненормальные, лишь бы урвать себе не такие уж и вкусные жёсткие хлебцы из её рук.
 
-But Ронье did not try to think about their "future" until now. No, she tried to forget them. Figures of goblin children who galling and hitting each other like crazy trying to fetch not so tasty hard-baked breads from her own hands.
+_С тех пор, товары, должно быть, так и поставляются из Мира Людей. Может иногда у меня и появлялась мысль, что что-то не так, но, оглядываясь назад, сейчас я понимаю, что пусть я и происхожу из семьи низшего аристократа Мира Людей, я жила жизнью благородных, не ощущая никаких неудобств._
 
-_Since then, goods should be continuously sent from the Мира Людей. Maybe once in a while I tell myself that something is wrong, but looking back now I see that in the rich Мира Людей, although I was a lower-class aristocrat, I lived as nobles do without any inconvenience._
+Но сейчас, услышав из уст Кирито слова "настоящая страна", Ронье взглянула на это под другим углом. _Эту пустошь даже территорией отдельной не назвать, не то что страной. Это удел изгнанников. Жизнь в таком месте будет наказанием сама по себе._
 
-But now that she heard words "real country" from Кирито’s mouth, Ронье was forced to comprehend. That wilderness could not be called even a territory, especially a country. That was an exile place. It was such a place that living there itself is punishment.
+"............ сенпай...... я....... я....."
 
-"............ сенпай...... I ....... I....."
+Пробормотала глубоко опечаленная Ронье упавшим голосом, уронив вилку в блюдце с тортом.
 
-Ронье, deeply depressed, dropped the fork down on the cake dish and muttered with a blurred voice.
+_── Высокое происхождение означает, помимо жалованных привилегий, ещё и значительные обязательства. Мы называем эту необходимость сражаться за более слабых, когда в том возникает необходимость, священными словами "Ноубл Облигейшн"<sup><a href="#Prim7">7</a></sup>._
 
-_── Nobility has a serious obligation beyond a given privilege. We call that duty of having to fight for those without power at any time, in the sacred word "Noble Obligation"<sup><a href="#Prim7">7</a></sup>._
+Два года назад это был именно Кирито кто тогда объяснял это, сидя напротив Ронье, в то время ещё ничего не знавшей первогодки.
 
-Two years ago it was Кирито sitting in front of her who taught so Ронье being at that time a first-year student not knowing anything yet.
+_── И даже это, я уже и забыла... нет, ещё хуже. По правде, я  просто никогда не считала гоблинов равными. Пускай я сердцем и сочувствовала их печальным обстоятельствам, но даже в таком случае, мысли о том, чтобы им помочь, у меня не появлялось...._
 
-_── Even so, I forgot it already... no, it is worse. In truth, I did not consider the goblin tribe as equal. Even though I thought that their circumstances are pitiful, somewhere in my heart, even if they are, I didn’t think of helping it...._
+Её зрение затуманилось, и на белое блюдце упали слёзы. Цукигаки повернулся к ней и вопросительно проурчал “**ку-ру-ру**”, но затем спереди протянулась рука и потрепала голову Ронье.
 
-First her vision got blurred and then tears fell into a white dish. Tsukigaki turned to her and purred “kurururu” inquiringly but then a hand stretched from the front and combed Ронье’s head.
+"Прости, Ронье. Я рассказал тебе это, хоть и знал, что это может тебя ранить."
 
-"I'm sorry, Ронье. I told you this story though I knew you might get hurt."
+Вместо своего обычно мягкого голоса, Кирито шептал.
 
-Instead of his usually gentle voice, Кирито whispered.
+"...... Однако, не стоит так убиваться, ведь то, что мы можем посылать гуманитарную помощь из Мира Людей в Тёмную Территорию, стало возможным лишь после того, как мы остановили растраты императоров и великих аристократов и быстро восстановились после войны. Ничто из этого не произошло бы без тяжкой работы Ронье, так что и Ронье постаралась для них на славу."
 
-"...... However, you do not have to blame yourself so much, because being able to send aid supplies from the Мира Людей to the Тёмной Территории became only possible after we have stopped wasting of the emperors and the great aristocrats and rapidly recovered after the war. Neither of that could be realized without Ронье's hard work, so Ронье you did your best for them properly."
+"Это... правда так?"
 
-"Is... that so?"
+"Именно. С того момента я ещё раз был в земле горных гоблинов, и дети до сих пор помнят как ты давала им хлеб."
 
-"Yes, it is. I was to the country of mountain goblins since then, and children remember perfectly even now how you gave them bread."
+И вновь слёзы заполнили её глаза и потекли по щекам, но на этот раз эти слёзы несли совсем иные эмоции. Кирито вытер их простым платком.
 
-Again, tears overfilled her eyes and ran down the cheeks, but this time those tears had slightly different meaning. Кирито wiped them with a simple handkerchief.
+Ронье отчаянно сопротивлялась порыву броситься ему на грудь, вжаться лицом и разрыдаться. Насильно остановив слёзы, она подняла лицо со слабой улыбкой и наклонила голову.
 
-Ронье desperately resisted the impulse to jump into his chest, to press her face and to cry. Forcibly stopping tears, she lifted her face, smiling a little while leaning on the spot.
+"...... Спасибо, сенпай... уже всё хорошо. Простите, что расплакалась так в середине разговора."
 
-"...... Thank you, сенпай... It's all right now. I’m sorry, crying like this in the middle of the talk."
+"Я с того момента как ты первогодкой поступила в Академию знал, что Ронье — плакса."
 
-"I knew Ронье is a crybaby since you were a first-year trainee."
+Посмотрев на смеющегося Кирито, Ронье сжала губы, преодолевая знакомую боль в глубине сердца.
 
-Watching laughing and smiling Кирито, Ронье sharpened his lips enduring the pain in the back of the chest again.
+Она покончила с чаем и, несколько раз моргнув, произнесла.
 
-She finished with tea and after blinking the last tears away opened her mouth.
+"...Ну, я поняла, о чём думает сенпай. Гоблинам и оркам нужна богатая и красивая страна, такая, как Мир Людей. В Подмирье таких мест не осталось, мы можем их найти только по другую сторону "стены конца мироздания". Поэтому мы должны преодолеть её с помощью искусственного дракона. Вот так."
 
-"...Well, I understood what сенпай is thinking. Goblins and orcs need a rich and beautiful country as much as the Мира Людей. No more such places are left in the Underworld, we can only find it on the other side of the "the end wall of the world". For that reason, we must cross the wall with that machine dragon. That's how it is."
+"Точно.... Но даже после того, как пересечём стену, придётся нелегко..."
 
-"That's right. ... It will be hard even after crossing the wall ..."
+Кивнул Кирито, подтверждая.
 
-Кирито deeply nodded, confirming.
+"...Но, разве есть что-то по другую сторону стены? И если стена не бесконечна, где она заканчивается.......?"
 
-"... But, is there really the other side of the wall? Is that wall not endless, and if not where it runs to.......?"
+"Я тоже об этом думал... Но если в этом мире у стены есть предел, то это вроде как и не совсем стена. Скорее, что-то вроде недоступного адреса...... ничто."
 
-" I also thought about that... But if that wall really ends up in this world, it feels like it's not even a wall. It is something more like an inaccessible address...... a void."
+"Ничто...... вроде пустоты, которую нельзя ни увидеть, ни использовать?"
 
-"Void...... Is it like an emptiness you cannot see or use?"
+"Верно. Вот только эта стена — это настоящий утёс. Обалденно высокий и ужасно твёрдый. И причина его существования, вероятно, в том, чтобы оградить жителей Подмирья от созерцания неудобной правды.... истинной "стены мироздания". И если это так, то есть вероятность, что там, высоко, она перестаёт быть "бесконечной". Всё зависит от того, сколько объёма и неиспользуемой ёмкости есть у Главного Визуализатора......."
 
-"Correct. But actually, the end wall of the world is a real cliff. Extremely high and terrible hard. The reason for this is probably to keep the inhabitants of the world from observing the uncomfortable truth.... The real "end of the world". If so, there is a possibility that it stops being "endless" when reaches up there. Everything depends on how much room and spare capacity the main visualizer has......."
+Понимая, что его опять уносит в недоступные её разумению дали, Ронье подняла брови, и Кирито помотал головой.
 
-Seeing him again flying to areas that the she could not understand, Ронье raised her eyebrows, and Кирито shrugged his head.
+"Виноват, прости, Ронье, это я не то чтобы тебе говорил, просто мысли вслух. Уф, короче.... короче говоря, никакого "конца" в этом мире нет."
 
-"My bad, sorry Ронье, wasn’t talking to you just thinking out loud. Uh, well.... Basically, there is no "end" in this world."
+"Конца нет......?"
 
-"There is no end ......?"
+Подобный концепт Ронье тоже был незнаком.
 
-That was as well an unfamiliar concept to Ронье.
+Для Ронье, рождённой и выросшей в Северной Центории, огромная стена, разделяющая город на сектора — "бессмертная стена" — была лишь началом. Когда-то она узнала об обширной империи Норлангарт, простирающейся за ней, и о том что вместе с другими тремя империями она формирует круглый Мир Людей.
 
-For Ронье, who was born and grew up in North Centoria, a huge wall that divides the city into sectors — the "timeless wall" — was the beginning. Eventually she learned that the vast Norlangarth empire spreading from it and also learned that it was forming a circular Мира Людей together with the other three empires.
+Пойдя в школу в возрасте восьми лет, она узнала о Горной Гряде без начала и конца, окружавшей Мир Людей, и об ужасной территории, лежащей за её пределами.
 
-She was taught about the endless mountain range surrounding the Мира Людей and the dreadful territory that is spread far beyond that since she entered her childhood school at the age of eight years.
+Однако, даже учителя не особо вдавались в рассуждения про Тёмную Территорию — если так подумать, они вообще вряд ли об этом говорили, — или о том, что её окружает бесконечный утёс “стена конца мироздания”, — о чём она узнала лишь вступив в Армию Защиты Мира Людей вместе с Тейзой по прибытии в лагерь у Великих Восточных Врат.
 
-However, even teachers did not talk about the specifics of the Тёмной Территории — come to think of it, it is doubtful if they were talking about that at all, — and that there is an endless cliff called “the end wall of the world”, — she only learned after volunteering to Мира Людей defense army together with Тейза and arriving to the camp by the Great Eastern Gate.
+Другими словами, постоянная "стена" всегда существовала в мире, известном Ронье. И даже если кому-то удавалось преодолеть её, следом обязательно появлялась ещё одна. Действуя так, полагала она, однажды просто доберёшься до совершенной стены, преодолеть которую будет невозможно.
 
-In other words, a constant "wall" always existed in the world Ронье knew. Even if one crossed the boundary, the next wall always appeared. This way, she believed, one will someday arrive to the perfect end of the world that they could never overcome.
+"....... Это, что же...... Вы имеете в виду, по другую сторону конечной стены, снова есть Мир Людей и Тёмная Территория? ......Луга, леса и пустоши простираются вокруг?"
 
-"....... Well, that is like... ... You mean, on the other side of the end wall, it’s like the Мира Людей and the Тёмной Территории again?... ... Grasslands, forests and wilderness are spread far and wide?"
+Когда она спросила это неуверенным тоном, Кирито простонал “уф…”.
 
-As she asked that with an awkward tone, Кирито groaned “ugh…”.
+"Как же объяснить-то...? ── А, точно, пошли."
 
-"How can I explain ...? ── Ah, right, come there."
+Поднявшись, он протянул руку. Смутившись, она схватилась за неё, и Кирито подтянул Ронье наверх и повёл её к узкому окну, открывающемуся на внешнюю периферию Заоблачного Сада.
 
-Rising up, he held the hand out. Embarrassed, she took that hand, and Кирито pulled Ронье up and led her to the narrow window open at the outer periphery of the Cloudtop Garden.
+"Вот, взгляни сюда."
 
-"Here, look at that."
+В точке, куда указывала его правая рука, висел в тёмно-синем восточном небе белый полукруг — Лунария<sup><a href="#Prim8">8</a></sup>. И Ронье, и Цукигаки, как им и было сказано, посмотрели вверх на большую звезду, ставшую источником имени для молодого дракона.
 
-The point where his right arm pointed to me was the white semicircle floating in the dark blue eastern sky — Lunaria<sup><a href="#Prim8">8</a></sup>. Both Ронье and Tsukigaki as they were told looked up at the big star that was the source of the name of the young dragon.
+И тогда Кирито сказал нечто очевидное.
 
-Then Кирито said something obvious.
+"Она круглая, не так ли?"
 
-"It’s round, isn’t it?"
+"...... Да, круглая."
 
-"...... Yes, it is round."
+Она кивнула, раздумывая над тем, что же ещё можно тут добавить.
 
-She nodded thinking that she meant to answer something.
+"То что Лунария не плоский диск, а круглая сфера, поэтому только та часть, куда падает свет Солуса выглядит ярче, и за счёт этого она прибывает и убывает... этому же учат в школах Центории, верно?"
 
-"That Lunaria is not a flat disk but a round sphere so only the part where sun light hits looks brighter and this way comes waxing and waning... This is taught at the school in Centoria, too?"
+Кирито выглядел вполне уверенно, хоть и хитро улыбался.
 
-Кирито surely looked confident, with a wiggly smile.
+"Конечно, конечно, ещё в начальной школе, ...сей златой шар есть трон великой Богини Лунарии... плывущий в божественных взвесях за гранью небесной..."
 
-"Of course, of course, they tell you at the elementary school, ... that golden orb that is the throne of Goddess Lunaria ... floating in the god kingdom beyond the sky ..."
+"Ох, а, эмм...... в общем, я полагаю, что этот мир, включающий Мир Людей и Тёмную Территорию, тоже должен быть такой сферической формы."
 
-"Oh, oh, um ... ... actually, I guess this world, including the Мира Людей and the Тёмной Территории, should be of the same spherical shape."
+"Эмм...... что!? Шар!?"
 
-"Em...... What!? A sphere!?"
+Она не смогла удержаться от вскрика. Внезапно, она неожиданно почувствовала испуг и переступила с ноги на ногу. Рядом с ней Цукигаки фыркнул “**фу-ру-ру**” словно смеясь на глупым Кирито.
 
-She couldn’t help screaming. Suddenly, she felt unwillingly feared and unconsciously stomped on both feet. Next to her Tsukigaki snorted “fururu” as if laughing at stupid Кирито.
+Кирито затем потратил пять минут, чтобы рассказать ей о глобальной сферической структуре — планете, как он её назвал. Конечно, принять такое было нелегко, но было кое-что, способное помочь с этим.
 
-Кирито then spent five minutes and taught her about the global spherical structure — the planet, — as he named it. Of course, it was not so easy to accept, but there was something that could help.
+С "Наблюдательного поста Утренней Звезды" на 95м этаже Центрального Собора открывался обзор на всё небо вокруг. Если стоя на этом этаже, посмотреть на землю, то было заметно что линия горизонта далеко вдали немного изгибалась вверх дугой.
 
-The "Morning Star Lookout" on the 95th floor of the Центральный Собор was open to the all the skies around. Standing at that floor, looking at the ground, it was visible that the horizon far away draws a gentle upward arc.
+_Если мир и правда сферический, — и похоже, что это очевидно так — то стоит это принять, и многое становится на свои места_, думала Ронье, наблюдая за плывущей по небу Лунарией.
 
-_If the world is truly spherical, — it seems like it is obvious — but when you try to wrap your head around, you start realizing things, thought Ронье watching Lunaria floating in the sky._
+Неожиданно с её губ сорвались слова идеи, которая раньше бы и в голову её не пришла.
 
-Unexpectedly, words she had never thought of went out from her lips.
+"Если и этот мир, и Лунария — сферы...... то на Лунарии, там что же, и луга, и леса, и улицы, и люди живут?"
 
-"If this world, like Lunaria is a sphere, too ...... on Lunaria, are there grasslands, forests and streets, do people live there?"
+"Ух……"
 
-"Huh……"
+Похоже, Кирито не ожидал подобного вопроса, поскольку мечник с длинными чёрными волосами несколько раз моргнул, но скоро его взгляд снова стал уверенным.
 
-It seemed that it was an unexpected question for Кирито, and a swordsman with long black hair blinked several times, but soon he got his eyes calm again.
+"......Возможно... В зависимости от расстояния до луны, это может быть маленький спутник, а может быть и планета такого же размера.... Ну, придёт день, когда мы это выясним."
 
-"......Maybe ... Depends on the distance to the moon, it may be not a small satellite, it may be a planet of the same size .... Well, someday I will understand it."
+На удивление, для Ронье эти удивительные слова, сказанные обыденным голосом, сюрпризом не стали.
 
-Unexpectedly, Ронье did not feel much surprised hearing these amazing words that were uttered quite casually.
+Скорее, она чувствовала, что этот человек именно так и скажет.
 
-Rather, she had a premonition that this person would naturally say so.
+Так что Ронье улыбнулась, придвинулась к Кирито на всего один цен ближе и прошептала.
 
-So Ронье smiled, just moved closer to Кирито for only one cen and whispered.
+"И в тот день я тоже составлю вам компанию, как камердинер, следующий за своим сенпаем."
 
-"At that time, I will accompany you as well, as a trainee following her сенпай."
+"Не составишь, пока не построим достаточно большого дракона."
 
-"You won’t unless we build a big enough machine dragon"
-
-And then two humans and one dragon for quite some time looked up at the semicircle far away in the sky.
+И два человека и один дракон ещё долгое время смотрели на яркий полукруг высоко в небе.
 
 ## Footnotes:
 
@@ -529,6 +527,6 @@ And then two humans and one dragon for quite some time looked up at the semicirc
 3. <a name="Prim3"></a>Я так полагаю, его оставила её жемчужная юбка?
 4. <a name="Prim4"></a>Буквально “снежный персик”.
 5. <a name="Prim5"></a>Кандзи для этой разновидности османтуса используется конкретно для вида, называемого “ароматная олива”.
-6. <a name="Prim6"></a>…более, см. тома.17-18
-7. <a name="Prim7"></a>See [here](https://en.wikipedia.org/wiki/Noblesse_oblige).
-8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigaki” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigaki”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.
+6. <a name="Prim6"></a>…более, см. тома 17-18.
+7. <a name="Prim7"></a>"Положение обязывает", см. [здесь](https://en.wikipedia.org/wiki/Noblesse_oblige).
+8. <a name="Prim8"></a>Довольно интересно, что Кавахара здесь использует обычное кандзи земной Луны, "цуки" (月). Однако, луна Подмирья обладает собственным именем, так же, как и Солус. В этом случае, произносимое название дано в форме фуриганы над кандзи 月 (но только в этом месте). И словно этой неразберихи недостаточно, следует заметить, что первое кандзи в имени “Цукигаки” снова 月, однако, хоть его так и назвали жители Подмирья, не имеющие ни малейшего понятия, что значит “цуки”, имя всё равно произносится “Цукигаки”, а не, например, “Лунагаки”. Но в то же время, как и в случае с Солусом, имя богини светила было “локализировано”, так что богиню сновидений зовут "Лунария" (а не "Цукария").

@@ -1,60 +1,59 @@
-# Part 3
+# Часть 3
 
-Ронье kept thinking over Кирито's words all the time after an unexpected tea ceremony finished and even after she returned dishes to the kitchen.
+Ронье продолжала думать над тем, что сказал Кирито всё время после окончания неожиданной чайной церемонии и даже после того, как она вернула посуду на кухню.
 
-Neither over a story about the other side of the end wall of the world nor the fact that the world is spherical nor regarding traveling to the moon. She was rather thinking about the topic that first popped up, a possibility of a “new war”.
+Но не о том, что находится по другую сторону конечной стены, не о том, что мир — это сфера, и не о путешествии на луну. Она размышляла о теме, которая всплыла самой первой, о возможности “новой войны”.
 
-Ронье also thought that the wealth of the Мира Людей will certainly continue to accumulate dissatisfaction among sub-people. However, actual war – the one that comes as an armed invasion, — to be honest it was hard to believe in this.
+Ронье также считала, что богатство Мира Людей определённо будет продолжать накапливать недовольство среди суб-людей. Однако, настоящая война – такая, которая происходит в виде вооруженного вторжения, —  честно говоря, в это ей верилось с трудом.
 
-As now the "Peace Treaty of the Five Peoples"<sup><a href="#Prim1">1</a></sup> was concluded with the Тёмной Территории which should be clearly known to all races. Although it is a primitive law compared to ones of Мира Людей, there was a prohibition of both killing and properly plundering there.
+_Ведь на тот момент с Тёмной Территорией был заключён "Мирный Договор Пяти Народов"<sup><a href="#Prim1">1</a></sup>, о чём было очевидно известно всем расам. Хотя этот закон был весьма примитивен по сравнению с законодательством Мира Людей, по крайней мере в нём содержалось явное воспрещение убийств и мародёрства.  
+Конечно, для жителей Тёмной Территории, которые столетиями следовали лишь "Закону Сильнейшего", утверждавшему власть силы, невозможно было просто принять такое революционное изменение, переворачивающее всё с ног на голову, так что в качестве амортизации в переходной период была объявлена свобода сражений в пределах, что не уменьшают жизнь. Однако, если дойдёт до войны, этому правилу вряд ли получится следовать.  
+Кроме того, жители Тёмной Территории несли печать на душе, закрепившую, что “никто не может нарушать закон”, так же как и жители Мира Людей.  
+Именно поэтому, хоть с окончания войны и прошло всего несколько месяцев, в Мире Людей и стало возможным принимать туристов из Тёмной Территории ......._
 
-Of course, for the people of the Тёмной Территории who for hundreds of years have followed only "the law of the strongest" by which strong people ruled over everyone else, it was impossible to undergo such a major revolution of the scale of heavens and earth exchanging, so as a shock absorber for that period, there was declared a freedom of battle in the range that does not deprive life. However, if it comes to war, there is no way to follow that.
+"... Ронье, эй, ты слушаешь, Ронье?"
 
-And, even the people of the Тёмной Территории, were bearing the soul seal saying “One cannot break the law” just like people of the Мира Людей.
+Заметив, что её уже несколько раз толкнули в правое плечо, Ронье подняла удивлённое лицо.
 
-That is why although it was only a few years since the previous war, it was possible to accept visitors from the Тёмной Территории in the Мира Людей.......
+Походе, напряжённо тренируя инкарнационные техники в углу большой тренировочной площадки на четвёртом этаже Собора, она незаметно увязла в мыслях.
 
-"... Ронье, hey, are you listening, Ронье?"
+Сегодняшняя тренировка была "Очищение разума в тандзе<sup><a href="#Prim2">2</a></sup>", что было гораздо более легкой для постижения альтернативой "Контролю над созданным элементом" и "Стоянию смирно на вершине шеста".
 
-Been nudged several times into right shoulder, Ронье raised a startled face.
+Но судя по всему, её подруга, сидевшая рядом, считала что истинным испытанием будет не поболтать, и провалила его вместе очищением разума.
 
-it seems, while she was working hard on incarnation training in a corner of the large training ground on the fourth floor of the Собор, she had unnoticeably sunk in thoughts.
+Ронье кинула взгляд на инструктора, объясняющего навыки меча младшим рыцарям в центре тренировочной площадки — сегодня это был "Опаляющий Лук" Дюсольберт — и какое-то время понаблюдав за ним, она тихим голосом извинилась перед подругой.
 
-Today's training was "Tanza<sup><a href="#Prim2">2</a></sup> mind wiping", which was much easier-to-comprehend alternative to "Controlling the created element" and "Standing straight on the top of a pillar".
+"Прости, я, кажется, задремала."
 
-But apparently to her friend sitting next to her, the challenge was to have a chat rather than idle thoughts.
+Извинившись, она заметила, что происходило что-то необычное, поскольку её рыжая подруга недовольно надувала щёки.
 
-Ронье glanced to a teacher explaining sword skills to junior knights in the center of the training ground — today it was "Conflagrant Flame Bow" Дюсольберт — and after watching him for a moment, she apologized to her best friend in a low voice.
+"Что, ты вообще не слушала? ...Я сказала, что нужно посоветоваться."
 
-"Sorry, I was drowsing."
+"Посоветоваться?"
 
-Having apologized she realized that something unusual was in this situation, as her redhead friend whispered with puffy cheeks.
+Слегка наклонив голову, Ронье посмотрела на неё с вопросительным выражением.
 
-"What, you didn’t listen at all? ...I told you I need to consult you."
+Тейза Шутлинен, ученик рыцаря и её подруга ещё со времён Академии Мастеров Меча, сделала серьёзное выражение лица и кивнула.
 
-"Consult?"
+"В общем............... дело в том, что я....... меня позвали…"
 
-Tilting her neck slightly, Ронье looked at her with a questioning expression.
+"Э… противник? Пожалуйста откажись, дуэли опасны!"
 
-Тейза Shtolienen, knight apprentice being her friend since the Академии Мастеров Меча, changed her expression to a serious one and nodded.
+Когда та всё ещё шепча, рефлективно воскликнула, Тейза уставилась на  Ронье своими глазами цвета осенних листьев, и стала резво отнекиваться.
 
-"Well............... thing is, I....... I was offered…"
+"Вовсе нет! Всё наоборот...... не противник...... а, скорее…… партнёр..."
 
-"A… competition? Please decline, duels are unsafe!"
+Очевидно, ни одна из подруг не понимала, о чём говорит другая, и Ронье несколько секунд смотрела на Тейзу пустыми глазами, но затем, наконец, поняла значение слов.
 
-When she reflexively exclaimed in a low voice, Тейза’s autumn leaves-colored eyes starred at Ронье, and she quickly denied.
+Вслед за этим, Ронье пришлось напрячь всю свою силу воли чтобы сдержать дикое "Ээээ~~~~э!". Вместо этого, она глубоко вдохнула, задержала на несколько секунд воздух и медленно выдохнула.
 
-"Not at all! It’s the opposite...... It is not a duel...... It's rather…… matchmaking..."
+После того как она повторила эту операцию ещё раз, Ронье с опаской спросила.
 
-Companions clearly did not understand what each one was talking about, so Ронье starred at her with a blank look for a few seconds, when she finally understood the meaning of the word.
+"... Это......иначе говоря...... позвали тебя... замуж....?"
 
-Immediately after, Ронье had to rely on all her willpower to hold the wild "Ee~~~~e!". Instead, she took a deep breath, held it for a second and slowly breathed out.
+На что Тейза опустила взгляд в пол перед собой и коротко кивнула.
 
-After pulling the air in again, Ронье asked fearfully.
-
-"... That......in other words...... means... a marriage....?"
-
-To that, Тейза lowered her gaze to the floor in front of her and gave a short nod.
+### Продолжение следует
 
 Ронье held the question of who made the proposal, which was naturally ready to jump out of her mouth. That time there was only one male who might propose the marriage to Тейза. It was senior integrity knight "Twin Edged Wings" Renri Synthesis Twenty-Seven.
 
@@ -238,5 +237,5 @@ She turned over, dropped her head into a pillow, her fighting sleep spirit final
 
 ## Footnotes:
 
-1. <a name="Prim1"></a>Yes, of 5 peoples, not 6. Humans are humans — from both Мира Людей and Тёмной Территории so 6 parties signed a "Treaty of the 5 Peoples".
-2. <a name="Prim2"></a>端座, a way of sitting originating from well-known seiza, but differing in a strait back, no fixed legs position and generally applied in different cases.
+1. <a name="Prim1"></a>Да, пяти народов, не шести. Люди есть люди — неважно, из Мира Людей ли или из Тёмной Территории, так что 6 сторон подписали "Договор Пяти Народов".
+2. <a name="Prim2"></a>端座, способ сидения, происходящий из широко известной Сейдзы, но отличающийся прямой спиной, отсутствием фиксированной позы ног и в целом применяемый в иных случаях.

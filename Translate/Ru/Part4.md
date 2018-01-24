@@ -189,7 +189,7 @@ And from the other side of the round table, the knight Дюсольберт’s 
 
 Кирито nodded and continued quietly after putting fingers of both hands combined together on the desk.
 
-"The sightseeing trips from the Тёмной Территории to the Мира Людей is what the Union Council is doing as an exchange project between the two worlds. When crossing "The great Eastern Gate", visitors are obliged to acknowledge the prohibition list. It is a simple rule collection, ban on murder, stealing and injury, but the name of the Dark Army commander is clearly stated in it. In other words, if Oroi who is supposed to be bound by the "Law of the Strongest" of the Тёмной Территории broke the prohibition and killed the inn cleaner..."
+"The sightseeing trips from the Тёмной Территории to the Мира Людей is what the Union Council is doing as an exchange project between the two worlds. When crossing "The great Eastern Gate", visitors are obliged to acknowledge the prohibition list. It is a simple rule collection, ban on murder, stealing and injury, but the name of the Dark Army commander is clearly stated in it. In other words, if Oroi who is supposed to be bound by the "Закону Сильнейшего" of the Тёмной Территории broke the prohibition and killed the inn cleaner..."
 
 "His right eye has to be bursting."
 

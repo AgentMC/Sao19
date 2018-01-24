@@ -364,7 +364,7 @@ Drawing a deep sigh, Kirito shook his head with a difficult face.
 
 "A difference...?"
 
-"Ara. Human World's land is so rich and the Dark Territory is awfully poor. You saw it Ronye, that bloody sky and the charcoal black ground....... The only place where they have plenty of rich ground is around the capital city of Obsidia, but humans are exclusively controlling it. Right now, goblins, orks and giants are mostly calmed down again, but dissatisfaction is steadily accumulating. ...... Me and Asuna worked hard to make it possible to plant the territory of sub-people, but it was useless. Spatial resources ...... The supply of sacred power is hopelessly small."
+"Aha. Human World's land is so rich and the Dark Territory is awfully poor. You saw it Ronye, that bloody sky and the charcoal black ground....... The only place where they have plenty of rich ground is around the capital city of Obsidia, but humans are exclusively controlling it. Right now, goblins, orks and giants are mostly calmed down again, but dissatisfaction is steadily accumulating. ...... Me and Asuna worked hard to make it possible to plant the territory of sub-people, but it was useless. Spatial resources ...... The supply of sacred power is hopelessly small."
 
 Ronye listened to words of Kirito without a sound.
 
@@ -394,7 +394,7 @@ But Ronye did not try to think about their "future" until now. No, she tried to 
 
 _Since then, goods should be continuously sent from the Human World. Maybe once in a while I tell myself that something is wrong, but looking back now I see that in the rich Human World, although I was a lower-class aristocrat, I lived as nobles do without any inconvenience._
 
-But now that she heard words "real country" from Kirito’s mouth, Ronye was forced to comprehend. That wilderness could not be called even a territory, especially a country. That was an exile place. It was such a place that living there itself is punishment.
+But now that she heard words "real country" from Kirito’s mouth, Ronye was forced to comprehend. _That wilderness could not be called even a territory, especially a country. That was an exile place. It was such a place that living there itself is punishment._
 
 "............ Senpai...... I ....... I....."
 
@@ -406,7 +406,7 @@ Two years ago it was Kirito sitting in front of her who taught so Ronye being at
 
 _── Even so, I forgot it already... no, it is worse. In truth, I did not consider the goblin tribe as equal. Even though I thought that their circumstances are pitiful, somewhere in my heart, even if they are, I didn’t think of helping it...._
 
-First her vision got blurred and then tears fell into a white dish. Tsukigaki turned to her and purred “kurururu” inquiringly but then a hand stretched from the front and combed Ronye’s head.
+First her vision got blurred and then tears fell into a white dish. Tsukigaki turned to her and purred “**kurururu**” inquiringly but then a hand stretched from the front and combed Ronye’s head.
 
 "I'm sorry, Ronye. I told you this story though I knew you might get hurt."
 
@@ -470,7 +470,7 @@ Rising up, he held the hand out. Embarrassed, she took that hand, and Kirito pul
 
 "Here, look at that."
 
-The point where his right arm pointed to me was the white semicircle floating in the dark blue eastern sky — Lunaria<sup><a href="#Prim8">8</a></sup>. Both Ronye and Tsukigaki as they were told looked up at the big star that was the source of the name of the young dragon.
+The point where his right arm pointed to was the white semicircle floating in the dark blue eastern sky — Lunaria<sup><a href="#Prim8">8</a></sup>. Both Ronye and Tsukigaki as they were told looked up at the big star that was the source of the name of the young dragon.
 
 Then Kirito said something obvious.
 
@@ -490,13 +490,13 @@ Kirito surely looked confident, with a wiggly smile.
 
 "Em...... What!? A sphere!?"
 
-She couldn’t help screaming. Suddenly, she felt unwillingly feared and unconsciously stomped on both feet. Next to her Tsukigaki snorted “fururu” as if laughing at stupid Kirito.
+She couldn’t help screaming. Suddenly, she felt unwillingly feared and unconsciously stomped on both feet. Next to her Tsukigaki snorted “**fururu**” as if laughing at stupid Kirito.
 
 Kirito then spent five minutes and taught her about the global spherical structure — the planet, — as he named it. Of course, it was not so easy to accept, but there was something that could help.
 
 The "Morning Star Lookout" on the 95th floor of the Central Cathedral was open to the all the skies around. Standing at that floor, looking at the ground, it was visible that the horizon far away draws a gentle upward arc.
 
-_If the world is truly spherical, — it seems like it is obvious — but when you try to wrap your head around, you start realizing things, thought Ronye watching Lunaria floating in the sky._
+_If the world is truly spherical, — it seems like it is obvious — but when you try to wrap your head around, you start realizing things_, thought Ronye watching Lunaria floating in the sky.
 
 Unexpectedly, words she had never thought of went out from her lips.
 

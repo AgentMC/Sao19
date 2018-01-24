@@ -82,7 +82,7 @@ Soon after that, listening to the six o'clock morning bells they ascended to the
 
 They got together and shared stories but unfortunately it seems that it wasn’t possible to get any information directly related to kidnappers.
 
-"The current guild master has nothing to do with the dark arts masters mysteriously disappeared in a Foreign World War, and she did not run minions improvement experiments. I asked them as the commander, they couldn’t overcome the “law of the strongest”."
+"The current guild master has nothing to do with the dark arts masters mysteriously disappeared in a Foreign World War, and she did not run minions improvement experiments. I asked them as the commander, they couldn’t overcome the “Закону Сильнейшего”."
 
 Шейта added to the words of Исукан after nodding with a depressed expression.
 

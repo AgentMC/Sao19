@@ -592,7 +592,7 @@ There was no person in the vicinity and no one could hear the conversation of tw
 
 "Ye...yes...."
 
-"Although the "Peace Treaty of the Five Peoples" has been signed, the Тёмной Территории is still dominated by "Law of the Strongest". The strongest one now is the Тёмной Территории United Forces commander Исукан, and there’s Шейта as well, so I guess from the surface it looks like they firmly suppress it, but...... Even on this side that is supposed to be bound by many ties of the Taboo Index and Мира Людей Fundamental Law, there are still people who are disinterested in obeying them and find loopholes in the text interpreting it conveniently. So, if it is a Тёмной Территории that obeys much more ambiguous things than taboo or law, there is no wonder if some bad guys are hiding there."
+"Although the "Peace Treaty of the Five Peoples" has been signed, the Тёмной Территории is still dominated by "Закону Сильнейшего". The strongest one now is the Тёмной Территории United Forces commander Исукан, and there’s Шейта as well, so I guess from the surface it looks like they firmly suppress it, but...... Even on this side that is supposed to be bound by many ties of the Taboo Index and Мира Людей Fundamental Law, there are still people who are disinterested in obeying them and find loopholes in the text interpreting it conveniently. So, if it is a Тёмной Территории that obeys much more ambiguous things than taboo or law, there is no wonder if some bad guys are hiding there."
 
 Realizing the words of Fizel, Ронье was attacked by a feeling of hot water suddenly dropping the temperature. She started to shake a little, but Fizel stretched her right hand and tapped Ронье’s head.
 

@@ -6,13 +6,10 @@ Neither over a story about the other side of the end wall of the world nor the f
 
 Ronye also thought that the wealth of the Human World will certainly continue to accumulate dissatisfaction among sub-people. However, actual war – the one that comes as an armed invasion, — to be honest it was hard to believe in this.
 
-As now the "Peace Treaty of the Five Peoples"<sup><a href="#Prim1">1</a></sup> was concluded with the Dark Territory which should be clearly known to all races. Although it is a primitive law compared to ones of Human World, there was a prohibition of both killing and properly plundering there.
-
-Of course, for the people of the Dark Territory who for hundreds of years have followed only "the law of the strongest" by which strong people ruled over everyone else, it was impossible to undergo such a major revolution of the scale of heavens and earth exchanging, so as a shock absorber for that period, there was declared a freedom of battle in the range that does not deprive life. However, if it comes to war, there is no way to follow that.
-
-And, even the people of the Dark Territory, were bearing the soul seal saying “One cannot break the law” just like people of the Human World.
-
-That is why although it was only a few years since the previous war, it was possible to accept visitors from the Dark Territory in the Human World.......
+_As now the "Peace Treaty of the Five Peoples"<sup><a href="#Prim1">1</a></sup> was concluded with the Dark Territory which should be clearly known to all races. Although it is a primitive law compared to ones of Human World, there was a prohibition of both killing and properly plundering there.  
+Of course, for the people of the Dark Territory who for hundreds of years have followed only "the law of the strongest" by which strong people ruled over everyone else, it was impossible to undergo such a major revolution of the scale of heavens and earth exchanging, so as a shock absorber for that period, there was declared a freedom of battle in the range that does not deprive life. However, if it comes to war, there is no way to follow that.  
+And, even the people of the Dark Territory, were bearing the soul seal saying “One cannot break the law” just like people of the Human World.  
+That is why although it was only a few years since the previous war, it was possible to accept visitors from the Dark Territory in the Human World......._
 
 "... Ronye, hey, are you listening, Ronye?"
 
