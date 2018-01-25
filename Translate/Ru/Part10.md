@@ -162,7 +162,7 @@ Under the pale moonlight, the steel dragon continued its run on and on, to the w
 
 (THE END)
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>口を挟む, also means a specific gesture, confused look while holding a pen or pencil horizontally between a nose and an upper lip, but doesn’t look like they had pencils there.
 2. <a name="Prim2"></a>Vol 18 says she was flying alone. Maybe I messed OCR so hard, or missed a paragraph, let’s wait for Defan to verify, but I’m pretty sure she was trying to reach the Altar ASAP, so additional weight would have been redundant.

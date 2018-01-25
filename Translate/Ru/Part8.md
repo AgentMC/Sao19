@@ -378,7 +378,7 @@ When Кирито hung the chain with a coat of arms engraved on a silver plate 
 
 With this short word, he quickly left the room together with Шейта. When the door opened and closed, as if waiting for it, the 4 o'clock morning bells quietly rang.
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>足運び, characteristic way of moving, keeping the center of gravity low.
 2. <a name="Prim2"></a>I was under impression they discussed it… Given that one of the color illustrations contains the dialog not existing in the book, probably we can speculate that the segment where they talk by the window in part 7 was heavily rewritten or edited in the last moment.

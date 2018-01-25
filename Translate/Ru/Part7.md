@@ -618,7 +618,7 @@ Seeing that the story was over, Шейта went down one step.
 
 "I understand. ......Well, shall we go back to the room?"
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>宵呼, “Evening Call”. 
 2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).

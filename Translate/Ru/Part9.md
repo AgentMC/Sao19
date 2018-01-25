@@ -439,7 +439,7 @@ Whispering and softly stroking her cheek, soon she made whining to gradually com
 
 Until someone touched her back, Ронье kept holding the baby hard.
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>#KawaharaMath In vol.18 Кирито has been revived about 1500 to 2000 kilolu to the north of the World End Alter (see illustration). Not only was he able to locate the “huge heterogenous object” at least 1000 kilolu to the south (Alice would reach Alter in \~6 hours if Кирито flies at \~300 km/h, so Subtilizer who is slightly faster than 120 km/h being dragon’s max speed, let’s say, 150 km/h, would be in about 1100 km from Кирито at the moment of him finishing off Vasago), but also to fly these 1500 to 2000 kilolu with Асуна in hands (and 3 super-high-priority swords!) over even less productive area than “normal” Тёмной Территории where he can “fly in a stable manner” for 10 kilolu only.
 2. <a name="Prim2"></a>#KawaharaMath Nope, it could, remember, 120 km/h max?

@@ -752,7 +752,7 @@ Integrity Knight Alice traveled to the other world, what did she saw there, I wo
 
 When she thought that far, the same strange feeling as when she saw the sign of the inn once again shook her heart, but finally she could not bear the weight of the eyelids, so Ронье went down to sleep in the foreign land far away.
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>風縫 – Wind Stich or Stiching Wind. 
 2. <a name="Prim2"></a>鄙消, “Rural Neutralizer” per kanji, but just like in case of Himawari (“Sunflower”) here it is probably meant to be a homonym to ひなげし which means “Poppy”.

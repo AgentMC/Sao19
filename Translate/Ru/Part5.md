@@ -621,7 +621,7 @@ I’ll move one step at a time. If you continue to train every day and learn ser
 
 She unwillingly muttered such a name and hurriedly looked around. Even though no one seemed to hear, Ронье dived in hot water to hide from embarrassment that was too big and continued to spit out bubbles until the air ended up.
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>Poisonous plant, unique to Underworld, used in manufacture. 
 2. <a name="Prim2"></a>嬢 means unmarried woman, girl; 嬢ちゃん, respectively, cute little girl, “cutie”.

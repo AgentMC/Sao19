@@ -15,7 +15,7 @@ _Ведь на этот момент с Тёмной Территорией за
 
 Заметив, что её уже несколько раз толкнули в правое плечо, Ронье подняла удивлённое лицо.
 
-Похоже, напряжённо тренируя инкарнационные техники в углу большой тренировочной площадки на четвёртом этаже Собора, она незаметно увязла в мыслях.
+Походе, напряжённо тренируя инкарнационные техники в углу большой тренировочной площадки на четвёртом этаже Собора, она незаметно увязла в мыслях.
 
 Сегодняшняя тренировка была "Очищение разума в тандзе<sup><a href="#Prim2">2</a></sup>", что было гораздо более легкой для постижения альтернативой "Контролю над созданным элементом" и "Стоянию смирно на вершине шеста".
 
@@ -53,189 +53,187 @@ _Ведь на этот момент с Тёмной Территорией за
 
 На что Тейза опустила взгляд в пол перед собой и коротко кивнула.
 
-### Продолжение следует
+Ронье удержалась от вопроса, кто именно сделал предложение, который уже был готов вылететь из её рта. На тот момент был лишь один мужчина, что мог бы позвать Тейзу замуж. Старший рыцарь целостности "Вострокрылые близнецы" Ренри Синтезис Твенти-Севен.
 
-Ронье held the question of who made the proposal, which was naturally ready to jump out of her mouth. That time there was only one male who might propose the marriage to Тейза. It was senior integrity knight "Twin Edged Wings" Renri Synthesis Twenty-Seven.
+Ещё со времён Войны с Внешним Миром было очевидно, что у него есть чувства к Тейзе. Можно было даже сказать, что это было несколько запоздалое предложение, а вовсе не удивительное.
 
-It was obvious from the time of the Foreign world war that he has feelings to Тейза. It could be said that it was rather late proposal than surprising one.
+Ронье уже было хотела сказать "поздравляю", представляя фигуру молодого мужчины-рыцаря, с его всегдашней лёгкой улыбкой.
 
-Ронье was about to say "congratulations" imaging the figure of a young male knight who always keeps a light smile.
+Однако, всё ещё смотря в пол, Тейза быстро замотала головой.
 
-However, still looking downwards Тейза quickly shook her head.
+"...... Я всё ещё не решила, что ответить."
 
-"...... I still have not decided what to reply"
+В ответ на этот шёпот, та несколько раз удивлённо моргнула.
 
-To that whisper, she blinked several times, surprised.
+"А... почему...? Тебе же Ренри-сама не противен, мне казалось, он тебе даже нравится? И вы вместе уже так долго......."
 
-"Well ... why ...? You don’t dislike Renri-сама, it seems to me you like him? And you are together for quite some time......."
+Услышав этот прямой вопрос, Тейза опустила голову ещё ниже, а на лице появилось печальное выражение, совершенно немыслимое для этой безукоризненно энергичной девушки.
 
-As she heard this direct question, Тейза’s face grew even darker and a sad expression appeared on it that was unimpeachably unthinkable to this energetic girl.
-
-"I like him. But you know, the main reason why I do. That is......, how Renri-сама somewhat resembles сенпай."
+"Он мне нравится. Но знаешь, не в том главная причина, почему я с ним. А в том......, в том как Ренри-сама мне напоминает сенпая."
 
 "............!"
 
-Ронье sharply breathed in.
+Ронье резко втянула воздух.
 
-"сенпай" of Тейза was not the Премьер-Мечник Кирито, of course. While being a junior trainee at Академии Мастеров Меча, just like Ронье was serving Кирито, Тейза has also been attached to an Elite Swordsman trainee. Regardless of his calm demeanor and a meek smile, he had a strong will and sword power enough not to lose to Кирито, and Ронье knew that Тейза had sincere feelings to him.
+"Сенпай" Тейзы был, конечно, не Премьер-Мечник Кирито. В то время, когда она была учеником-мечником в Академии Мастеров Меча, так же как Ронье прислуживала Кирито, Тейза была прикреплена к элитному ученику-мечнику. Не взирая на добрый нрав и кроткую улыбку, его воля была сильна, а по силе меча он не проигрывал Кирито, и Ронье знала, что у Тейзы были к нему искренние чувства.
 
-But he has left this world.
+Но его больше не было в этом мире.
 
-Ронье believed that her redheaded best friend overcame that sorrow. Hoped, that she saved precious memories like jewels deeply in the heart and began walking forward again.
+Ронье думала, что её рыжая подруга нашла в себе силы превозмочь горе. Надеялась, что сохранив бесценные воспоминания словно драгоценные камни в своём сердце, та снова начала двигаться вперёд.
 
-But a transparent drop spilled from red eyelashes to the cheek told her that she was wrong.
+Но прозрачная капля, скатившаяся по реснице и щеке, ясно дала понять, что она ошибалась.
 
 "Тейза......."
 
-Ронье called her best friend and tightly covered her lips with palms, then unintentionally stood up. She shouted out to Дюсольберт who was actively giving out instructions in the center of the training ground.
+Ронье позвала свою лучшую подругу, прикрыв ладонями губы, а затем резко встала. Она прокричала Дюсольберту, активно раздававшему инструкции в центре тренировочной площадки.
 
-"Your Excellency instructor! Knight trainee Shtolienen feels sick, please let us leave today's practice before the end!"
+"Ваше Превосходительство инструктор! Ученик рыцаря Шутлинен плохо себя чувствует, пожалуйста позвольте нам прервать сегодняшнюю практику раньше времени!"
 
-Short-haired knight threw a steel arrow-like gaze in their direction but fortunately just silently nodded.
+Коротко стриженый рыцарь бросил в их сторону взгляд, напоминавший выстрел железной стрелой, но, к счастью, лишь безмолвно кивнул.
 
-She quickly helped Тейза to stand up and bow so that they couldn’t see her face, and then they left.
+Она быстро помогла Тейзе подняться и поклониться, так чтобы её лицо не видели, и они вдвоём ушли.
 
-Ронье held shoulders of Тейза as they quickly descended the wide staircase and went to a rose garden spreading in the backyard of Собор. They skirted the giant gardener that formerly was a prison guard and went through the labyrinth of passageways and sat down on a small bench they found deep inside.
+Ронье обнимала Тейзу за плечи пока они быстро спускались по широкой лестнице и вошли в розарий, расположенный на заднем дворе Собора. Они по широкой дуге обогнули огромного садовника, который раньше был надзирателем в темнице, и пройдя через лабиринт проходов, уселись на широкую скамью, стоявшую где-то глубоко внутри.
 
-It was February, so even the earliest varieties of this so rose garden haven’t produced completed buds, and only the vines with small leaves and thorns were trembling in the cold wind.
+Стоял февраль, так что даже самые ранние сорта этого розария ещё не сформировали бутоны, и на холодном ветру дрожали лишь лозы, покрытые маленькими листочками и шипами.
 
-Тейза was looking through them not trying to focus her wet autumn leaves-colored eyes, and then eventually she murmured.
+Тейза, смотревшая вдаль сквозь них без своими глазами цвета осенних листьев, через какое-то время пробормотала.
 
-"............. If I stay with Renri, I believed someday I could forget him...... no, I was hoping so."
+"............. Я думала, что если останусь с Ренри, однажды смогу его забыть...... нет, я надеялась на это."
 
 "Тейза............"
 
-Gently striking her back, Ронье felt as power left Тейза’s body and her head came to rest at Ронье's shoulder.
+Ласково поглаживая её по спине, Ронье почувствовала, что силы оставили тело Тейзы и её голова опустилась Ронье на плечо.
 
-"But you know……, in Renri’s smile, and his words, and his gestures, I search all the time for something similar to сенпай....... Renri also knows that I couldn’t forget сенпай. He said even this is fine. Then he proposed to me. I'm really happy...., I'm happy but ..."
+"Но знаешь……, в улыбке Ренри, в его словах, жестах, я всё время искала что-то, что мне напомнит о сенпае....... Ренри тоже знает, что я не могу забыть сенпая. Он даже сказал что это не страшно. А потом сделал мне предложение. И я была так счастлива...., счастлива, но..."
 
-Again, tears ran the long eyelashes and fell. This time they did not stop at a chin, heavy drops fell below and left two stains on simple training clothes.
+И снова, слёзы закапали вниз, пробежав по длинным ресницам. На этот раз они не остановились на подбородке, а тяжёлыми каплями шлёпнулись вниз, оставив пятна на простой тренировочной одежде.
 
-"I am happy but I don’t really want to forget him. Deep inside my heart I know I want the memories of сенпай to stay with me forever. Because it understood it....... that I……"
+"Я счастлива, но я не очень-то и хочу забывать его. В глубине души я знаю, что на самом деле я хочу, чтобы воспоминания о сенпае остались со мной навечно. Ведь я поняла....... что я……"
 
-Breathing heavily with a trembling throat, Тейза pushed her face tightly against Ронье's chest and shouted.
+Прерывисто дыша и дрожа всем телом, Тейза вжалась лицом в грудь Ронье и прокричала.
 
-"I want to see him... I want to meet Yujio сенпай again..."!
+"Я хочу его увидеть... Я снова хочу встретиться с Юдзио-сенпаем..."!
 
-Ронье strongly hugged the back of her close friend who didn’t rise the face and her whole body was shaking from crying.
+Ронье крепко обвила руками спину своей близкой подруги, что так и не подняла лица, пока её тело содрогалось от рыданий.
 
-Even eyes of Ронье filled with hot liquid.
+Даже у Ронье глаза увлажнились.
 
-It was only about one month that they two served as valets at the Академии Мастеров Меча. But for them, that encounter defined their destiny. It was a miracle that happens only once in a lifetime.
+Всего лишь около месяца они прослужили камердинерами в Академии Мастеров Меча. Но для них эта встреча определила всю дальнейшую судьбу. Она стала чудом, что случается лишь раз за всю жизнь.
 
-They accepted the miracle and vowed long ago to love no one else forever.
+Они приняли это чуда, поклявшись тогда не любить больше никого другого.
 
-That's why, Ронье finally understood, she selfishly thought that Тейза sought the next happiness — but it actually was a wish that couldn’t be helped.
+И поэтому Ронье поняла, что она эгоистично считала, что Тейза искала следующее счастье — но на самом деле это было желание, которому не дано было осуществиться.
 
-Because, unlike Ронье, Тейза could not meet that person anymore. Not touching or talking, even gazing secretly from a distance was not possible for her.
+Ведь в отличие от Ронье, Тейза не могла больше встретиться с этим человеком. Не то что поговорить и прикоснуться, а даже тайно заглядываться издалека оставалось для неё недоступной роскошью.
 
-Ронье did not have a word of comfort to give her miserable best friend. Instead, she kept tapping her back and stroking her hair.
+Ронье не могла подобрать слов, чтобы успокоить свою несчастную лучшую подругу. Вместо этого, она просто продолжала гладить её волосы и похлопывать по спине.
 
 ***
 
-Тейза’s tears finally ceased when the color of the evening sneaked into the rose garden.
+Слёзы Тейзы начали, наконец, иссякать, когда розарий окрасился вечерними оттенками.
 
-As if all the emotions were throttled out, her red-haired close friend leaned her head down to Ронье’s shoulder and looked up at the sinking Solus in a blurry look.
+Словно иссушив все свои эмоции, её рыжая близкая подруга положила свою голову Ронье на плечо, наблюдая за закатом размытого Солуса.
 
-"............ Sorry. And thank you"
+"............Прости. И спасибо."
 
-Eventually muttered Тейза with a weak voice, but Ронье slightly shook her head.
+Наконец произнесла Тейза слабым голосом, но Ронье лишь коротко качнула головой.
 
-"No...... It’s me who is sorry, Тейза. I ... ... did not notice your feelings at all, I had selfishly thought you wanted to be happy with Renri"
+"Нет...... это я должна извиниться, Тейза. Я...... не замечала твоих чувств, я думала, что ты просто эгоистично хочешь быть счастлива с Ренри."
 
-"That’s OK, I feel like I’ll be happy with that in a little while."
+"Всё в порядке, Я думаю, что в скором времени так оно и будет."
 
-Тейза breathed heavily and said with a strong voice.
+Тейза тяжело вздохнула и сказала голосом, в котором слышались сильные нотки.
 
-"I will ask Renri to wait a little more. Even after some time, nothing may change, but ... but, I have a premonition."
+"Я попрошу Ренри подождать ещё немного. И за это время, может, ничего и не поменяется, но... но у меня предчувствие."
 
-"Premonition ...?"
+"Предчувствие...?"
 
-"Yeah, I feel that since I saw the “machine dragon” Кирито made, ... something will happen from now on, something will change"
+"Да, я почувствовала как только увидела того “искусственного дракона”, что Кирито сделал, ... что-то скоро произойдёт, что-то изменится."
 
-Ронье was suddenly reminded of that moment by the words of Тейза. The dark-blue sky behind, the silver light flowing everywhere. She felt a painful elevation from that vision. Surely there was something in that sight portending a huge change.
+Ронье внезапно вспомнила тот момент, услышав эти слова Тейзы. Тёмно-синее небо вдали, залитое серебристым светом. Её кольнуло ощущением подъёма. Конечно, в том зрелище было что-то предвещавшее перемены.
 
-"... ............ Yes, I feel, too."
+"............... Да, я тоже чувствую."
 
-When Ронье muttered that, Тейза slowly nodded.
+Когда Ронье проговорила это, Тейза медленно кивнула.
 
-Two girls kept sitting on a bench for a while. In a few minutes, when they heard five o’clock bell, Тейза turned around, took a glimpse of Ронье and told her something unexpected.
+Какое-то время две девушки продолжали сидеть на скамейке. Через несколько минут, когда до них донёсся звук пятичасового колокола, Тейза развернулась, взглянула на Ронье и спросила нечто неожиданное.
 
-"So, what about Ронье?"
+"Так а что с Ронье?"
 
-"Er... what do you mean?"
+"Э... в смысле?"
 
-The autumn leaves-colored eyes blinked, even a gentle smile appeared ──
+Глаза цвета осенних листьев моргнули, затем появилась слабая улыбка ──
 
-"Did you tell Кирито a little about your feelings?"
+"Ты рассказала Кирито хоть немного о своих чувствах?"
 
-"No...... No way, such a thing!"
+"Нет...... ни за что, ты что!"
 
-She shouted unintentionally, shrugged and shook her head vigorously.
+Та резко выкрикнула, вздрогнула и отчаянно замотала головой.
 
-"I will never do that...... It’s just impossible. I’m fine, don’t worry."
+"Я никогда этого не сделаю...... это просто невозможно. Я в порядке, не волнуйся."
 
-"You were worried about me so can I not be doing the same?"
+"Ну ты же за меня беспокоишься, как я могу не ответить тем же?"
 
-But she continued to deny in reply to Тейза’s serious question.
+Но в ответ на логичный вопрос Тейзы, та лишь продолжила отнекиваться.
 
-"It's not like that, it's all fine...... сенпай has Асуна-сама. Besides, there’s Alice-сама who is supposed to return to this world someday, then Мира Людей Defense Army general Selrut...... Perhaps, Фанатио-сама..."
+"Всё не так, всё нормально...... у сенпая есть Асуна-сама. Кроме того, есть ещё Алиса-сама, которая когда-нибудь вернётся в этот мир, потом генерал Армии Защиты Мира Людей Селюрут...... возможно, Фанатио-сама..."
 
-"So much Ронье"
+"Так в стиле Ронье."
 
-Sighed Тейза, amazed.
+Вздохнула поражённая Тейза.
 
-"Кирито-сенпай is not married to anyone of them, and now сенпай’s status is higher than an emperor, so if you look to the Empire's Fundamental Law, he could have... ... three wives? Four perhaps?
+"Кирито-сенпай не женат ни на ком из них, а сейчас статус сенпая выше, чем у бывших императоров, так что если руководствоваться Фундаментальным законом империи, у него может быть...... трое жён? Или четверо?
 
 ![Image](/Translate/Img/p073.jpg)
 
-"No way, сенпай will not do that!"
+"Ни за что, сенпай так не поступит!"
 
-Ронье shouted again and got up abruptly to hide her red face.
+Ронье снова выкрикнула и подскочила, пытаясь скрыть своё покрасневшее лицо.
 
-"I’m completely fine! Тейза, take care of yourself first!"
+"Со мной всё хорошо! Тейза, сперва позаботься о себе!"
 
-Proclaimed she facing away.
+Провозгласила она, смотря в сторону.
 
-Upon hearing that, her best friend once again sighed, raised from the bench and stood up next to her.
+Услышав это, её лучшая подруга снова вздохнула, поднялась со скамейки и встала рядом.
 
-"Well, Кирито-сенпай is not likely to say such a thing himself for the time being............. Let’s go back Ронье. Shimosaki is hungry."
+"Вот Кирито-сенпай так бы точно не сказал на твоём месте............. Пошли обратно, Ронье. Шимозаки голодный."
 
-"Yeah... I was just about to say so...."
+"Ага... Я как раз собиралась предложить...."
 
-Then Ронье looked at the same hedges on the left and right and said.
+Потом Ронье посмотрела на ряды одинаковых кустов со всех сторон и спросила.
 
-"......... Тейза, do you know the way home?"
+"......... Тейза, а ты знаешь, обратно — это в какую сторону?"
 
-"...... I was crying, I don’t remember anything."
+"...... Я плакала, кроме этого ничего не помню."
 
-They looked at each other’s faces and sighed again standing in the deeps of the huge rose labyrinth.
+Они переглянулись и синхронно вздохнули, стоя в самой глубине большущего лабиринта из роз.
 
 ***
 
-That night.
+Той ночью.
 
-Lying on a bed in her room on the 22nd floor of the Собор, Ронье could not easily fall asleep.
+Лёжа нка кровати в своей комнате на 22м этаже Собора, Ронье никак не могла уснуть.
 
-_── That’s all because of strange things Тейза said._
+_── Это всё из-за этих странных вещей, что Тейза наговорила._
 
-And she immediately felt the displeasure towards the girl in the room next door, separated from her by a thick stone wall. But quickly, she reflected on that she probably is having a sleepless night as well.
+Она тут же почувствовала недовольство по отношению к девушке по соседству, отделённой от ней лишь тонкой каменной стеной. Но тут же она поняла, что и у той, скорее всего, бессонная ночь.
 
-Anyhow, a man proposed to Тейза for the first time in her life that day.
+Так или иначе, а ведь в этот день Тейзу впервые в её жизни позвали замуж.
 
-_── Which place in Собор did it happen? What kind of words did he choose?_
+_── В каком месте Собора это произошло? Какие слова он выбрал?_
 
-Her imagination immediately wandered in a wrong direction.
+Её воображение немедленно прыгнуло в опасном направлении.
 
-_── If, hypothetically ... If by any chance Кирито-сенпай would propose me. What kind of place will he pick for that? Собор’s 95th Floor "Watchtower of the Morning Star"... Or maybe the backyard of a memorable Sword Academy... No, maybe in the clouds above, using a flying technique......_
+_── А если, теоретически... если так произойдёт, что Кирито-сенпай сделает мне предложение. Какое место он выберет для этого? 95й этаж Собора "Наблюдательный пост Утренней Звезды"... А, может, задний двор нашей памятной Академии... Нет, наверное, высоко в небесах, используя свою полётную технику......_
 
-Ронье sighed heavily, then slapped her cheeks and shielded this thought.
+Ронье тяжело вздохнула, затем хлопнула себя по щекам и отрезала эти мысли.
 
-_I must tell myself that even imagining such things should never be done. There is only one thing I can hope for. That peaceful days will continue from now on. Nothing else can be desired. Nothing._
+_Я должна сказать самой себе, что даже воображать подобное нельзя. Есть лишь одно, на что я могу надеяться. Что отныне продолжатся мирные дни. И ничего кроме желать нельзя. Ничего._
 
-She turned over, dropped her head into a pillow, her fighting sleep spirit finally gave up and Ронье's eyelids have slowly closed.
+Она повернулась, уткнулась в подушку, её борющийся со сном дух, наконец, сдался, и веки Ронье медленно закрылись.
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>Да, пяти народов, не шести. Люди есть люди — неважно, из Мира Людей ли или из Тёмной Территории, так что 6 сторон подписали "Договор Пяти Народов".
 2. <a name="Prim2"></a>端座, способ сидения, происходящий из широко известной Сейдзы, но отличающийся прямой спиной, отсутствием фиксированной позы ног и в целом применяемый в иных случаях.

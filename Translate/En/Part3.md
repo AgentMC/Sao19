@@ -67,7 +67,7 @@ To that whisper, she blinked several times, surprised.
 
 "Well ... why ...? You don’t dislike Renri-sama, it seems to me you like him? And you are together for quite some time......."
 
-As she heard this direct question, Tiese’s face grew even darker and a sad expression appeared on it that was unimpeachably unthinkable to this energetic girl.
+As she heard this direct question, Tiese’s face grew even darker and a sad expression appeared on it that was unthinkable to this unimpeachably energetic girl.
 
 "I like him. But you know, the main reason why I do. That is......, how Renri-sama somewhat resembles senpai."
 
@@ -139,7 +139,7 @@ As if all the emotions were throttled out, her red-haired close friend leaned he
 
 Eventually muttered Tiese with a weak voice, but Ronye slightly shook her head.
 
-"No...... It’s me who is sorry, Tiese. I ... ... did not notice your feelings at all, I had selfishly thought you wanted to be happy with Renri"
+"No...... It’s me who is sorry, Tiese. I ... ... did not notice your feelings at all, I had thought you selfishly wanted to be happy with Renri"
 
 "That’s OK, I feel like I’ll be happy with that in a little while."
 

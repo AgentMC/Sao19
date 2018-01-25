@@ -367,7 +367,7 @@ When Ронье looked back at her face, her best friend smiled and said somethi
 
 "Because, I mean, will you not? Go with Кирито-сенпай, to Obsidia."
 
-## Footnotes:
+## Примечания:
 
 1. <a name="Prim1"></a>“Hold right there” would be more appropriate localized version, but that’s how original reads, plus this is the reason for Ронье’s next phrase.
 2. <a name="Prim2"></a>The goblin says “me” as オイラ (“oira”), which can be a version of properly-written “oira” - おいら - so it should be probably male. However, in this line, the guard uses め (“me”) which can be a female pronoun or maybe a shortening of てめえ (“temee”). In other words, I’m totally confused with the gender of the goblin. I’ll treat it as a male for now.
