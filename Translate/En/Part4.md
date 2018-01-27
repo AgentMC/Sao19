@@ -243,7 +243,7 @@ Kirito energetically nodded to Asuna’s question.
 
 "Not even close... and also there’s the case of missing weapon..."
 
-After the dagger which, based on the report, was apparently used for the murder of Yazen disappeared from the armor store in the dungeon of the guards’ office building, Kirito immediately gathered all the guards in the office and queried directly in the name of the Human World Union Council. But there was no one, who nominated to take it. It would be impossible for a human guard to resist the command of the representative of the Union Council which further directs the Human Word army to which Guard Service belongs. In other words, turns out that the dagger in question was brought from the inn, then stored in the armor store, and then stolen by something external —— or disappeared by itself.
+After the dagger which, based on the report, was apparently used for the murder of Yazen disappeared from the armor store of the guards’ office building, Kirito immediately gathered all the guards in the office dungeon and queried directly in the name of the Human World Union Council. But there was no one, who nominated to take it. It would be impossible for a human guard to resist the command of the representative of the Union Council which further directs the Human Word army to which Guard Service belongs. In other words, turns out that the dagger in question was brought from the inn, then stored in the armor store, and then stolen by something external —— or disappeared by itself.
 
 "What is your opinion on this subject?"
 
@@ -289,7 +289,7 @@ A faint metal sound “**ki~n**” overlapped the end of his words. Kirito hit a
 
 Knight commander Fanatio whispered rocking her wavy black hair.
 
-"Currently, all high-level clerics of Centoria are supposed to be under the command of Human World Army or...... or this unity conference. So, it’s either we’ve got rebels among our staff or…"
+"Currently, all high-level clerics of Centoria are supposed to be under the command of Human World Army or...... or duirectly of this Union Council. So, it’s either we’ve got rebels among our staff or…"
 
 ── Dark Territory's sacred art master work?
 
@@ -305,7 +305,7 @@ Kirito started muttering something, but immediately he shook his head and said i
 
 The questioned Vice-Prime quickly nodded.
 
-"I have asked Lina...... I mean, General Selrut to refrain from maintaining security activities other than regular missions. General gave her consent to accept it...... But still there seem to be strong rumors regarding the binding between all travelers from the Dark Territory and the faction of former great aristocracy. It will be suppressed for a while because we have issued an order form the name of the Union Council...."
+"I have asked Rina...... I mean, General Selrut to refrain from maintaining security activities other than regular missions. General gave her consent to accept it...... But still there seem to be strong rumors regarding the binding between all travelers from the Dark Territory and the faction of former great aristocracy. It will be suppressed for a while because we have issued an order form the name of the Union Council...."
 
 Asuna interrupted, but strong light filled her hazel eyes.
 

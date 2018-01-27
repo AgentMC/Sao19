@@ -215,159 +215,157 @@ _Даже будь он при всём параде, я не смогла бы 
 
 Пробормотал Кирито с горькой улыбкой на лице.
 
-"Какая ирония, если бы "автоматический совет старейшин" до сих пор существовал, мы бы установили виновника в мгновение ока."
+"Какая ирония, если бы "Автоматический Совет Старейшин" до сих пор существовал, мы бы установили виновника в мгновение ока."
 
 Асуна немедленно покачала головой.
 
 "Нет, я бы никогда не положись на столь бесчеловечную систему."
 
-### Продолжение завтра
+Автоматический Совет Старейшин, предвестник нынешнего Объединённого Совета Мира Людей, управлялся Церковью Аксиом и состоял из дюжины высокоуровневых клериков с замороженной жизнью и самосознанием, которые постоянно выполняли удалённый поиск людей, отказавшихся подчиниться приказу, иными словами, это было устройство наблюдения за населением. После войны священное искусство, что связывало "старейшин" было прервано, но проспав несколько дней, они испустили дух, так и не приходя в сознание.
 
-Automated Elders’ Council, the predecessor of the Объединённого Совета Мира Людей, was operated by the Axiom Church and consisted of a dozen of high-level clerics with frozen life and self-consciousness that permanently performed a remote search for persons who disobeyed the law, in other words, it was a human monitoring device. After the war, the sacred art that had bound the "elders" was canceled, but they gave up the ghosts after sleeping for several days without returning to consciousness.
+Вспомнив об этом, Кирито ответил, тяжело вздохнув.
 
-Having remembered that, Кирито answered exhaling a heavy breath.
+"Ага, я понимаю... В любом случае, меня скорее беспокоит странность произошедшего."
 
-"Aha, I get that... Anyway, I’m rather bothered with the strangeness."
+"Что ты имеешь в виду?"
 
-"What do you mean?"
+Карие глаза обратились к задавшей этот вопрос Фанатио.
 
-Black eyes aimed the questioning Фанатио.
+"Как бы объяснить...? В прошлом, никто из тех трёх, что сломали печать на правом глазу, не сделал этого просто чтобы убить кого-то. Им помогло мощное желание сопротивляться совершенно неприемлемым событиям. Исходя из точки зрения подобного, скажем так, преступника, жертва должна восприниматься как...... символ абсолютного зла, что должен быть уничтожен любой ценой."
 
-"How should I explain...? In the past all three people who broke the seal of the right eye did not do so just to kill someone. The intense will to resist ultimately unacceptable situation helped them. When it comes to the point of view of, let’s say, the criminal, the victim then is perceived as...... the absolute symbol of evil that must be destroyed at all costs."
+Кирито продолжил говорить, просматривая документы на столе.
 
-Кирито continued looking through documents on the table.
+"Однако, убитый уборщик по имени Язен был человеком, который вряд ли способен вызвать у кого-то чувство сильной обиды, согласно нашему расследованию. Он долгие годы растил пшеницу в феоде своего аристократа, затем, после освобождения в прошлом году, работал в таверне, и судя по всему клиенты из Тёмной Территории получили достойное обращение без каких-либо признаков дискриминации. И даже этот Орои, которого мы арестовали, говорит, что Язен был с ним приветлив."
 
-"But, the killed cleaner named Yazen is a figure not likely to cause anyone's resentment in the investigated range. For many years he grew wheat in his aristocrat’s private territory, then worked at an inn since being released last year, and it seems that customers from the Тёмной Территории received kind treatment without any sign of discrimination. Even that Oroi we captured, this says that Yazen was quite familiar with him."
+"Ты хочешь сказать, что в случае Язен-сана никто бы не смог...... высвободить столь безумную силу, так?
 
-"In other words, in case of Yazen-сан it was impossible for anyone...... to exercise unreasonable power, right?
+Кирито энергично кивнул на вопрос Асуны.
 
-Кирито energetically nodded to Асуна’s question.
+"Даже не около того... а ещё этот случай с пропавшим оружием..."
 
-"Not even close... and also there’s the case of missing weapon..."
+После того, как кинжал, согласно отчёту, использовавшийся для убийства Язена, исчез из оружейной отделения стражи, Кирито немедленно собрал всех стражников в подвале отделения и провёл опрос напрямую от лица Объединённого Совета Мира Людей. Но никто не сознался в том, что взял его. Хотя стражнику-человеку было совершенно невозможно проигнорировать прямой приказ представителя Объединённого Совета, который управляет Армией Мира Людей, к которой и принадлежит стража. Иначе говоря, получалось, что проблемный кинжал был доставлен из таверны, оставлен на хранении в оружейной, а затем украден третьим лицом —— либо же исчез сам собой.
 
-After the dagger which, based on the report, was apparently used for the murder of Yazen disappeared from the armor store in the dungeon of the guards’ office building, Кирито immediately gathered all the guards in the office and queried directly in the name of the Объединённого Совета Мира Людей. But there was no one, who nominated to take it. It would be impossible for a human guard to resist the command of the representative of the Union Council which further directs the Human Word army to which Guard SerВице-belongs. In other words, turns out that the dagger in question was brought from the inn, then stored in the armor store, and then stolen by something external —— or disappeared by itself.
+"Что думаете по этому поводу?"
 
-"What is your opinion on this subject?"
+Кирито взглянул через стол, и Дюсольберт ответил не раздумывая.
 
-When Кирито looked across the round table and asked so, Дюсольберт said at once.
+"Как ты и сказал, это было грубое оружие низкого качества, почти исчерпавшее жизнь за единственное использование, так что в хранилище оно могло окончательно лишиться её...... возможно, так?"
 
-"As you said, it was a crude weapon of poor quality, almost ran out of life in a single use, and completely lost it during storage...... couldn’t that be the case?"
+"Нет..... будучи металлическим оружием, оно бы не полностью аннигилировало, какое-то время ещё оставался бы металлолом..."
 
-"No..... If it is a metal weapon, it wouldn’t be completely annihilated immediately, I feel like there would be some metal scrap left for a while..."
+"Хмм...... и правда."
 
-"Hmm...... certainly"
+Внезапно в голову Ронье, наблюдавшей как воин-гигант со стоном сложил свои руки, пришла идея.
 
-Suddenly an idea came to Ронье's mind as she watched the giant folded his arms with a groan.
+Она бросила взгляд по сторонам, убеждаясь, что никто больше не хочет высказаться и застенчиво подняла руку.
 
-She quickly gazed left and right sides of the round table to make sure that no one is going to speak and shyly raised her hand.
+"О, Ронье, прошу?"
 
-"O, Ронье, please?"
+"Так...... вот. Ум... инструктор, нет, Дюсольберт-сама, если стрелы, заготовленные в колчане, заканчиваются, вы ведь восстановите запас священным искусством?"
 
-"So...... yes. Um ... instructor, no, Дюсольберт-сама, if the arrows prepared for the quiver are exhausted, will you replenish with a sacred art?"
+На этот вопрос лучник уверенно кивнул.
 
-When asked, the archer confidently nodded.
+"Но, конечно, приоритет будет намного ниже, чем у стрел, выполненных из настоящей стали."
 
-"Well, the priority will be much lower than of an arrow made from genuine steel"
+"Возможно, здесь произошло то же самое..... Кинжал, использованный убийцей, был "временным оружием", созданный из металлического элемента...... как-то так......"
 
-"Perhaps, it’s same thing here..... The dagger criminal used, was a "temporary weapon" created with a metallic element...... like that......"
+Идея, высказанная Ронье, на какое-то время погрузила конференц-зал в молчание.
 
-The idea Ронье pointed out has led to a moment of silence in the main conference hall.
+Её нарушил Кирито, но не голосом, а действием. Он безыскусно протянул над столом правую руку и сощурил глаза.
 
-It was Кирито's motion, not voice, that broke it. He casually extended the right hand over the table, narrowed eyes.
+Хоть он и пропустил даже начальную фразу, позволявшую сгенерировать металлический элемент, под его ладонью появились три сияющих серебристых точки. Они быстро слились в одну и начали, поблёскивая, менять форму. Один конец округлился и утолщился, другая сторона стала острой и продолговатой.
 
-Although he omitted even the starting phrase of the sacred art to generate metallic element, three glowing silver light spots appeared under his palm. They quickly melted into one and started to change its shape, glittering. One end curved and thickened, the other side became sharp and elongated.
+Односторонний кинжал, предпочитаемый гоблинами, подобные которому Ронье видела множество раз, с характерным звуком упал на стол. Толстое лезвие и грубо отделанная рукоять были наполнены множеством деталей и выполнены с величайшим вниманием — но во всё же, при сравнении с настоящим, отличия были бы видны.
 
-It was a single-edged dagger that Goblin tribe preferred, which Ронье saw many times, dropping down to the round table making a distinctive sound. The thick blade and the roughly scraped handle were full of small details crafted with exceptional attention — but still, there were some differences seen compared to the real one.
+Прежде всего, поверхность была слишком гладкая. Кроме того, у настоящего ручка была бы обвёрнута покрашенной кожей, а здесь она была целиком металлическая, одно целое с клинком. Если присмотреться, становилось очевидным, что это временный заменитель, выполненный из металлического элемента.
 
-First, the texture of the surface was too smooth. Besides, the handle of a real one should be wrapped with dyed leather, and here it was made entirely of metal, same piece with the blade. Should one take a closer look, it was obvious that it was a metallic element-crafted substitute.
+Кирито поднял только что созданный кинжал и сказал.
 
-Кирито picked up the dagger he made and said.
+"Хоть я и хорошо знаком с кинжалами гоблинских племён, такой уровень детализации — мой предел, но оружие в той ситуации было настолько близко к оригиналу, что даже Орои засомневался. Создание такого потребовало бы усилий нескольких высокоуровневых клериков и значительного времени."
 
-"Although I’m closely familiar with Goblin tribes’ daggers, this degree of detail is the limit, but the weapon in question was so precise that even Oroi thought of it as genuine. That would mean that it took a number of high-level clerics plenty of time to generate it."
+Слабое металлическое “**кин!**” наложилось на конец его фразы. Кирито ударил кинжал слабой инкарнацией. Этого оказалось достаточно, чтобы "временное оружие" утратило всю свою жизнь, разбилось на осколки, словно стекло, рассыпалось песком по поверхности и исчезло. После этого не осталось ни одного кусочка.
 
-A faint metal sound “**ki~n**” overlapped the end of his words. Кирито hit a dagger with a light incarnation. It was enough for "temporary weapon" to lose its entire life, it crumbled into pieces like a glass, scattered as grain over the table and disappeared. There was no single piece left after it.
+"...... Если это так, что у нас серьёзная проблема."
 
-"...... If so, we’ve got a serious problem."
+Прошептала командир рыцарей Фанатио, качнув волнистыми чёрными волосами.
 
-Knight commander Фанатио whispered rocking her wavy black hair.
+"На данный момент все высокоуровневые клерики Центории должны находиться под командованием Армии Мира Людей...... или напрямую этого Объединённого Совета. Так что это либо среди нашего персонала нашлись повстанцы, либо…"
 
-"Currently, all high-level clerics of Centoria are supposed to be under the command of Мира Людей Army or...... or this unity conference. So, it’s either we’ve got rebels among our staff or…"
+── работа мастеров искусств Тёмной Территории?
 
-── Тёмной Территории's sacred art master work?
+Все сразу поняли её невысказанные слова.
 
-Everyone immediately understood words that were omitted.
+И если это мастер тёмных искусств, вторгшийся в Центорию и убивающий невинных граждан ради достижения каких-то целей, то это намного хуже, чем если бы горный гоблин Орои убил уборщика Язена из-за внезапного приступа гнева. В таком случае, обменный проект, включающий туризм в Мир Людей торговлю с Тёмной Территорией, может стать причиной ещё одной войны между мирами, только-только начавшими восстанавливаться.
 
-If a dark arts master intruded Centoria and killed an innocent civilian for the purpose of some plot, it is many times worse scenario than if the goblin Oroi murdered Yazen by sudden impulse. If so, the exchange project of tourism to the Мира Людей and commerce with the Тёмной Территории can cause another war between the two worlds that are finally coming down.
+"Но...... если это правда, то в чём цель...?"
 
-"But... ... it that’s true, what’s the purpose...?"
+Кирито начал бормотать, но тряхнув головой, сказал в голос.
 
-Кирито started muttering something, but immediately he shook his head and said it aloud.
+"Всё, что мы знаем, пока что просто рассуждения. В то де время, мы должны предельно уменьшить влияние этого события на население. Даже если пока что слухи удастся сдержать, ограничение информации станет совершенно немыслимым, если случится второй такой случай, или третий... Асуна, армия сил людей?"
 
-"Everything is still just speculation. At the same time, we need to minimize the impact of this case on citizens. Even though rumors can be prevented from spreading so far, it will be absolutely impossible to prevent them should the second and third cases happen... Асуна, human force army?"
+Вице-Премьер, к которой был обращён вопрос, быстро кивнула.
 
-The questioned Vice-Prime quickly nodded.
+"Я попросила Рину...... в смысле, Генерала Селюрут воздержаться от проведения любых операций кроме обыкновенных действий. Генерал согласилась принять мою просьбу...... но вокруг начали распространяться слухи о связи туристов, прибывающих из Тёмной Территории и фракции бывших Великих Аристократов. На какое-то время всё это поутихнет, раз уж мы от лица Объединённого совета издали прямой приказ...."
 
-"I have asked Lina...... I mean, General Selrut to refrain from maintaining security activities other than regular missions. General gave her consent to accept it...... But still there seem to be strong rumors regarding the binding between all travelers from the Тёмной Территории and the faction of former great aristocracy. It will be suppressed for a while because we have issued an order form the name of the Union Council...."
+Асуна прервалась, но её ореховые глаза заполнил яркий свет.
 
-Асуна interrupted, but strong light filled her hazel eyes.
+"... но если инцидент повторится, аналогичный приказ принесёт ошеломляющее недовольство и недоверие Совету. И если мня воспримут как какого-то серого кардинала, управляющего этим инцидентом из тени, то явно и винить в следующем начнут меня же."
 
-"... But, if the same incident happens again, the order will bring overwhelming dissatisfaction and distrust of the Union Council. And if I am perceived as a mastermind manipulating this incident from the shadow, I will definitely be seen as causing the next one."
+"Ага, как и меня."
 
-"Aha, so will I, too."
+Кирито вздохнул и мягко хлопнул в ладоши, предлагая завершить совещание.
 
-Кирито sighed and gently stroked his hands in a closing gesture.
+"── Тогда, примем итогом сегодняшнего заседания Объединённого Совета следующее. Первое, официально объявить, что виновника в инциденте обнаружить не удалось. Второе, предоставить соответствующее объяснение и компенсацию горюющей семье Язена. Третье, расследовать инцидент с привлечением максимально возможных сил. Четвёртое...... как можно скорее нужно поговорить с руководством Тёмной Территории. Ещё предложения?"
 
-"── Then, the summary of this Union Council meeting is as follows. First, officially announce that the criminal of the incident is not identified. Second, provide sufficient explanation and compensation for Yasen's bereaved family. Third, investigate the incident with maximum possible mobilization. Fourth...... we will consult as soon as possible with the leaders of the Тёмной Территории. Any other notes?"
+Фанатио немедленно подняла руку и со смущением в голосе заметила.
 
-Фанатио immediately raised her hand and pointed out with embarrassment in a voice.
+"Даже если мы и запросим...... кратчайшее время, до следующей встречи с представителями Тёмной Территории ещё месяц, вы собираетесь передвинуть график?"
 
-"Even if we ask for...... soonest possible time-frame, it's still a month before the next meeting with the Тёмной Территории, are you going to move the schedule sooner?"
+"Не-а."
 
-"Nope"
+Кирито покачал головой и сказал совершенно обыденным голосом.
 
-Кирито suddenly shook his head and said quite casually.
-
-"I will go to Obsidia and meet Исукан."
+"Я сам отправлюсь в Обсидию и встречусь с Исуканом."
 
 ***
 
-When the meeting was over, Solus was already disappearing over the western horizon.
+Когда встреча завершилась, Солус уже скрылся за западным горизонтом.
 
-Ронье rushed to the dragon stables to the west of Собор and waved cheerfully to Тейза was taking care of Tsukigaki.
+Бегущая к драконьим стойлам с западной стороны от Собора Ронье радостно помахала Тейзе, заботившейся это время о Цукигаки.
 
-"I'm sorry, I got late!"
+"Прости, я опоздала!"
 
-Having heard that voice, a young pale-yellow dragon raised his face quickly from the grassland, sang “**kururu**” and came running up. Holding the fluffy body and scratching beneath his chin, Ронье said to Тейза.
+Услышав её голос, молодой бледно-жёлтый дракон поднял свою морду из травы, пропел “**ку-ру-ру**” и побежал навстречу. Обнимая его пушистое тело и почёсывая под подбородком, Ронье сказала Тейзе.
 
-"Thank you, Тейза. Of course, I owe you one."
+"Спасибо, Тейза. С меня должок."
 
-"You’re talking more and more like Кирито-сенпай."
+"Ты всё больше говоришь как Кирито-сенпай."
 
-Her redheaded friend, stood by for a while turning her head around, then asked changing her expression.
+Её стоящая рядом рыжая подруга, поглядев по сторонам, спросила уже с совсем другим тоном.
 
-"So... how was the meeting?"
+"Так... как прошло?"
 
-Sitting on a bench placed along the walls of the stable, Ронье told her the summary of extraordinary meeting.
+Сидя на скамейке, установленной вдоль стены стойл, Ронье рассказала ей итог чрезвычайного собрания.
 
-Тейза finished listening with a difficult face and eventually muttered.
+Тейза закончила слушать со сложным выражением на лице и пробормотала.
 
-"Somehow .... I have a bad feeling..."
+"Что-то.... плохое у меня предчувствие..."
 
-"Well... in Мира Людей a person cannot kill other person, at least it seems that is what knights thought…"
+"Ну... в Мире Людей человек другого убить не может, по крайней мере так думают рыцари…"
 
-"There are some people who make use of gaps in laws and regulations and twist them conveniently..."
+"Но есть же те, кто используют дыры в законах, извращают их и подстраивают под своё удобство..."
 
-Indeed, during the "Rebellion of Four Empires", Emperors reigning those days issued edicts decreeing that the newly organized Мира Людей Council was an army of rebels to the old Axiom Church. The binding force of the twisted law was intense, so in order to suppress the mobilizing armies of four empires of Norlangarth, Wesdarath, Eastabarieth and Southacroith, there was no other way but to discard the edict. To reach this, Ронье and Тейза intruded into the Imperial Palace of Northern Centoria, and in the course of events had to cross swords with the emperor Kruger Norlangarth VI himself, who shocked them by demonstrating selfishness so endless and strong it was unclear how it fits into a living human.
+И правда, во время "Восстания Четырёх Империй", Императоры, правящие в те дни, выпустили эдикты, объявляющие новосозданный Совет Мира Людей армией предателей, восставших против Церкви Аксиом. Обязывающая сила извращённого закона была сильна, так что чтобы остановить мобилизацию армий всех четырёх империй Норлангарт, Весдарат, Истабариет и Саутакройт, не оставалось иного выхода, кроме как уничтожение эдикта. Чтобы достичь этого, Ронье и Тейза вторглись во дворец Императора в Северной Центории, и по ходу дела даже скрестили мечи с самим императором Крюгером Норлангартом VI, который шокировал их, продемонстрировав эгоизм столь бесконечный и сильный, что было вообще неясно как им может обладать живой человек.
 
-Тейза relaxed her arms she unintentionally hugged herself with and told Ронье switching the tone.
+Тейза расслабила руки, которыми себя неосознанно обняла, и сказала Ронье сменив тон.
 
-"Well, if that is the way things go, I will have to take care of Tsukigaki a little more."
+"Ну, раз уж так всё оборачивается, придётся, видимо, мне ещё немного поприсматривать за Цукигаки."
 
-"Huh? Why?"
+"А? Почему?"
 
-When Ронье looked back at her face, her best friend smiled and said something completely unthinkable.
+Когда Ронье посмотрела вверх ей в лицо, её лучшая подруга улыбнулась и сказала нечто совершенно немыслимое.
 
-"Because, I mean, will you not? Go with Кирито-сенпай, to Obsidia."
+"Потому что, я имею в виду, ты разве не полетишь? С Кирито-сенпаем, в Обсидию."
 
 ## Примечания:
 
