@@ -6,7 +6,7 @@ Ronye sitting at lunch understood that an incident just happened that shook even
 
 The low-ranking knight jumped in with wry face, kneeled by Kirito and cried out that ──
 
-Mountain Goblin tourists murdered one Centoria citizen in Centoria’s Central Park.
+Mountain Goblin tourist murdered one Centoria citizen in South Centoria.
 
 ***
 
@@ -14,11 +14,11 @@ State Prime Swordsman, and even Vice-Prime Swordsman who perhaps was bolder than
 
 Kirito pondered briefly, then quickly put a knife and a fork and stood up.
 
-"Asuna and Fanatio, please ask commanders of the Human World Defense Army and the squadron leads. Do regular missions only, do not attempt to any special measures regarding this case. ── Where are those of Goblin tribe now?"
+"Asuna and Fanatio, please ask commanders of the Human World Defense Army and the squadron leads. Do regular missions only, do not attempt to any special measures regarding this case. ── Where is that Goblin now, do you know?"
 
 The second half of a question was addressed to the low-ranking knight who brought the message. The kneeling knight still retaining the appearance of the boy, replied.
 
-"Yeah, I heard that he is already imprisoned in the South Centoria guard office!"
+"Yes, I heard that he is already imprisoned in the South Centoria guard office!"
 
 "I understood, messenger, thanks for the effort!"
 
@@ -51,15 +51,15 @@ This is "aerial elements flight technique" which can be used only by Kirito in t
 
 A mysterious sound echoed again, and the color of the vision restored. She blinked several times to shake away the attacking dizziness, just in front of the huge ─ although it couldn’t be compared to Cathedral, of course, ─ stone building. The rough texture wall cut out of the red sandstone is undoubtedly unique to South Centoria.
 
-The front entrance at the top of the stone steps was guarded by two people dressed in thick armor. Kirito walked straight towards them raising large halberds without trying to hide caution scared with the sudden appearance of Ronye.
+The front entrance at the top of the stone steps was guarded by two people dressed in thick armor. Kirito walked straight towards them raising large halberds without trying to hide caution scared with the sudden appearance of him and Ronye.
 
 "Name yourselves!<sup><a href="#Prim1">1</a></sup>"
 
-Despite inquired for identity, guards crossed their spears with clash, so Ronye cried out as quick as possible from behind Kirito.
+Despite inquired for identity, guards crossed their halebards with clash, so Ronye cried out as quick as possible from behind Kirito.
 
 "We’re from the Human World Union Council!"
 
-The Integrity Knights coat of arms embroidered on the short cloak caught the gaze of the guards. Because she still was a trainee, there was no number that should normally be stamped at the bottom, but fortunately it still seemed to have demonstrated sufficient effectiveness. Guards swiftly took an upright posture and with high sound struck the stone ground with a halberds’ poles.
+The Integrity Knights coat of arms embroidered on the short jacket caught the gaze of the guards. Because she still was a trainee, there was no number that should normally be stamped at the bottom, but fortunately it still seemed to have demonstrated sufficient effectiveness. Guards swiftly took an upright posture and with high sound struck the stone ground with a halberds’ poles.
 
 Kirito ran at once between two people. Ronye followed.
 
@@ -91,7 +91,7 @@ Ronye tried to shout, but sooner than that ──
 
 **Kin!** A sharp sound echoed, and sparks were scattered from the commander's sword as if it was struck by an invisible blade, it slipped out of his hand and stuck in the wall behind.
 
-Kirito delivered a "sword of mind", a secret weapon of integrity knights. A young man wearing a black suit who fought off the captain’s sword ran with the full speed and cried jumping into the interrogation room without stopping.
+Kirito delivered a "sword of mind", a secret weapon of Integrity Knights. A young man wearing a black suit who fought off the captain’s sword ran with the full speed and cried jumping into the interrogation room without stopping.
 
 "That’s all! Everything about this matter will as of now be taken over by the Human World Union Council!"
 
@@ -161,7 +161,7 @@ Then the captain looked to his subordinate. A young guard officer rushed out as 
 
 "What, what you say!"
 
-The captain, who yelled loudly, shrunk his neck to the limit and the guard repeated.
+The captain yelled this loudly, and the guard who shrunk his neck to the limit, repeated.
 
 "So, the dagger in question cannot be found in the armor store anymore."
 
@@ -171,7 +171,7 @@ Two hours later.
 
 Kirito gathered key members of the Human World Union Council in the Central Cathedral — this time it was a coach — and explained the situation. Ronye who accompanied him to the guards office was also allowed to attend a round table as a special case.
 
-It was the Vice-Prime Asuna who first broke the silence spread in the vast space of the main conference hall on the fifteenth floor.
+It was the Vice-Prime Asuna who first broke the silence spread in the vast space of the main conference hall on the fiftieth floor.
 
 "...... Where is that mountain Goblin, Oroi-san?"
 
@@ -201,7 +201,7 @@ For every one living in the Underworld, whether it was a human or a sub-human, t
 
 In the first place, ordinary people did not even have the idea of violating the law. Ronye herself faced the unreasonableness of "Taboo Index" once and many times of "Imperial Fundamental Law", but never tried to break them. Of those holding such thoughts or actions and had reached the stage where the right eye is actually destroyed, there were only three confirmed people in the entire three hundred years history of Underworld — well, four people if you add someone who pulled out the right eye themselves — and only them.
 
-And there was nothing wrong with both eyes of mountain Goblin youth Oroi. Ronye saw that with his own eyes.
+And there was nothing wrong with both eyes of mountain Goblin youth Oroi. Ronye saw that with her own eyes.
 
 "……however."
 

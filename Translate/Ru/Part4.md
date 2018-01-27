@@ -1,225 +1,227 @@
-# Part 4
+# Часть 4
 
-Next day, February 18th.
+На следующий день, 18е февраля.
 
-Ронье sitting at lunch understood that an incident just happened that shook even that single wish of her.
+Ронье, сидя на обеде, поняла, что произошёл инцидент, пошатнувший даже это её простое желание.
 
-The low-ranking knight jumped in with wry face, kneeled by Кирито and cried out that ──
+В помещение с перекошенным лицом влетел низкоранговый рыцарь, преклонил колени перед Кирито и прокричал, что ──
 
-Mountain Goblin tourists murdered one Centoria citizen in Centoria’s Central Park.
-
-***
-
-State Премьер-Мечник, and even Vice-Премьер-Мечник who perhaps was bolder than the one, both opened their eyes wide and inhaled rapidly.
-
-Кирито pondered briefly, then quickly put a knife and a fork and stood up.
-
-"Асуна and Фанатио, please ask commanders of the Мира Людей Defense Army and the squadron leads. Do regular missions only, do not attempt to any special measures regarding this case. ── Where are those of Goblin tribe now?"
-
-The second half of a question was addressed to the low-ranking knight who brought the message. The kneeling knight still retaining the appearance of the boy, replied.
-
-"Yeah, I heard that he is already imprisoned in the South Centoria guard office!"
-
-"I understood, messenger, thanks for the effort!"
-
-As soon as he said that, Кирито threw over his black suit and started walking away in long steps.
-
-Ронье at last recovered from astonishment, stood up in a hurry and shouted from the other side of the big round table.
-
-"I... I ask for permission to accompany you, Prime-dono!"
-
-Кирито thought of that for a moment, and soon he nodded.
-
-"I beg your pardon. Is it OK to have a little shortcut?"
-
-"Well...... yes. Ehm......."
-
-Ронье’s eyebrows jumped up as she ran after him. _There’s nothing to shortcut, Центральный Собор is located in the center of the circular central capital, it’s enough to run down the Собор stairway and leave the South Gate, that is already the city of South Centoria, the capital of the former Southacroith Empire. Important facilities such as the guard office should be along the main street that extends from the Собор and penetrates through the city, in other words, straight to the destination._
-
-To Ронье’s unspoken question, Кирито replied with action. Without a doubt, he went to the balcony on the east side of the hall, not to the big door on the south side.
-
-Ронье who followed him saw the view from the height of about 20 floors of Собор and thought: _no way!_
-
-But Кирито saying “excuse me” had already wrapped his left arm around Ронье's body. There was no time for the heart to bounce.
-
-**Biyu~n!** Strange sound echoed and her field of vision was covered by green light.
-
-Immediately after, even before Ронье feeling that her body is lifted casually into the air had a chance to raise the voice, two people rushed out into the sky with fierce momentum.
-
-Собор was immediately left behind. The vast city of the central capital spread in front of their eyes. It was not like being just fast. Although it seemed that their speed is likely to reach several times the maximum speed dragons can fly, wind pressure was hardly felt. _Air resistance is eliminated by wrapping our bodies with membrane constructed from aerial element, and it seems we are getting huge thrust by continuously bursting more aerial elements from behind.  
-This is "aerial elements flight technique" which can be used only by Кирито in the entire Underworld_ ─ and when she realized that, two of them descended to the ground like a gale.
-
-A mysterious sound echoed again, and the color of the vision restored. She blinked several times to shake away the attacking dizziness, just in front of the huge ─ although it couldn’t be compared to Собор, of course, ─ stone building. The rough texture wall cut out of the red sandstone is undoubtedly unique to South Centoria.
-
-The front entrance at the top of the stone steps was guarded by two people dressed in thick armor. Кирито walked straight towards them raising large halberds without trying to hide caution scared with the sudden appearance of Ронье.
-
-"Name yourselves!<sup><a href="#Prim1">1</a></sup>"
-
-Despite inquired for identity, guards crossed their spears with clash, so Ронье cried out as quick as possible from behind Кирито.
-
-"We’re from the Объединённого Совета Мира Людей!"
-
-The Integrity Knights coat of arms embroidered on the short cloak caught the gaze of the guards. Because she still was a trainee, there was no number that should normally be stamped at the bottom, but fortunately it still seemed to have demonstrated sufficient effectiveness. Guards swiftly took an upright posture and with high sound struck the stone ground with a halberds’ poles.
-
-Кирито ran at once between two people. Ронье followed.
-
-Ронье only now had noticed that the Премьер-Мечник of the Объединённого Совета Мира Людей had not even wearing cloak or mantle bearing a coat of arms. It was just a simple black hemp shirt and also black thick cotton trousers. Therefore, one couldn’t really blame the guards who did not recognize him.
-
-The officials of the guard office were glancing surprisingly at his bad look, but Кирито headed straight to the stairs to the basement. As if he already knew where the problem goblin is held.
-
-No, it seemed that was the case. When they ran down the stone steps halfway, a distinctive shriek squeaky voice arrived in Ронье's ears.
-
-".......nything! Me not do anything! Not see anything!"
-
-"Stop telling lies, you subhuman scum<sup><a href="#Prim2">2</a></sup>!"
-
-A dull sound followed the rude voice.
-
-The second basement floor of the guard office was a prison separated by a black grid. Saying of which, guardians who passed here before left footsteps in the faint dust covering the floor, so looked like it had not been used for many years. Naturally, criminals did not appear in the Мира Людей in principle, and it was only in very rare cases when someone could not remember the vast provisions of Taboo Index and the Empire Fundamental Law end-to-end so "as a result had committed a petty offense" and was released. ── So far.
-
-At the end of the passage there was a spacious room without iron bars, probably a place for interrogation. Clunky wooden desk was standing in the center of the dimly lit room, and who was lying face down there was definitely a still young mountain goblin. 
-
-A tough guard was pressing down that small body from behind. And in the front, a man standing in the uniform of the captain swinging his long swords at a high rate.
-
-"Let’s see if it continues that dirty lies even after one arm is cut away!"
-
-The sword moved down barely reflecting the light of the candle.
-
-_── Stop it!_
-
-Ронье tried to shout, but sooner than that ──
-
-**Kin!** A sharp sound echoed, and sparks were scattered from the commander's sword as if it was struck by an invisible blade, it slipped out of his hand and stuck in the wall behind.
-
-Кирито delivered a "sword of mind", a secret weapon of integrity knights. A young man wearing a black suit who fought off the captain’s sword ran with the full speed and cried jumping into the interrogation room without stopping.
-
-"That’s all! Everything about this matter will as of now be taken over by the Объединённого Совета Мира Людей!"
-
-"Name yo......."
-
-The captain who was gazing at the blown away sword, looked back and stared at Кирито with red face. His carefully trimmed mustache trembled and he was just about crying something loudly but his eyes captured the shoulder of Ронье.
-
-The expression changed drastically again, and at the same time the color of the blood completely gone from their faces. The captain and his man quickly kneeled and drooped heads against Ронье rather than Кирито.
-
-The opportunities of such worship from the people of Centoria have actually increased considerably. But she did not feel like getting used to it. Anyway, Ронье was only a student until one year and three months ago. She applied to the Мира Людей Defense Army as a result of a Foreign World War, fought it feverishly with her sword and immediately became appointed as a knight trainee, so she could not learn something like resolution or dignity at all.
-
-_Even if he is dressed properly, I couldn’t avoid this unbearable wish to disappear_, thought Ронье watching over Кирито’s actions.
-
-A young man who could be easily seen as one of the citizens living in the central capital, first of all, nodded to calm down the mountain goblin youth who was quietly shaking the whole body and asked with a gentle voice.
-
-"You, your name?"
-
-The goblin blinked yellowish eyes violently, but soon responded feebly.
-
-"............Oroi"
-
-"Oroi? That decorative feathers, are they from the clan of Uboli of the hill?"
-
-Goblin nodded carefully touching blue and yellow feathers extending from the leather wrapped around the forehead.
-
-"Ok, my name is Кирито and I am the Prime of the Объединённого Совета Мира Людей."
-
-As soon as the two head-down kneeling guards backed step after step, the youngster named Oroi widely opened the eyes and shouted.
-
-"Кирито....knows, me knows! White ium who played irritating insects collection contest with Uboli and won!"
-
-── Ронье was amazed to the deep of her heart with what he was doing, but of course she did not let it to reflect on her face. Кирито said to that nodding gracefully.
-
-"I still keep properly the medal of Centurion I got at that time. Well, Oroi, from now on, I’ll listen to your stories in order, first from these guards, then from you. Since I will not punish by just their content, please calm down and tell me only the things that have happened."
+В Южной Центории горный гоблин-турист убил одного гражданина Центории.
 
 ***
 
-The guard captain who stood up as requested by Кирито said with a face reflecting both anger and awe, as follows.
+Премьер-Мечник, а за ним и Вице-Премьер-Мечник, оправданно считавшаяся более уравновешенной, оба широко открыли глаза и резко вдохнули.
 
-── Today at around 11:30 am, a report from the citizen came to the guards central office of South Centoria on 4th Avenue, "The fellow is ramping with knives in Karoo street inn". We advanced immediately, and on the second floor in the corridor of the inn, the goblin stood with blooded dagger and a man in the back room was bleeding. The man was a cleaner at the inn, his heart was stabbed, and by that moment his life completely depleted. Judging from the situation we decided that the goblin killed a man with the dagger, instantly took him over to the office and started interrogating ──.
+Кирито недолго поразмышляв, быстро положил вилку и нож и поднялся.
 
-In contrast, the mountain goblin Oroi explained as follows.
+"Асуна и Фанатио, пожалуйста прикажите командирам Армии Защиты Мира Людей и главам взводов. Выполнять только обычные задачи, не предпринимать никаких мер касательно этого дела. ── Где этот гоблин сейчас, знаешь?"
 
-── Oroi, with five young people of the same family, came to Centoria on sightseeing trip three days ago. Fellows went to the town after breakfast, but Oroi was sick and was sleeping in the inn's room. Someone knocked the door late morning, when he got out, there were no shadows, but a dagger was falling in the hallway. He picked it up and realized that blood was on it, he was looking at it for some time, then a guard came up from the stairs and he was caught before he knew what was going on.
+Вторая часть предложения была адресована низкоранговому рыцарю, принесшему послание. Стоящий на колене рыцарь, всё ещё сохранивший юношеские черты, ответил.
+
+"Да, я слышал, его уже заключили под стражу в отделении стражи в Южной Центории!"
+
+"Понял, посланник, ценю твои усилия!"
+
+Сказав это, Кирито тут же накинул своё черное одеяние и начал длинными шагами удаляться.
+
+Ронье наконец отошла от шока, резко встала и выкрикнула с противоположной стороны круглого стола.
+
+"Я... Я прошу позволения следовать за вами, Премьер-доно!"
+
+Кирито на секунду задумался, а затем кивнул.
+
+"Прошу меня простить. Но это ничего, если мы немного срежем?"
+
+"Ну...... да. Хмм......."
+
+Брови Ронье взлетели вверх, пока она его догоняла. _Тут же нечего срезать, Центральный Собор расположен в самом центре круглой центральной столицы, достаточно спуститься по Соборной лестнице и пройти через Южные Врата, и вот ты уже в Южной Центории, столицы бывшей Империи Саусакройт. Важные учреждения, такие как отделение Стражи, должны находиться вдоль главной улицы, начинавшейся от Собора и пролегавшей сквозь город, иначе говоря, до пункта назначения можно добраться по прямой._
+
+Кирито ответил действиями на невысказанный вопрос Ронье. Без каких-либо сомнений, вместо большой двери на южной стороне зала, он направился к балкону на восточной стороне.
+
+Ронье, следовавшая за ним, окинула взглядом вид, открывавшийся с высоты примерно 20го этаж Собора и подумала: _да быть не может!_
+
+Но Кирито со словами “извини-ка” уже обнял тело Ронье своей левой рукой. У той даже сердце затрепетать не успело.
+
+**Бью~н!** Раздался странный звук, и её поле зрения залил зелёный свет.
+
+Сразу после этого, ещё до того как Ронье, почувствовавшая как её обыденно поднимают в воздух, получила шанс запротестовать, два человека уже неслись по воздуху с диким ускорением.
+
+Собор немедленно улетел назад. Перед их глазами раскинулась обширная центральная столица. Но нельзя сказать, что они просто ускорились. Пусть их скорость навскидку и превысила в несколько раз максимальную скорость полёта дракона, давление воздуха едва ощущалось. _Сопротивление воздуха сводится на нет благодаря окутывающей наши тела мембране, созданной из воздушных элементов, а громадная скорость достигается постоянным взрыванием таких же элементов сзади.  
+Это та самая "техника полётов на воздушных элементах" которую во всём Подмирье умеет использовать один только Кирито_ ─ и пока она всё это обдумывала, они двое подобно урагану уже успели приземлиться.
+
+Снова раздался таинственный звук, и цвет в поле зрения восстановился. Она несколько раз моргнула, чтобы сбросить подступавшее головокружение, стоя прямо перед огромным ─ хотя, конечно, с Собором его было не сравнить, ─ каменным зданием. Стена грубой отделки, вырезанная из красного камня, без сомнения была уникальной особенностью Южной Центории.
+
+Парадный вход, к которому вели широкие ступени, охраняли двое стражников. Кирито пошёл прямо на них, поднимавших большие алебарды и даже не пытавшихся скрыть свою настороженность и испуг от внезапного из с Ронье появления.
+
+"Назовитесь!<sup><a href="#Prim1">1</a></sup>"
+
+Спросив о личности, стражники, тем не менее, со звоном скрестили алебарды, и Ронье прокричала из-за Кирито так быстро, как только смогла.
+
+"Мы из Объединённого Совета Мира Людей!"
+
+Герб Рыцарей Целостности, вышитый на короткой куртке, привлёк внимание стражников. Поскольку она всё ещё была учеником, номера, который обычно проставлялся ниже, не было, но, к счастью, и в таком виде это оказалось достаточно эффективным. Стражники резко вытянулись по стойке смирно и с высоким звуком стукнули рукоятями алебард о каменную землю.
+
+Кирито в тот же момент пробежал мимо них. Ронье следовала за ним.
+
+Ронье только сейчас обратила внимание, что Премьер-Мечник Объединённого Совета Мира Людей даже не надел накидку или мантию с нанесённым гербом. На нём была лишь простая чёрная конопляная рубашка и толстые чёрные же хлопковые брюки. Так что не было оснований осуждать не узнавших его стражников.
+
+Чиновники отделения стражи удивлённо проводили взглядом его простецкий внешний вид, однако Кирито направился прямо на лестницу в подвал. Словно бы будучи уверен, что гоблин находился именно там.
+
+Но, похоже, так дело и обстояло взаправду. Когда они до половины пробежали лестницу, ушей Ронье достиг отчётливый визг.
+
+".......чего! Мой не делать ничего! Не видеть ничего!"
+
+"Хвать врать, ты, суб-человеческое отродье<sup><a href="#Prim2">2</a></sup>!"
+
+За грубым голосом последовал глухой звук.
+
+Второй подвальный этаж отделения стражи являлся темницей, отделённой чёрной решёткой. Кстати о темнице, стражники, прошедшие здесь раньше, оставили следы в тонкой пыли, покрывающей пол, так что казалось, что её не использовали много лет. Естественно, уголовники вообще в принципе отсутствовали в Мире Людей, и лишь в очень редких случаях, когда кто-то не мог запомнить многочисленные положения Индекса Табу и Фундаментального Закона Империи от начала и до конца, из-за чего "в результате совершал незначительное правонарушение", и его отпускали. ── Вплоть до того дня.
+
+В конце прохода располагалось просторное помещение без решёток, видимо, комната допросов. Неуклюжий деревянный стол стоял в центре слабо освещённой комнаты, и тем, кто на нём лежал был определённо всё ещё молодой горный гоблин. 
+
+Мощный стражник прижимал его маленькое тельце, стоя сзади. А спереди, с высокой частотой размахивая мечом, стоял человек в униформе капитана.
+
+"Сейчас мы посмотрим, будешь ли ты продолжать свою грязную ложь, даже когда тебе отрубят руку!"
+
+Едва отразив свет свечи, меч двинулся вниз.
+
+_── Стой!_
+
+Попыталась крикнуть Ронье, но перед этим ──
+
+**Кин!** Раздался резкий звук, от меча капитана посыпались искры, и, словно отбитый невидимым клинком, тот выскользнул из его руки и воткнулся в стену позади.
+
+Кирито провёл "меч разума", секретную технику Рыцарей Целостности. Молодой человек в чёрном, отразивший капитанский меч, не сбавляя скорости в бежал в комнату для допросов и прокричал.
+
+"На этом всё! Дальнейшее расследование по этому вопросу принимает на себя  Объединённый Совет Мира Людей!"
+
+"Назов......."
+
+Капитан, какое-то время оторопело смотревший на застрявший в стене меч, обернулся и уставился на Кирито своим красным лицом. Его аккуратно подстриженные усы дрожали, он вот-вот готов был что-то выкрикнуть, когда его глаза скользнули по плечу Ронье.
+
+Выражение лица тут же вновь разительно изменилось, а багровый оттенок мгновенно исчез. Капитан и его человек мгновенно преклонили колени, правда перед Ронье, а не перед Кирито.
+
+Возможность ощущать подобное поклонение от жителей Центории в последнее время сильно увеличилась. Однако она никак не могла к этому привыкнуть. В любом случае, Ронье была всего лишь учеником ещё год и три месяца назад. Она попала в Армию Защиты Мира Людей из-за Войны с Внешним Миром, с наскока прошла её с мечом наперевес, и сразу после этого была назначена учеником рыцаря, так что времени научиться таким вещам, как решительность и достоинство, у неё не было.
+
+_Даже будь он при всём параде, я не смогла бы противиться этому непреодолимому желанию убраться отсюда_, думала Ронье наблюдая за действиями Кирито.
+
+Молодой человек, которого с лёгкостью можно было принять за одного из граждан, проживающих в центральной столице, прежде всего кивнул чтобы успокоить юного горного гоблина, безмолвно дрожащего всем телом, после чего спросил мягким голосом.
+
+"Ты, как зовут?"
+
+Гоблин быстро заморгал желтоватыми глазами, но тут же ответил слабым голосом.
+
+"............Орои."
+
+"Орои? Эти украшающие перья, это часом не из клана ли Уболи, что с холма?"
+
+Гоблин кивнул, аккуратно прикоснувшись к синим и жёлтым перьям, торчавшим из-за полоски кожи, обёрнутой вокруг лба.
+
+"Хорошо, меня зовут Кирито и я — Премьер Объединённого Совета Мира Людей."
+
+Пока всё ещё стоявшие на коленях стражники отступали шаг за шагом назад, юноша по имени Орои широко раскрыл свои глаза и выкрикнул.
+
+"Кирито....знать, мой знать! Белый юм, кто с Уболи состязался в сборе кусучих насекомых и победил!"
+
+── Ронье до глубины души поразилась, узнав чем тот занимался, но, конечно, не позволила удивлению отразиться на лице. Кирито ответил на это, вежливо кивнув.
+
+"Я всё ещё храню ту медаль Сотника, что мне вручили в тот раз. Так вот, Орои, с этого момента я по очереди выслушаю ваши истории, сперва от этих стражей, а потом от тебя. Просто услышав её, я не стану карать, так что пожалуйста успокойся и расскажи мне в точности, что же произошло."
 
 ***
 
-"...... Me, do not do anything ....... Wonder what happened, just  look..."
+Капитан стражников, поднявшийся по приказу Кирито, доложил с лицом, в котором смешались гнев и подобострастие, следующее.
 
-As soon as Oroi concluded that story, the captain shouted impatiently.
+── Сегодня около 11:30, в центральное отделение стражи в Южной Центории поступило заявление от гражданина о том, что "Парень буянит с ножом в таверне на улице Кару". Мы немедленно выдвинулись туда, и в коридоре на втором этаже таверны увидели стоящего с окровавленным кинжалом гоблина и мужчину в дальней комнате, истекающего кровью. Человек, бывший уборщиком в таверне, получил удар в сердце, и к тому моменту его жизнь была полностью исчерпана. Исходя из ситуации, мы решили, что гоблин убил человека кинжалом, немедленно переместили его в отделение и начали допрос ──.
 
-"Well, I guess you had to say so! That dagger is not from the Мира Людей! The only ones who use such a bad casting are sub-humans!"
+Напротив, горный гоблин Орои пояснил следующее.
 
-"Diff, different! That sword, it looks alike but is different! Goblin sword, it contains the emblem of the clan in the pommel! That sword does not, it is a fake!"
-
-When Oroi refuted screechingly, the captain tried to respond again. Кирито stopped him with his right hand raised and said.
-
-"It will be known if we investigate. Captain, where’s the dagger now?"
-
-"...... is kept in the weapon store on the first floor."
-
-"Sorry, will not you show it to me?"
-
-Then the captain looked to his subordinate. A young guard officer rushed out as if he had been chased but kept them waiting for nearly five minutes before reporting back with pale face and no dagger.
-
-"…………There is none"
-
-"What, what you say!"
-
-The captain, who yelled loudly, shrunk his neck to the limit and the guard repeated.
-
-"So, the dagger in question cannot be found in the armor store anymore."
+── Орои, вместе с ещё пятью молодыми гоблинами из одной семью, прибыл в Центорию как турист три дня назад. После завтрака его товарищи отправились в город, но Орои чувствовал себя плохо и спал в комнате таверны. Поздним утром кто-то постучал в дверь комнаты, и когда он вышел, вокруг не было ни души, а в проходе лежал кинжал. Тот поднял его, и осознав что на кинжале была кровь, какое-то время он на него смотрел, после чего по лестнице поднялись стражники, и его поймали до того как он понял что тут вообще происходит.
 
 ***
 
-Two hours later.
+"...... Мой, не делать ничего....... Интересно, что случиться, просто смотреть..."
 
-Кирито gathered key members of the Объединённого Совета Мира Людей in the Центральный Собор — this time it was a coach — and explained the situation. Ронье who accompanied him to the guards office was also allowed to attend a round table as a special case.
+Как только Орои завершил свою историю, капитан нетерпеливо прокричал.
 
-It was the Vice-Prime Асуна who first broke the silence spread in the vast space of the main conference hall on the fifteenth floor.
+"Ну конечно ты так скажешь, кто бы сомневался! Тот кинжал не из Мира Людей! Такое паршивое литьё может быть только у суб-людей!"
 
-"...... Where is that mountain Goblin, Oroi-сан?"
+"Дру...другой! Тот меч, он похожий, но другой! Гоблинский меч, у него знак клана на гарде! У того меча нет, он подделка!"
 
-"Oh, I brought him here from the guards building and he’s asked to occupy the vacant room on the fourth floor for the time being, we keep the door guarded, but it is virtually impossible..."
+На визгливую отповедь Орои, капитан снова попытался что-то сказать. Кирито остановил его, подняв правую руку и спросил.
 
-To frowning Кирито, Асуна responded with similar depressed look.
+"Это станет понятным, если исследуем его. Капитан, где кинжал сейчас?"
 
-"Until the incident is settled, that is also unavoidable...."
+"...... хранится в оружейной комнате на 1м этаже."
 
-And from the other side of the round table, the knight Дюсольберт’s faint voice echoed.
+"Простите, вы не принесёте?"
 
-"Apparently both of you seem to be sure that goblin actually did not commit a murder?"
+Капитан посмотрел на своего подчинённого. Молодой стражник рванул с места, словно за ним гнались, но всё равно заставил их ждать целых пять минут, прежде чем вернуться назад с бледным лицом, но без кинжала, и доложить.
 
-"── Aha, I think so."
+"…………Нету его."
 
-Кирито nodded and continued quietly after putting fingers of both hands combined together on the desk.
+"Что, что говоришь такое!"
 
-"The sightseeing trips from the Тёмной Территории to the Мира Людей is what the Union Council is doing as an exchange project between the two worlds. When crossing "The great Eastern Gate", visitors are obliged to acknowledge the prohibition list. It is a simple rule collection, ban on murder, stealing and injury, but the name of the Dark Army commander is clearly stated in it. In other words, if Oroi who is supposed to be bound by the "Закону Сильнейшего" of the Тёмной Территории broke the prohibition and killed the inn cleaner..."
+Капитан проорал это, и до предела втянувший голову в плечи стражник повторил.
 
-"His right eye has to be bursting."
+"Так точно, искомый кинжал в оружейной комнате отсутствует."
 
-It was the knight chief Фанатио who finished his phrase.
+***
 
-A lot of people sitting at the round table silently nodded to these words.
+Двумя часами спустя.
 
-For every one living in the Underworld, whether it was a human or a sub-human, there was a technique called "CODE 871". It was a terrible thing that caused a fierce pain to occurs in the right eye when trying to overcome any laws and regulations resulting in the eyeball blowing away without any trace of actually taking damage.
+Кирито собрал основных членов Объединённого Совета Мира Людей в  Центральном Соборе — на сей раз это была карета — и пояснил ситуацию. Ронье, сопровождавшей его в отделение стражи, тоже разрешили присутствовать в порядке исключения.
 
-In the first place, ordinary people did not even have the idea of violating the law. Ронье herself faced the unreasonableness of "Taboo Index" once and many times of "Imperial Fundamental Law", but never tried to break them. Of those holding such thoughts or actions and had reached the stage where the right eye is actually destroyed, there were only three confirmed people in the entire three hundred years history of Underworld — well, four people if you add someone who pulled out the right eye themselves — and only them.
+Вице-Премьер Асуна первой нарушила тишину, заполнившую обширное пространство конференц-зала пятидесятого этажа.
 
-And there was nothing wrong with both eyes of mountain Goblin youth Oroi. Ронье saw that with his own eyes.
+"...... Где сейчас этот горный гоблин, Орои-сан?"
 
-"……however."
+"О, я привёз его сюда из отделения стражи, и пока что ему выделили пустую комнату на четвёртом этаже, а у двери стоит стража, но практически невозможно, чтобы он..."
 
-The cautious voice belonged to the Integrity Knight Renri.
+Асуна ответила хмурящемуся Кирито с таким же печальным выражением.
 
-Тейза’s groom, the young knight, who waited for an opportunity to reply, whatever caused it, was sitting with completely depressed expression and any color has left his face.
+"Пока инцидент не исчерпан, это неизбежно...."
 
-"The murder act should also be the greatest violation for all humans not only that Oroi. It’s us Integrity Knights who is given the right to ultimately ignore most laws, but even we are not able to deal a total loss of the innocent human's life. That means... if anyone other than Oroi killed the inn cleaner, that person......."
+А с другой стороны круглого стола раздался тихий голос рыцаря Дюсольберта.
 
-"── would have broken the seal of the right eye"
+"Похоже, оба вы практически уверены в том, что гоблин убийства не совершал?"
 
-Кирито muttered with a bitter smile on his face.
+"── Ага, так я думаю."
 
-"Ironically, if we had the "automated elders’ council" that once existed, we’d able to detect the culprit in a moment."
+Кирито кивнул и тихо продолжил, переплетя пальцы рук на затылке.
 
-Асуна immediately shook her head.
+"Туристические поездки из Тёмной Территории в Мир Людей — это то, на что пошёл Объединённый Совет в рамках программы по обмену между мирами. При пересечении "Великих Восточных Врат", посетителей обязывают ознакомиться со списком запретов. Там простой набор правил, запрет убийств, краж и увечий, но под ним стоит имя Главнокомандующего Армией Тёмной Территории. Иными словами, если бы Орои, который обязан подчиняться "Закону Сильнейшего" Тёмной Территории, нарушил бы запрет и убил уборщика в таверне..."
 
-"No, I’d never rely on such an inhumane system."
+"У него бы лопнул глаз."
+
+Завершила его фразу глава рыцарей Фанатио.
+
+Все сидящие вокруг круглого стола дружно кивнули.
+
+Каждого, кто жил в Подмирье, будь то человек или суб-человек, ограничивала техника, под названием "CODE 871". Эта ужасная штука заставляла возникать жестокую боль в правом глазу при попытке нарушения законов или иных регулирующих актов, и в результате, хоть никакого повреждения не наносилось, глаз взрывался.
+
+В первую очередь, обычным людям и в голову не могло прийти нарушить закон. Ронье на своей собственной шкуре один раз почувствовала бредовость "Индекса Табу" и много раз — "Фундаментального Закона Империи", но никогда не пыталась их нарушить. За всем три сотни лет истории Подмирья было лишь три подтверждённых случая, когда подобными мыслями и действиями люди доводили себя до состояния, когда правый глаз действительно уничтожался — ну, четверо, если считать одного, кто сам вырвал себе глаз — и только они.
+
+И с обоими глазами юного горного гоблина Орои всё было в порядке. Ронье лично видела это.
+
+"……однако."
+
+Осторожный голос принадлежал Рыцарю Целостности Ренри.
+
+Жених Тейзы, юный рыцарь, дождавшийся возможности ответить, что бы это ни вызвало, сидел с совершенно депрессивным выражение на лице, лишённом всяких красок.
+
+"Акт убийства должен быть величайшим нарушением для всех людей, а не только Орои. Нам, рыцарям Целостности, даровано право безусловно игнорировать большинство законов, но даже мы неспособны полностью лишить жизни невинного человека. А значит... если кто-то кроме Орои убил уборщика в таверне, этот человек......."
+
+"── должен был сломать печать на правом глазу."
+
+Пробормотал Кирито с горькой улыбкой на лице.
+
+"Какая ирония, если бы "автоматический совет старейшин" до сих пор существовал, мы бы установили виновника в мгновение ока."
+
+Асуна немедленно покачала головой.
+
+"Нет, я бы никогда не положись на столь бесчеловечную систему."
+
+### Продолжение завтра
 
 Automated Elders’ Council, the predecessor of the Объединённого Совета Мира Людей, was operated by the Axiom Church and consisted of a dozen of high-level clerics with frozen life and self-consciousness that permanently performed a remote search for persons who disobeyed the law, in other words, it was a human monitoring device. After the war, the sacred art that had bound the "elders" was canceled, but they gave up the ghosts after sleeping for several days without returning to consciousness.
 
@@ -369,5 +371,5 @@ When Ронье looked back at her face, her best friend smiled and said somethi
 
 ## Примечания:
 
-1. <a name="Prim1"></a>“Hold right there” would be more appropriate localized version, but that’s how original reads, plus this is the reason for Ронье’s next phrase.
-2. <a name="Prim2"></a>The goblin says “me” as オイラ (“oira”), which can be a version of properly-written “oira” - おいら - so it should be probably male. However, in this line, the guard uses め (“me”) which can be a female pronoun or maybe a shortening of てめえ (“temee”). In other words, I’m totally confused with the gender of the goblin. I’ll treat it as a male for now.
+1. <a name="Prim1"></a>“Стой кто идёт” было бы, вероятно, более приемлемо с точки зрения локализации, но так в оригинале, и к тому же, это ещё и причина следующей фразы Ронье.
+2. <a name="Prim2"></a>Гоблин говорит “я” как オイラ (“oira”), что может быть версией правильно написанного “oira” - おいら - так что это должно указывать на то, что он мужского пола. Однако, в этой же строчке, стражник использует め (“me”), что может быть и местоимением женского рода, а может быть и сокращением от грубого てめえ (“temee”). Короче, я совершенно запутан какого пола этот гоблин. Будем считать, что самец. Впрочем, в рамках этого тома это не имеет никакой разницы.
