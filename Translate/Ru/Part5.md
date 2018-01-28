@@ -1,105 +1,107 @@
-# Part 5
+# Часть 5
 
-The distance from Мира Людей capital Centoria to Тёмной Территории capital Obsidia was about three thousand kilolu.
+Расстояние от столицы Мира Людей Центории до столицы Тёмной Территории Обсидии было около трёх тысяч килолу.
 
-This is three days even by dragon that can fly a thousand kilolu a day. One month in the horse-drawn carriage, double that if walking. During the former Foreign World War, Emperor Vector, the commander of the Dark Army, moved 50000 troops from Obsidia to the Great Eastern Gate in five days using the dark art masters’ secret elixir and technique, which later was proved to be a terrible matter that permanently decreased the maximum value of life for every sub-human who drank it. Humans did not take elixir because they used horses or horse-drawn carriages, but sub-people who were walking were till that days in a state of reduced life, and Собор clerics were striving to find curation methods.
+Это три дня на драконе, способном пролететь тысячу килолу в день. Один месяц в запряжённой лошадьми повозке, два — если пешком. Во время бывшей Войны с Внешним Миром, Император Вектор, командир тёмной армии, переместил 50000е войско из Обсидии к Великим Восточным Вратам за пять дней, используя секретную технику и эликсир мастеров тёмных искусств, который, как было обнаружено позже, оказался ужасным веществом, навсегда снижавшим максимальное значение жизни выпившего суб-человека. Люди не принимали эликсир, потому что они использовали лошадей и повозки, но суб-люди, которым пришлось идти пешком, вплоть до этого дня были в состоянии уменьшенной жизни, и клерики Собора отчаянно пытались найти способ излечить их.
 
-_Мира Людей Премьер-Мечник Кирито who quickly decided to visit Obsidia in response to this emergency situation, of course, would use a flying dragon, Ронье thought. The aerial element flight technique used to travel from Собор to the guards’ office in South Centoria consumes a lot of space sacred power, so it cannot be used for a long time in Тёмной Территории with low amount of resources.  
-But he does not have his own mount, so he needs to ride Дюсольберт’s or Renri’s dragons. With a two-person ride, a dragon will be exhausted even faster, so I cannot ask to take me with him_ ─ and Ронье had given it up even before being instigated by Тейза.
+_Премьер-Мечник Мира Людей Кирито, внезапно решивший посетить Обсидию из-за этой чрезвычайной ситуации, конечно, полетит верхом на драконе_, думала Ронье. _Техника полёта на воздушных элементах, с помощью которой мы добрались из Собора к отделению стражи в Южной Центории, потребляет много священной силы, так что долго её на Тёмной Территории использовать не получится, ведь там ресурсов всегда не хватает.  
+Но собственного дракона у него нет, так что ему придётся оседлать дракона Дюсольберта или Ренри. С двумя наездниками, дракон устанет ещё быстрее, так что я не могу просить его взять меня с собой_ ─ и Ронье сдалась ещё до того, как услышала подстрекание Тейза.
 
-However, willing at least to help with preparations for the trip, Ронье went from Flying Dragon Stables to the 30th floor of Собор where Премьер-Мечник's room was. Асуна greeted her and said that "Кирито-kun is in the arsenal" with a face expressing the mix of concerns and acceptance.
+Однако, желая хотя бы помочь с приготовлениями к путешествию, Ронье отправилась от драконьих стойл на 30й этаж Собора, где располагались покои Премьер-Мечника. Асуна поприветствовала её и, с лицом выражавшим смесь обеспокоенности и принятия, сказала, что "Кирито-кун в арсенале".
 
-Sharing worried of Vice-Премьер-Мечник, she had to run a long distance again, down and behind Собор ── to the place where there was a former prison ── and upon getting there and moving down the wide ramp, she looked inside through a left open huge door.
+Разделяя волнения Вице-Премьер-Мечника, ей снова пришлось пробежать долгий путь, вниз и за Собор ── в место, где раньше располагалась тюрьма ── и добравшись туда и пройдя по широкой рампе, она заглянула в открытую нараспашку громадную дверь.
 
-Inside was a large space that seemed to be about thirty mel deep and on the left and right sides there were five or six young blacksmiths and clerics filling the space with powerful sound of hammering and swishing. And in the center, there was a huge artifact illuminated by countless light element chandeliers.
+Внутри было большое пространство около 30 мел глубиной, а по обеим сторонам находились пять или шесть кузнецов и клериков, наполнявших пространство громким лязгом и свистом. А в центре стоял огромный артефакт, освящённый бессчётными люстрами на световых элементах.
 
-It was a "machine dragon", a metal dragon similar to Prototype 1, which had a big explosion the other day, and by its side chief of engineering master Садоре and Кирито were actively exchanging opinions...... strictly speaking, just yelling at each other.
+Это был "искусственный дракон", металлический дракон, напоминающий Версию 1, которая накануне наделала немало шуму, а возле него главный инженер мастер Садоре и Кирито активно обменивались мыслями...... если быть точнее, то просто орали друг на друга.
 
-"So, how many times should you say it, Kiri-boy! This baby is still in the process of adjustment, full force flight is impossible, even blockhead like you should be able to understand it!"
+"И сколько раз мне повторять, Кири-бой! Эта крошка всё ещё в процессе подгонки, полёт на полной мощности невозможен, даже такой болван как ты должен бы это уже понять!"
 
-"Relax, master, this time I will only fly horizontally instead of vertical launch. Just replace those with wider wings so it can glide the air!"
+"Да ладно, мастер, в этот раз ведь вместо вертикального взлёта я только буду лететь горизонтально. Просто замени эти крылья широким вариантом, чтобы на воздухе держали!"
 
-"What the monkey is going on? So that’s what you say, the destination of my baby is the capital of the Тёмной Территории! No, we haven’t run flight tests yet, but suddenly I’m acknowledged there is someone who will fly it 6000 kilolu round-trip!"
+"Да твою-то мартышку, что происходит? Думаешь, можешь просто так прийти и сказать, что отправляешь эту крошку в столицу Тёмной Территории! Нет, у нас тут ещё предполётные тесты ещё не пройдены, но я внезапно узнаю, что кое-кто собирается быстренько смотаться туда и обратно за 6000 килолу!"
 
-"But it’s fine, this time thermal-element sealed container’s density is double the one of Version 1, and also master has carefully improved the fuselage. Even if I fly ten thousand kilolu, it won’t blow up. Don’t you think so?"
+"Но всё же нормально, в этот раз толщина камеры сгорания термальных элементов удвоена по сравнению с 1й версией, да ещё и мастер так здорово улучшил фюзеляж. Да хоть я и десять тысяч килолу на ней пролечу, она не взорвётся. Разве не так?"
 
-"Well, that's the case, this one you won’t break so easy, the level of fragility... No, no! Forget what I said. Every time I accept that kind of wheedling from your mouth, it is getting more troublesome than getting my ass stung by Oonumaab<sup><a href="#Prim1">1</a></sup>!"
+"Ну, да, всё так, эта так легко не развалится, а уровень хрупкости... Нет, нет! Забудь, что я сейчас сказал. Всякий раз, стоит мне принять эту лесть, льющуюся из твоего рта, и у меня возникает больше неприятностей, чем когда мне Оонумааб<sup><a href="#Prim1">1</a></sup> задницу ужалил!"
 
-Having heard their arguing, Ронье felt blood left her face. Кирито will neither use a dragon nor a coach, he intends to fly to Obsidia with this Machine Dragon v. 2. The recent catastrophe vividly revived in her mind, so she swayed her head and rushed towards those two.
+Расслышав их спор, Ронье почувствовала, как кровь отхлынула от её лица. Кирито не будет использовать ни дракона, ни карету, он полетит на Искусственном Драконе, Версия 2. Недавняя катастрофа ярко вспыхнула у неё в мозгу, так что она мотнула головой и бросилась к тем двум.
 
-"It’s dangerous, Кирито-сенпай! As chief engineer Садоре says, what would you do if something happens!"
+"Это опасно, Кирито-сенпай! Как и говорит главный инженер Садоре, что вы будете делать, случись что!"
 
-"Oh, hey, Ронье, don’t get closer or you’ll have oil on your clothes"
+"О, привет, Ронье, не подходи ближе, а то маслом одежду запачкаешь."
 
-Pulling Ронье's left arm away from the dragon for about 50 cen, Кирито laughed gently but then tightened his expression.
+Оттянув Ронье за левую руку от дракона где-то на 50 цен, Кирито усмехнулся, но затем вновь посерьёзнел.
 
-"Well, in these circumstances including the you-know-what thing, I have to, regrettably, fly by my own means. Because all the knights are busy and I cannot order anyone of them to get me to Obsidia, and if it is a horse it will take months.... The situation seems to be tenser than we thought, if we do not warn the Тёмной Территории regarding the situation as soon as possible, it may be too late..."
+"Ну, при нынешних обстоятельствах, включающих сама-знаешь-что, мне, к несчастью, придётся лететь своими силами. Все рыцари сейчас заняты, и я никому не могу приказать доставить меня в Обсидию, а лошадью это займёт месяц.... Ситуация выглядит более сложной, чем мы думали, и если не предупредить Тёмную Территорию о ситуации как можно скорее, то может быть слишком поздно..."
 
-"............ But, there are other dangers, сенпай."
+"............ Но, есть и другие опасности, сенпай."
 
-Ронье tried to persuade Кирито hard approaching one step closer.
+Ронье, отчаянно пытаясь переубедить Кирито, подошла на шаг ближе.
 
-"The one who killed the inn cleaner Yazen-сан and tried to put the crime to the mountain goblin Oroi was not bound by a Taboo Index. Then, they may also target Кирито leaving Centoria...... No, perhaps, this event itself might be a trap to compel сенпай to go to Obsidia!"
+"Тот, кто убил уборщика Язен-сана и попытался переложить вину на горного гоблина Орои, не связан Индексом Табу. Тогда, они вполне могут нацелиться на Кирито, покидающего Центорию...... Нет, возможно, само это событие и есть ловушкой, чтобы подтолкнуть сенпая к поездке в Обсидию!"
 
-"Oh...... Indeed, there is a possibility of that..."
+"Ой...... и правда, такое возможно..."
 
-When she muttered this with a serious look, Кирито closed his mouth to think about something.
+Проговорив это с серьёзным видом, Кирито закрыл рот и задумался.
 
-What broke the silence was a loud sigh of master Садоре.
+Тишину нарушил громкий вздох мастера Садоре.
 
-"……so, me too, you know, exchanged a great deal of skills and knowledge blacksmiths from the Тёмной Территории. These days the world is like in a dream, and I don’t want to go back to old days."
+"……знаешь, я ведь тоже, такое дело, обмениваюсь навыками и знаниями с кузнецами из Тёмной Территории. Сегодня каждый день — как ожившая мечта, и мне не хотелось бы возвращаться в прошлое."
 
-"Hey...... Even such an old man as master, do you still have to learn anything?"
+"Хей...... так значит и в твоём возрасте, мастер, можно чему-то новому научиться?"
 
-To the question of Кирито, Садоре made a frowning face squeezing his gray beard.
+В ответ на колкий вопрос Кирито, Садоре нахмурился и сжал седую бороду.
 
-"Unfortunately, yes. The swords and armor of Dark Knights the Defense Army brought back from the battlefield, it was wonderfully crafted. To start with they have used original steel, type of which is unknown to me... Until now we don’t know the source of ore and the manufacturing method."
+"К несчастью, да. Мечи и броня Тёмных Рыцарей, которые Армия Защиты принесла с поля боя, они были прекрасно сделаны. Для начала, они использовали собственную сталь, неизвестного мне типа... До сегодняшнего дня мне неведом ни источник, ни способ производства."
 
-Садоре hit the outer plate of the silver-shining machine dragon with a big hand covered with countless scars and said.
+Садоре хлопнул своей большой рукой, покрытой множеством шрамов, панель обшивки серебрящегося искусственного дракона и сказал.
 
-"...... Kiri-boy, the thermal elements pressure meter says we’re up to 80%. And make sure to set small output opening."
+"...... Кири-бой, по показаниям датчика давления термальных элементов, мы на 80%. Так что убедись, что сопло инжекторов будет не шире."
 
-"Oh, that’s truly master! The pressure is...... That's right,...... one kilome per one square cen."
+"О, вот это по-вашему, мастер! Давление...... всё верно,...... один килом на квадратный цен."
 
-"Wait a moment, please!"
+"Одну секундочку!"
 
-Ронье hurriedly broken in the conversation between them.
+Ронье второпях вклинилась в их диалог.
 
-"Aside from the safety of the dragon, there is still the danger of сенпай being targeted! To go alone to the Тёмной Территории, it is pretty much..."
+"Кроме безопасности дракона, всё ещё остаётся вероятность того, что сенпай и является их целью! Одному отправляться на Тёмную Территорию, это довольно-таки..."
 
-As she was saying that, Ронье looked up at the head of the dragon and noticed something that made her suddenly close mouth.
+Говоря это, Ронье взглянула на голову дракона и заметила кое-что, что заставило её резко замолкнуть.
 
-The glass part surrounding the metal chair — what seems to be called "the cockpit" — was quite longer than the one of Version 1. Staring eagerly, she saw another chair attached to the back of the cockpit.
+Стеклянная панель, окружавшая металлическое кресло — то, что они, кажется, называли "кокпит" — была намного длиннее, чем в версии 1. Поедая её глазами, она увидела, что позади основного кресла было установлено ещё одно.
 
-"............ hey, сенпай."
+"............ это, сенпай."
 
-"...What is it?"
+"...Что такое?"
 
-"Can this Version 2 possibly ride two people?"
+"А эта Версия 2, случайно, двух людей не потянет?"
 
-"Um... err, well. Although the supply of cryogenic element for Version 1 wasn’t catching up and it had exploded, which was expected to some extent...... here it's supposed that two people will be able to generate enough cryogenic elements, but as I said earlier, the cooling power is enough to fly horizontally even with one person......."
+"Умм... эээ, ну, Поскольку потока криогенных элементов для версии 1 не хватило, и она взорвалась, что, в общем-то, было в пределах ожиданий...... здесь мы предусмотрели, что двое человек смогут сгенерировать достаточный поток охладителя, но, как я уже сказал ранее, даже у одного хватит силы на охлаждение, достаточное для горизонтального полёта......."
 
-Ронье interrupted that twisting more and more away explanation of Кирито, who probably felt some bad premonition, with a cough.
+Ронье, кашлянув, прервала это всё более и более отклонявшееся от темы объяснение Кирито, который, видимо, почуял что-то недоброе.
 
-"I understood, сенпай, to deal with the danger of assassination, suggesting to take an escort."
+"Я поняла, сенпай, и чтобы совладать с опасностью покушения, рекомендую взять с собой эскорт."
 
-"You as an escort?"
+"Тебя, что ли, как эскорт?"
 
-"Well, as сенпай said earlier, everyone among higher-rank knights is busy, so as a knight trainee, I will fulfill this mission responsibly!"
+"Ну, как сенпай и сказал ранее, все высокоранговые рыцари заняты, так что как ученик рыцаря я ответственно выполню эту нелёгкую миссию!"
 
-"Er… err?"
+"Э… эээ?"
 
-"Besides that, I can also help you monitor thermal element cans!"
+"Кроме того, я помогу вам наблюдать за состоянием баков термальных элементов!"
 
-"Eeeee~~r!?"
+"Ээээээ~~э!?"
 
-Before the reluctant Кирито says anything, Ронье's right fist hit her chest and left hand laid on the sword’s handle in the official knight salute, declaring an unvoiced command acceptance.
+Прежде, чем сомневающийся Кирито смог что-то сказать, Ронье правым кулаком ударила себя в грудь, а левую руку положила на рукоять меча в официальном рыцарском салюте, выражая принятие неозвученного пока приказа.
 
-Next to perplexedly blinking Кирито, master Садоре made “**Gahhahha**” and smiled happily.
+Рядом с растерянно моргающим Кирито, мастер Садоре издал “**Гах-ха-ха**” и радостно улыбнулся.
 
-"I say, you lose, Kiri-boy. Nevertheless, Ронье-jochan<sup><a href="#Prim2">2</a></sup> has become quite resolute."
+"Я бы сказал, ты проиграл, Кири-бой. Тем не менее, а Ронье-дзотян<sup><a href="#Prim2">2</a></sup> стала весьма решительной."
 
 ***
+
+## Продолжение завтра
 
 Although somehow Ронье managed to get an attendance permission from Кирито, from there it became serious.
 
@@ -623,8 +625,8 @@ She unwillingly muttered such a name and hurriedly looked around. Even though no
 
 ## Примечания:
 
-1. <a name="Prim1"></a>Poisonous plant, unique to Underworld, used in manufacture. 
-2. <a name="Prim2"></a>嬢 means unmarried woman, girl; 嬢ちゃん, respectively, cute little girl, “cutie”.
+1. <a name="Prim1"></a>Ядовитое растение, уникальное для Подмирья, используется в производстве. 
+2. <a name="Prim2"></a>嬢 означает незамужнюю женщину, девушку; 嬢ちゃん, соответственно, миленькую девушку, “милашку”.
 3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九", in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
 4. <a name="Prim4"></a>Indian jasmine, _Jasminum sambac_
 5. <a name="Prim5"></a>クロイス, probably a reference to “Legend of Heroes” series.

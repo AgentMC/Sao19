@@ -4,7 +4,7 @@ The distance from Human World capital Centoria to Dark Territory capital Obsidia
 
 This is three days even by dragon that can fly a thousand kilolu a day. One month in the horse-drawn carriage, double that if walking. During the former Foreign World War, Emperor Vector, the commander of the Dark Army, moved 50000 troops from Obsidia to the Great Eastern Gate in five days using the dark art masters’ secret elixir and technique, which later was proved to be a terrible matter that permanently decreased the maximum value of life for every sub-human who drank it. Humans did not take elixir because they used horses or horse-drawn carriages, but sub-people who were walking were till that days in a state of reduced life, and Cathedral clerics were striving to find curation methods.
 
-_Human World Prime Swordsman Kirito who quickly decided to visit Obsidia in response to this emergency situation, of course, would use a flying dragon, Ronye thought. The aerial element flight technique used to travel from Cathedral to the guards’ office in South Centoria consumes a lot of space sacred power, so it cannot be used for a long time in Dark Territory with low amount of resources.  
+_Human World Prime Swordsman Kirito who quickly decided to visit Obsidia in response to this emergency situation, of course, would use a flying dragon_, Ronye thought. _The aerial element flight technique used to travel from Cathedral to the guards’ office in South Centoria consumes a lot of space sacred power, so it cannot be used for a long time in Dark Territory with low amount of resources.  
 But he does not have his own mount, so he needs to ride Dusolbert’s or Renri’s dragons. With a two-person ride, a dragon will be exhausted even faster, so I cannot ask to take me with him_ ─ and Ronye had given it up even before being instigated by Tiese.
 
 However, willing at least to help with preparations for the trip, Ronye went from Flying Dragon Stables to the 30th floor of Cathedral where Prime Swordsman's room was. Asuna greeted her and said that "Kirito-kun is in the arsenal" with a face expressing the mix of concerns and acceptance.
@@ -33,7 +33,7 @@ Having heard their arguing, Ronye felt blood left her face. Kirito will neither 
 
 Pulling Ronye's left arm away from the dragon for about 50 cen, Kirito laughed gently but then tightened his expression.
 
-"Well, in these circumstances including the you-know-what thing, I have to, regrettably, fly by my own means. Because all the knights are busy and I cannot order anyone of them to get me to Obsidia, and if it is a horse it will take months.... The situation seems to be tenser than we thought, if we do not warn the Dark Territory regarding the situation as soon as possible, it may be too late..."
+"Well, in these circumstances including the you-know-what thing, I have to, regrettably, fly by my own means. Because all the knights are busy and I cannot order anyone of them to get me to Obsidia, and if it is a horse it will take a month.... The situation seems to be tenser than we thought, if we do not warn the Dark Territory regarding the situation as soon as possible, it may be too late..."
 
 "............ But, there are other dangers, senpai."
 
@@ -43,7 +43,7 @@ Ronye tried to persuade Kirito hard approaching one step closer.
 
 "Oh...... Indeed, there is a possibility of that..."
 
-When she muttered this with a serious look, Kirito closed his mouth to think about something.
+When he muttered this with a serious look, Kirito closed his mouth to think about something.
 
 What broke the silence was a loud sigh of master Sadore.
 
@@ -57,7 +57,7 @@ To the question of Kirito, Sadore made a frowning face squeezing his gray beard.
 
 Sadore hit the outer plate of the silver-shining machine dragon with a big hand covered with countless scars and said.
 
-"...... Kiri-boy, the thermal elements pressure meter says we’re up to 80%. And make sure to set small output opening."
+"...... Kiri-boy, the thermal elements pressure meter says we’re up to 80%. So make sure to set injectors opening lower."
 
 "Oh, that’s truly master! The pressure is...... That's right,...... one kilome per one square cen."
 
