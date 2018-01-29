@@ -19,7 +19,7 @@ _Премьер-Мечник Мира Людей Кирито, внезапно 
 
 "Да ладно, мастер, в этот раз ведь вместо вертикального взлёта я только буду лететь горизонтально. Просто замени эти крылья широким вариантом, чтобы на воздухе держали!"
 
-"Да твою-то мартышку, что происходит? Думаешь, можешь просто так прийти и сказать, что отправляешь эту крошку в столицу Тёмной Территории! Нет, у нас тут ещё предполётные тесты ещё не пройдены, но я внезапно узнаю, что кое-кто собирается быстренько смотаться туда и обратно за 6000 килолу!"
+"Да твою-то мартышку, что происходит? Думаешь, можешь просто так прийти и сказать, что отправляешь эту крошку в столицу Тёмной Территории! Нет, у нас тут предполётные тесты ещё не пройдены, но я внезапно узнаю, что кое-кто собирается быстренько смотаться туда и обратно за 6000 килолу!"
 
 "Но всё же нормально, в этот раз толщина камеры сгорания термальных элементов удвоена по сравнению с 1й версией, да ещё и мастер так здорово улучшил фюзеляж. Да хоть я и десять тысяч килолу на ней пролечу, она не взорвётся. Разве не так?"
 
@@ -101,144 +101,144 @@ _Премьер-Мечник Мира Людей Кирито, внезапно 
 
 ***
 
-## Продолжение завтра
+Хоть Ронье какаим-то чудом и ухитрилась получить разрешение сопровождать Кирито, с того момента всё стало серьёзным.
 
-Although somehow Ронье managed to get an attendance permission from Кирито, from there it became serious.
+Конечно, она впервые собиралась посетить Обсидию, столицу Тёмной Территории, но кроме того, у неё также не было опыта в ситуации, когда бы она оказалась единственным помощником Кирито. Она не имела ни малейшего представления, как именно нужно готовиться, и в то время, как она по возвращении из арсенала прочёсывала кучу своих аксессуаров и одежды в своей комнате на двадцать втором этаже ──
 
-Of course, it was the first time for her to visit Obsidia, the capital of the Тёмной Территории, but she also had no experience of the situation where she was going to be the Кирито’s only assistant. She had no idea on which exactly preparations should be done, and while she was grooming through a lot of small clothes accessories in her room on the twenty-second floor after returning back from the arsenal ──
+Внезапно кто-то постучал в дверь, и Ронье, подумав, что это, конечно, Тейза, побежала открывать, выкрикнув “Да!”.
 
-Someone knocked the door suddenly, and Ронье who thought it would be Тейза ran to the entrance shouting “Yes!”.
+"Я в порядке, но от помощи в сборах не откажусь......."
 
-"I’m OK, just lend me a hand to help packing......."
+Начала она, однако, когда дверь отворилась, за ней стояла не её рыжая подруга, а прекрасная мечница с ореховыми волосами, рассыпанными по жемчужному рыцарскому одеянию.
 
-She started like that, but once the door opened, who was standing behind it was not her redhead friend, but a beautiful female swordsman with chestnut hair dropped over a pearl knight outfit.
+"Ах...... Асуна-сама!"
 
-"Ah ...... Асуна-сама!"
+Асуна мягко улыбнулась и прервала Ронье, в спешке попытавшуюся выполнить официальный рыцарский салют.
 
-Асуна smiled gently and quickly stopped Ронье who was trying to hurriedly make a formal salute.
+"Прости, что отбираю твоё время, Ронье-сан. Мне бы хотелось, чтобы ты ненадолго пошла со мной в одно место..."
 
-"Sorry for taking your time, Ронье-сан. There is a place I want you to come over for a moment..."
+"......Да, куда скажете."
 
-"...... Yes, wherever you say"
+Ронье кивнула, вышла в коридор и последовала за Асуной. 
 
-Ронье nodded, exited to corridor and started walking behind Асуна. 
+Если бы дело происходило в Академии Мастеров Меча Северной Центории, если бы её подобным образом позвал бы старший ученик, вполне ожидаемым было бы развитие ситуации, включающее нескольких учеников, окруживших её за зданием Академии со словами вроде "Чёт ты слишком борзая стала, не?", но в Соборе подобное, конечно, не могло случиться.
 
-Should it me the Академии Мастеров Меча in North Centoria, if a higher ranked student would call her this way, the expected development of the situation would involve surrounded by several students behind the school building saying something like "You are not getting a little rude lately, are you?", but of course such things didn’t happen in the Собор.
+Однако, Ронье чувствовала себя весьма некомфортно от необходимости встретиться с Асуной тет-а-тет. Пусть та и была Вице-Премьер-Мечником Объединённого Совета Мира Людей, не по этой причине она пришла в Подмирье из внешнего мира. Причина же была весьма личной, такой, которую не всякому стоит доверить ──
 
-However, Ронье still felt quite uncomfortable having a one-on-one with Асуна. Even though the other party is a Vice-Премьер-Мечник of the Объединённого Совета Мира Людей, that was not a reason for her to come to Underworld from different world outside it. The reason was quite personal, such that couldn’t be confided to anyone ──
+Асуна снизошла в Подмирье в разгар Войны с Внешним Миром год и три месяца назад.
 
-It was in the middle of the Foreign World War one year and three months ago that Асуна descended into the Underworld.
+Отряд-приманка Армии Людей, частью которого были Ронье и Тейза, и который фокусировался на отвлечении армии Тёмной Территории, ведомой Императором Вектором, оказался в ситуации, когда ещё до выполнения своей роли приманки они могли быть полностью уничтожены. Ронье сама атаковала тёмного рыцаря, просочившегося в тыл группировки Мира Людей, но в мгновение ока её меч был повержен, и она уже приготовилась умереть — когда появилась Асуна.
 
-The Human Army decoy platoon Ронье and Тейза participated which was focused on distracting the Тёмной Территории army led by Emperor Vector was forced into a situation of complete destruction before it could fulfil the role of decoy. Ронье herself attacked the dark knight who had infiltrated behind the headquarters of the Мира Людей military, but her sword was beaten in a blink of an eye, and she already prepared for death — and then Асуна appeared there.
+Парящая в угольно-чёрном ночном небе, Асуна, с её невинной и сияющей внешностью, не могла быть принята за кого-то кроме богини созидания Стасии, нарисованной как на настенных росписях в доме Арабель, так и на картинах в Академии Мастеров Меча. Асуна подняла сияющий радугой меч и сотворив в земле громадный провал, тем самым изгнала тёмного рыцаря, что едва не убил Ронье, в земные глубины. Ронье, которая собственными глазами видела это чудо, безоговорочно поверила, что Асуна и есть богиня Стасия собственной персоной.
 
-Floating in the jet-black night sky, Асуна with her pure and radiant appearance, was seen as no one else than Genesis God Stacia, drawn on the murals of the Arabel family house and pictures in the Академии Мастеров Меча. Асуна raised a rainbow shining sword and created a huge hole in the ground banishing the dark knight who was about to kill Ронье to the bottom of the earth. Ронье who witnessed that miracle believed without any doubt that Асуна is Stacia God herself.
+Позже оказалось, что Асуна вместе с Кирито ─ а кроме них, Император Вектор и тот тёмный рыцарь, с которым сражалась Ронье ─ были "людьми из реального мира". Тем не менее, благодарность и уважение Ронье ничуть не уменьшились даже по прошествии более чем года с той войны.
 
-Later Асуна as well as Кирито ─ and additionally, Emperor Vector and the dark knight Ронье fought ─ turned out to be "real world people". Nevertheless, Ронье's gratitude and respect never faded at all even after more than a year after the war.
+Но такая вот встреча один-на-один заставила сердце Ронье биться довольно быстро.
 
-But facing each other alone in such a way made Ронье's heart to throb fast.
+Потому что Асуна была "кем-то особенным для Кирито", что сейчас было очевидно для всех и каждого. Асуна снизошла в Подмирье чтобы помочь Кирито, лишившемуся сознания.
 
-That is because Асуна was "someone special to Кирито", which now was clear to anyone. Асуна got down to Underworld because I wanted to help Кирито who lost his consciousness at the time.
+Общались ли они обыденно у залитого светом окна, или за обедом передавали друг другу солонку, да даже когда та отчитывала непоседливого Премьер-Мечника, Ронье чётко ощущала, что Кирито и Асуну связывает глубокая любовь.
 
-Whether they were talking casually at a sunny window, or passing a small vial of salt at a lunch, even when she was scolding the unreasonable Премьер-Мечник, Ронье strongly felt that Кирито and Асуна are tied with deep love.
+_Я бы никогда не стала вставать между ними. И если так случится в будущем...... видимо, не столь далёком, что будет проведён ритуал их брака, тогда я лишь искренне благословлю их.  
+Но............... но. Сколько бы времени ни прошло, тот день, когда боль в моей душе исчезнет, чувствую, никогда не придёт............__
 
-_I never thought of interrupting between the two of them. And should it occur in the future...... that is not so far, probably, that the ritual of their marriage will be carried out, at that time I want to just sincerely bless them.  
-But............... but. No matter how much time passes, the day when pain deep in my heart disappears, I feel like is never to come............__
+Идя позади, Ронье столь глубоко погрузилась в мысли даже во время спуска по лестнице, что едва не врезалась в Асуну, когда та остановилась перед ней.
 
-Walking after her, Ронье had sunk so much in thought even during descending the stairs, she nearly walked into the back of Асуна when she had stopped in front.
+Едва избежав столкновения и оглянувшись, она увидела, что они стояли перед большим складом оружия на третьем этаже Собора.
 
-She managed to avoid a collision and looked around, they were standing by a large armor storehouse on the third floor of Собор.
+Рельеф над массивными воротами, изображавший богинь Солус и Террарию, когда-то нёс предупреждение, что только главный старейшина, командир рыцарей и Первосвященник лично могли открыть их. Теперь любой мог посетить склад, достаточно было лишь записаться на столике рядом с дверью, но, само-собой, выносить содержимое воспрещалось.
 
-The relief over the massive gates depicting gods Solus and Terraria once stated that only Chief elder, knights’ commander and the Highest Priest herself were allowed to open it. Now anyone could visit if they write their name on the table next to the door, but of course it was not allowed to take the contents out.
+Асуна написала своё имя недавно разработанной ручкой на угольных чернилах на листе "конопляной бумаги", тоже недавно произведённой в центральной столице из снежно-белых волокон конопли в качестве заменителя пергаменту, не колеблясь открыла дверь и вошла внутрь. Поскольку уже был вечер, других посетителей не было, и их поприветствовала лишь успокаивающая тьма.
 
-Асуна wrote her name with a newly developed ink-filled copper pen on the sheet of "hemp paper", which was recently manufactured in the central capital from snow-white hemp fibers as a substitute for parchment, without hesitation opened the door and went inside. Since it was already the evening, there were no visitors, and the calming darkness welcomed them.
+Асуна прикоснулась к стеклянной трубке возле входа и зачитала священное искусство.
 
-Асуна touched the glass tube beside the entrance and chanted a sacred art.
+"Систем Колл, Дженерейт Люминэс Элэмент"
 
-"System Call, Generate Luminous Element"
+Используя всего один палец, она создала в трубке десять световых и один воздушный элемент.
 
-Using only one finger she generated ten light sources in the tube and then one wind element.
+Под его давлением, десяток световых элементов двинулся в узкой трубке, пролегавшей вдоль стен, и ярко осветил весь склад.
 
-Under its pressure ten light sources moved in the tight pipe running along the wall and brightly illuminated the entire large armor store.
+Подобно конопляной бумаге и угольной ручке, эта "световая трубка" арсенальная люстра на световых элементах были также разработаны Кирито и Асуной. В отличие от факелов и масляных ламп, они не несли угрозы пожара, а свет был белым и стабильным, однако, поскольку в её основе была стеклянная трубка, с которой мало-помалу взаимодействовали световые элементы вплоть до полного их исчезновения, нужно было, чтобы их регулярно восполнял кто-то, способный использовать священное искусство. И хоть в Соборе, полном клериков, этим можно было заменить все масляные лампы, всё ещё не было возможным распространить изобретение на всю Центорию.
 
-Just like hemp paper and copper pens, this "light tube" and the light chandelier of the arsenal were also developed by Кирито and Асуна. Unlike torches and oil lanterns, there was no danger of fire and light was also white and stable, however as it is contained in a glass tube, since the light reacts little by little with the glass and disappears, it was necessary for who can use sacred art to regularly supplement those. Although it is possible to completely replace oil lanterns in the Собор full of clerics, it seemed still impossible to spread it to entire city of Centoria.
+Освещённый целым десятком люменов, весь склад оружия ярко засиял, и едва войдя, Ронье ахнула от восхищения.
 
-As soon as it was illuminated by as many as 10 lights, the whole armor storehouse glowed brightly, and Ронье who barely entered here breathed lightly.
+Множество разноцветной брони было выставлено в пространстве, широком, словно большая тренировочная площадка в Академии Мастеров Меча, а стены были увешаны бесчисленными большими и маленькими мечами, копьями и секирами. Среди них, вероятно, было и оружие класса Божественный Инструмент, которое даровали старшим Рыцарям Целостности, но ученица Ронье всё ещё не смогла бы различить их.
 
-Many colorful armors were lined up in the area wide as a large training ground of the Академии Мастеров Меча, and numerous large and small swords, spears and axes were hung on high walls. There probably were some divine-class weapons awarded to senior Integrity Knights, but it was still impossible for trainee Ронье to distinguish them.
+"... как и всегда, чудесное зрелище."
 
-"... as usual, it is a wonderful view"
+Асуна кивнула восторгающейся Ронье.
 
-As Ронье let out the admiration voice, Асуна nodded.
+"Это так. Но даже этого не хватит, чтобы обеспечить потребности Армии Мира Людей Рины, в смысле, генерала Селюрут. Похоже, Кирито хотел выдать большинство людям, оказывая в равной степени поддержку Миру Людей и Тёмной Территории, но Дюсольберт был категорически против."
 
-"It is true. But, even this is quite a few to fulfill the needs of Lina’s, I mean, general Selrut’s Мира Людей Army. It seems Кирито wanted to release the majority and let them to be used equally for the support of Мира Людей and Тёмной Территории, but it was really opposed by Дюсольберт."
+"Ну, это и правда сложная проблема, не так ли?"
 
-"Well, that's a difficult problem, is not it?"
+Она могла только дать такой короткий ответ, в то время как по её спине побежали мурашки.
 
-She could only give that sort of an answer, as she felt shivers piercing her shoulders.
+Важность поддержки Тёмной Территории была очевидна для Ронье, которая собственными глазами видела голодных детей горных гоблинов. Но в её мозгу всё ещё раздавалось эхо от слов Кирито: 『Война разгорится вновь』.
 
-The importance of support of the Тёмной Территории was well understood to Ронье who saw the hungry mountain goblins children by her own eyes. But in her mind, words of Кирито still echoed: 『The war will start once again』.
+_Если такое и вправду случится... я хочу, чтобы семьи и ученики Северной Центории, рыцари и клерики Собора и конечно Тейза были все в полной безопасности, и чтобы это гарантировать мы должны сохранить это оружие здесь, как ценные средства_, — думала она.
 
-_Should this ever be the case... I want families and students in the North Centoria, Собор knights and clerics and of course Тейза to be absolutely safe, and to guarantee that we should leave these weapons that are valuable assets_, — she thought.
+Асуна, стоящая позади, похлопала Ронье по плечу и сказала с хитрой улыбкой на лице.
 
-Асуна standing behind her patted Ронье’s shoulder and said with a mischievous look on her face.
+"Так, эмм.... ученик Рыцаря Целостности Ронье Арабель, каков твой нынешний уровень контроля вооружения?"
 
-"So, hmm.... Integrity Knight trainee Ронье Arabel, how much is your current weapon control authority?"
+"Э, чт…? Зачем Асуна-сама такое спрашивает..."
 
-"Er, wha…? Why does Асуна-сама asks such a thing..."
+"Всё в порядке, ничего такого."
 
-"It’s all right, it’s all right."
+Тот, кто смотрит в лицо величайшего мечника Мира Людей, должен подчиниться. _Эй, но я давно не проверяла, вдруг он стал меньше...._ думая в этом направлении, левой рукой она нарисовала в воздухе знак и слегка хлопнула по правой.
 
-One looking into the face of the second greatest swordsman in the Мира Людей has to obey. Hey, I did not check it recently, what if it went down.... thinking this way, she drew a sign in the air with her left hand and lightly taped her right hand.
+"Окно Стасии", появившееся в слабом сиянии, было отражением самой сути человека — чего-то, что Кирито называл "статами перса" — так что подглядывать в чужие окна считалось высшей формой невежливости, ну разве что кроме случаев опасности. Чтобы защитить своё окно от взгляда Асуны, Ронье сделала шаг позади неё и затем произнесла число, написанное напротив строки **【Object Control Authority】**.
 
-"Stacia’s window" appeared with a faint glow, was the representation of the ultimate essence of a person — something Кирито was calling "personal stats" — so was not polite to peep at other’s windows except for the cases of emergency. To protect her window from Асуна’s look, Ронье went one step behind her and then told the number in the row titled **【Object Control Authority】**.
+"Эмм, он — 39<sup><a href="#Prim3">3</a></sup>......"
 
-"Err, it is 39<sup><a href="#Prim3">3</a></sup>......"
+"Потрясающе, почти как у номерных рыцарей."
 
-"Amazing, it's almost the same as numbered knights have."
+Асуна довольно улыбнулась и пошла к дальней стене, бормоча "Так, тогда.......". Она прошла мимо бессчётных выставленных одноручных мечей различных цветов и оформления, выбрала целых четыре и держа по два в каждой руке, выстроила их на ближайшей скамейке.
 
-Асуна smiled sweetly and went to the far wall murmuring "Well then.......". She moved through countless displayed one-handed swords of various colors and designs one after another, chose as much as four and holding them by two in each hand, arranged on a nearby bench.
+"Тут приоритеты 38 и 39. Выбирай какой понравится, Ронье-сан."
 
-"These are priorities 38 and 39. Choose whichever you like, Ронье-сан."
+В течение какого-то времени та не знала, что и ответить на неожиданные слова Асуны.
 
-The unexpected words of Асуна made the other one speechless for several moments.
+К слову о приоритете 39, он не достигал уровня Божественных Инструментов, но такой меч всё равно был уникальным и попадал в категорию легендарных. И правда, все четыре лежащих перед ней меча, были украшены богатой резьбой, а отполированные до зеркального блеска клинки сияли различными оттенками. Даже "Круг Четырёх Клинков", подчиняющиеся напрямую Фанатио, использовали общепринятые мечи, а ученики рыцаря не могли даже мечтать о таком подарке.
 
-Speaking of Priority 39, it does not extend to the level of divine objects, but such a sword is still unique and categorized as a legendary one. Indeed, all four lined up on the bench were decorated with a wonderful decoration, and all polished like a mirror blades shined with different shades. Even "Four Oscillation Blades" reporting directly to Фанатио were using official style swords, the knight trainee could not even dream of such a gift.
+"Я... не могу.... Асуна-сама!"
 
-"I ... could not .... Асуна-сама!"
+Когда Ронье всплеснула обеими руками и замотала головой, Асуна усмехнулась и сказала.
 
-When Ронье swung both hands and head at the same time, Асуна grinned and said.
+"Этот жест, похоже на Кирито-куна."
 
-"That gesture, it looks a bit like Кирито-kun"
+"Ну... да... наверное......."
 
-"Well ... yeah... maybe ... ...."
+"Хе-хе, не стоит себя сдерживать, Ронье-сан. Я получила разрешение от командующей Фанатио, и кроме всего прочего, ты — храбрец, прошедший всю войну до самого конца."
 
-"He-he, you do not have to hold back, Ронье-сан. I got permission from commander Фанатио and above all you are a brave person who fought through that war until the end."
+"............... Но это так..."
 
-"............... It’s such a..."
+Снова махание и мотание.
 
-Once again, wiggle and waving.
+"...... Меня защищали Асуна и Ренри, и множество мечников Мира Людей, и бойцы, что пришли на подмогу из реального мира...... Когда тот чёрный рыцарь издевался над Кирито-сенпаем, хоть я и была там, я ничего не могла сделать."
 
-"...... I was protected by Асуна and Renri, and many Мира Людей swordsmen, and swordsmen who came to the rescue from Real World...... When that black knight did terrible things against Кирито-сенпай, even though I was there, I could not do anything."
+"Всё совсем не так, уж точно."
 
-"Not at all, for sure."
+Асуна внезапно шагнула к Ронье и ласково положила свои ладони на спину Ронье. Хотя в начале всё её тело целиком задервенело, сладкий и освежающий аромат мелати<sup><a href="#Prim4">4</a></sup> и мягкое тепло быстро растопили напряжение.
 
-Асуна suddenly made a step towards Ронье and gently pit her hands to Ронье's back. Although at first her body became completely stiff, sweet and refreshing scent of melati<sup><a href="#Prim4">4</a></sup> and gentle warmth quickly melt the tension.
+"Это ведь и Ронье-сан, и Тейза-сан, и Алиса защищали Кирито когда он не мог двинуться. Для меня, вы — настоящие герои... Я никогда не смогу вас достойно отблагодарить..."
 
-"It was Ронье-сан and Тейза-сан, and Alice, who protected Кирито when he couldn’t move. For me, you are the true heroes... I won’t ever be able to thank you enough..."
+Чувствуя, как от этих слов на её глазах наворачиваются слёзы, Ронье произнесла.
 
-Feeling tears covering her eyes from these words, Ронье muttered.
+"Алиса-сама...... Почему она оставила нас......."
 
-"Alice-сама...... Why did she leave......."
+Через какое-то время Асуна с уверенностью ответила.
 
-After a while Асуна responded with certainty.
+"Она в порядке в реальном мире. Она — та надежда, что связывает оба мира....... Я уверена, однажды мы встретимся вновь......"
 
-"She is fine in the real world. She is the hope that ties the two worlds....... I'm sure, someday, we’ll meet again......"
+Вложив напоследок больше силы в объятия, Асуна отпустила её и вновь улыбнулась.
 
-Having applied some strength to both arms hugging Ронье, Асуна released her and smiled again.
+"А теперь выбери меч, это не только для тебя, это чтобы защитить Кирито-куна."
 
-"Now, pick a sword, this is not just you, it's also a weapon to protect Кирито-kun."
+После таких слов, она больше не могла сопротивляться.
 
-After such words she couldn’t refrain any longer.
+### Продолжение завтра. Дурацкие абзацы по 600 символов...
 
 Again, she looked at swords selected by Асуна. All four were straight swords for one hand, but grips and blades are somewhat slender, and it is understood that her selection matched not only the priority but also Ронье’s stature.
 
@@ -627,8 +627,8 @@ She unwillingly muttered such a name and hurriedly looked around. Even though no
 
 1. <a name="Prim1"></a>Ядовитое растение, уникальное для Подмирья, используется в производстве. 
 2. <a name="Prim2"></a>嬢 означает незамужнюю женщину, девушку; 嬢ちゃん, соответственно, миленькую девушку, “милашку”.
-3. <a name="Prim3"></a>BTW, the priority and OCA here and below are written using western notation, e.g. "39" instead of "三十九", in other words, it’s “sacred numbers” that characters _pronounce_ "thirty-nine" or something like this.
-4. <a name="Prim4"></a>Indian jasmine, _Jasminum sambac_
+3. <a name="Prim3"></a>"Уровень Контроля Объектов". Кстати, приоритет и УКО здесь и ниже указаны, используя западное написание, например "39" вместо "三十九", иначе говоря, это “священные числа”, которые персонажи _произносят_ "сёти-найн" или вроде того.
+4. <a name="Prim4"></a>Жасмин индийский, _Jasminum sambac_
 5. <a name="Prim5"></a>クロイス, probably a reference to “Legend of Heroes” series.
 6. <a name="Prim6"></a>Here “Konoe Knights” should be treated as “personal Emperor’s guards”; the “Prologue III” from vol.18 contains a spoiler that unveils what will happen in Underworld with this role in the future.
 7. <a name="Prim7"></a>“Yu”, or specifically kanji “湯” means hot water or hot springs. Based on the following paragraphs it seems that hot springs are not simulated by Main Visualizer — which I personally find hard to believe given who built it, but OK — so the only “yu” in Underworld should be “弓”, a bow, which is actually pronounced “yumi” but can be shortened to “yu”. You can have a glimpse of the look of cloth [here](https://ojiya-chijimi.jp/archives/31862). It is quite obvious that it serves as a pseudo-door to hot springs/hot tub area.

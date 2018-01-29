@@ -121,7 +121,7 @@ Asuna smiled gently and quickly stopped Ronye who was trying to hurriedly make a
 
 Ronye nodded, exited to corridor and started walking behind Asuna. 
 
-Should it me the Sword Mastery Academy in North Centoria, if a higher ranked student would call her this way, the expected development of the situation would involve surrounded by several students behind the school building saying something like "You are not getting a little rude lately, are you?", but of course such things didn’t happen in the Cathedral.
+Should it be the Sword Mastery Academy in North Centoria, if a higher ranked student would call her this way, the expected development of the situation would involve surrounded by several students behind the school building saying something like "You are not getting a little rude lately, are you?", but of course such things didn’t happen in the Cathedral.
 
 However, Ronye still felt quite uncomfortable having a one-on-one with Asuna. Even though the other party is a Vice-Prime Swordsman of the Human World Union Council, that was not a reason for her to come to Underworld from different world outside it. The reason was quite personal, such that couldn’t be confided to anyone ──
 
@@ -135,7 +135,7 @@ Later Asuna as well as Kirito ─ and additionally, Emperor Vector and the dark 
 
 But facing each other alone in such a way made Ronye's heart to throb fast.
 
-That is because Asuna was "someone special to Kirito", which now was clear to anyone. Asuna got down to Underworld because I wanted to help Kirito who lost his consciousness at the time.
+That is because Asuna was "someone special to Kirito", which now was clear to anyone. Asuna got down to Underworld because she wanted to help Kirito who lost his consciousness at the time.
 
 Whether they were talking casually at a sunny window, or passing a small vial of salt at a lunch, even when she was scolding the unreasonable Prime Swordsman, Ronye strongly felt that Kirito and Asuna are tied with deep love.
 
@@ -158,7 +158,7 @@ Using only one finger she generated ten light sources in the tube and then one w
 
 Under its pressure ten light sources moved in the tight pipe running along the wall and brightly illuminated the entire large armor store.
 
-Just like hemp paper and copper pens, this "light tube" and the light chandelier of the arsenal were also developed by Kirito and Asuna. Unlike torches and oil lanterns, there was no danger of fire and light was also white and stable, however as it is contained in a glass tube, since the light reacts little by little with the glass and disappears, it was necessary for who can use sacred art to regularly supplement those. Although it is possible to completely replace oil lanterns in the Cathedral full of clerics, it seemed still impossible to spread it to entire city of Centoria.
+Just like hemp paper and copper pens, this "light tube" and the light element chandelier of the arsenal were also developed by Kirito and Asuna. Unlike torches and oil lanterns, there was no danger of fire and light was also white and stable, however as it is contained in a glass tube, since the light reacts little by little with the glass and disappears, it was necessary for who can use sacred art to regularly supplement those. Although it is possible to completely replace oil lanterns in the Cathedral full of clerics, it seemed still impossible to spread it to entire city of Centoria.
 
 As soon as it was illuminated by as many as 10 lights, the whole armor storehouse glowed brightly, and Ronye who barely entered here breathed lightly.
 
@@ -168,7 +168,7 @@ Many colorful armors were lined up in the area wide as a large training ground o
 
 As Ronye let out the admiration voice, Asuna nodded.
 
-"It is true. But, even this is quite a few to fulfill the needs of Lina’s, I mean, general Selrut’s Human World Army. It seems Kirito wanted to release the majority and let them to be used equally for the support of Human World and Dark Territory, but it was really opposed by Dusolbert."
+"It is true. But, even this is quite a few to fulfill the needs of Rina’s, I mean, general Selrut’s Human World Army. It seems Kirito wanted to release the majority and let them to be used equally for the support of Human World and Dark Territory, but it was really opposed by Dusolbert."
 
 "Well, that's a difficult problem, is not it?"
 
@@ -186,7 +186,7 @@ Asuna standing behind her patted Ronye’s shoulder and said with a mischievous 
 
 "It’s all right, it’s all right."
 
-One looking into the face of the second greatest swordsman in the Human World has to obey. Hey, I did not check it recently, what if it went down.... thinking this way, she drew a sign in the air with her left hand and lightly taped her right hand.
+One looking into the face of the second greatest swordsman in the Human World has to obey. _Hey, I did not check it recently, what if it went down...._ thinking this way, she drew a sign in the air with her left hand and lightly taped her right hand.
 
 "Stacia’s window" appeared with a faint glow, was the representation of the ultimate essence of a person — something Kirito was calling "personal stats" — so was not polite to peep at other’s windows except for the cases of emergency. To protect her window from Asuna’s look, Ronye went one step behind her and then told the number in the row titled **【Object Control Authority】**.
 
