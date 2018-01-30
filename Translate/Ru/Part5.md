@@ -238,137 +238,137 @@ _Если такое и вправду случится... я хочу, чтоб
 
 После таких слов, она больше не могла сопротивляться.
 
-### Продолжение завтра. Дурацкие абзацы по 600 символов...
+Она снова уставилась на мечи, которые выбрала Асуна. Все четыре были прямыми одноручниками, но рукояти и клинки были тоньше обычных, и было очевидно, что её выбор учитывал не только приоритет, но и фигуру Ронье.
 
-Again, she looked at swords selected by Асуна. All four were straight swords for one hand, but grips and blades are somewhat slender, and it is understood that her selection matched not only the priority but also Ронье’s stature.
+Как было обнаружено недавно благодаяря тщательному анализу Кирито, высококлассное оружие, аксессуары и предметы декора с приоритетом, превышавшим 30, в дополнение к величине жизни, отображавшейся в "окне Стасии", облаали некоторыми, скажем так, "скрытыми естественными возмождностями". В них входило широкий диапазон увеличений сопротивляемости атакам различными элементами, яду, усталости, тёмным искусствам, или же, напротив, они могли помогать создавать определённый эленмент, в рдких случаях, повыщали скорость восстановления жизни или давали, например, вохмоджность видеть во тьме; поговаривали, что обнаруживались даже странные эффекты, вроде того что обладателя начинают любить собаки.
 
-As it was discovered recently through steady Кирито’s analysis, top-ranking weapons, accessories and decorative items with priority exceeding 30, in addition to the value of the life displayed in the Stacia’s Window, it seems, were granting certain "hidden natural power", so to speak. It included a wide range of increased absorption of attribution attacks, poison, fatigue, dark arts, or, on the contrary, it could help to generate a specific element, in rare cases, the life recovery speed is increased or one becomes able to see in the night; they said, even strange effects such as being liked by dogs were discovered.
+В дополнение выяснилось, что Божественные Инструменты, которыми покойная Перволявященник одаривала Рыцарей Целостности, имели скрытые естественные возможности по усилению священного искусства тех атрибутов, в которых был хорош сам владелец, что означало, что Администратор были подвластны не только оружие, но и способности каждого рыцаря, в гораздо более детальном виде, чем давало Окно Стасии. В то время высокоранговые клерики Собора делали всё возможное, чтобы разработать "священную технику по прочтению скрытых естественных возможностей", но это занимало много времени... так сказал Кирито.
 
-In addition, it turned out that divine objects the deceased Highest Priest Administrator had given to the Integrity Knights, had hidden natural power to strengthen the sacred art of those attribute which one was good at, which means not only weapons but also the capabilities of knights were available to Administrator in much more detailed form than the Stacia's Window. Currently, Собор's high-level clerics seem to be doing their best to implement the "sacred techniques to uncover hidden natural power", but it will take a long time... Кирито had said.
+Четыре меча, оежащие в ряд перед глазами  Ронье тоже должны были обладать разными скрытыми естественными возможностями, но по их внешнему виду так просто этого было не понять. Она моглабы попытаться использовать священной искусство всех атрибутов, пробуя мечи по очереди, или пробежать вокруг Собора и затем проверить скорость восстановления жизни, но так она бы устала, а учитывая ранний отлёт на следующее утро, такого позволить себе она не могла.
 
-Four swords lined up in front of Ронье's eyes should also have different hidden natural powers, but from the appearance it couldn’t be seen at all. She could try using sacred art of all attributes equipping them in turn, or run around the Собор and then examine the recovery speed of her life, but this way she will feel faintly, which was not possible to afford as they were departing tomorrow early in the morning.
+И тогда она почувствовала как из глубин памяти раздался слабый голос, который она слышала, стоя когда-то точно также не зная, что выбрать.
 
-She felt that a faint voice came back from the depths of her memory when she was standing in the same way without knowing what to choose.
+_......В прошлом, этот меч был слишком тяжёлый, даже поднчять мог с трудом, не то что взахнуть._
 
-_......In the past, this sword was too heavy, even hard to lift, rather not to swing it._
+Тот, кто произнёс это, держа в руках красивый длинный меч с бело-голубым лезвием, был тем же, кому Тейза служила камердинером, элитный ученик мечника Юдзио. Рядом с ним улыбался элитный ученик мечника Кирито, полируя свой собственный чёрный меч, а на ближайшем столе стоял свежезаваренный чайц и свежевыпеченый медовый пирог, распространявший приятный аромат. Это тыло так давно, со времени этой сцены прошло уже почти два года.
 
-The one who said that holding a beautiful long sword with a slightly bluish white blade, was the same person whom Тейза served as a valet, elite swordsman-in-training Yujio. Next to him elite swordsman-in-training Кирито smiled polishing his own black sword, and nearby tables had just boiled tea and freshly baked honey pie spreading a nice scent. It has been so long time ago, nearly two years have passed already since that old scene.
+В то время Тейза и Ронье были ещё первогодками, только поступившими в Академию Мастеров Меча Северной Центории. Хотя они показали хорошие результаты на вступительных и получили места српеди двенадцати чселовекЮ, выбранных из ста двадцати, у них всё ещё были проблемы в обращении с теми мечами приоритетом 15 из платинового дуба, что им выдали, так что они спросили сенпаев как с ними управляться.
 
-At that time Тейза and Ронье were first year students just entered the Northern Centoria’s Академии Мастеров Меча. Although it happened so that the results of their entrance exams were good and they were able to get the place among twelve people chosen from one hundred twenty applicants, they still had troubles handling as expected those platinum oak wooden swords of priority 15 they were given, so they asked сенпайs how to handle heavy swords.
+Юдзио легко поднял "Меч Синей Розы", который хоть и выглядел хрупким и тонкимЮ но был намного тяжелее стальных двуручников, и продолжил.
 
-Yujio easily lifted the "Blue Rose sword" that although looking delicate and slim was much heavier than steel made big two-handed swords, and continued.
+『В теории, если уровень контроля вооружения мечника превышает приоритет оружия, меч не будет слишком тяжёл. Но я считаю, что связь между мечом и мечником нельзя свести к простым уцифрам. Дажеорудия с приоритетом ниже, чем уровень владельца, не лответят на его волю в час нужды если с ними не обходиться нормально и не ухаживать соответственно. Давным давно я не мог взмахнуть этим мечом не только потому что уровня не хватало, но и потому что моя связь с этим мечом была слаба... я думаю, поэтому. 』
 
-『In theory, if swordsman’s weapon control authority exceeds the priority of the weapon, the sword will not be too heavy. But I think that the connection between a sword and a swordsman is such a thing that cannot be expressed by numbers only. Even weapons having lower priority than their owner’s authority will not respond to the will of the owner at the time of need if they don’t treat them seriously or do not handle normally. I could not swing this sword a long time ago not only because I did not have enough authority, but because my connection to this sword was not enough... I think that’s the way it is. 』
+"Связь...... с мечом?"
 
-"Connection...... to the sword"
+Впервые укслышав подобное, Ронье и Тейза были весьма озадачены.
 
-Hearing such words for the first time, Ронье and Тейза were greatly puzzled.
+Они обе были детьми в семье шестогог, низшего класса аристократии, и их роджители мечтали о том как их дети вырастут и добившись успеха получат четвёртый класс, перестав житть ьпод страхом права наказания старших аристократов, так что они не жалели средств на то чтобы достойно обучить своих детей техникам обращения с мечом. Поэтому, когда деревянный меч ломался от усердной тренировки, они с радостью брали в руки замену. Для них обеих мечи олицетворяли мечту...... или скорее инструмент для реализации мечты их родителей, не то чтобы их самих, и в тоже время они были кандалами, ограничивающими их, предписывающими их будущее.
 
-Both of them were children of the sixth, lowest class aristocracy, and their parents dreamed that their kids will grow up and succeed enough to be granted the forth class so they won’t be living in fear of the aristocratic right of senior aristocrats anymore, so they spare no expense to train their children sword technique. Foremost, if a wooden sword is broken with intense training, they will be happy to take a replacement. For both of them the sword is a dream...... or rather a tool to realize the dreams of their parents, not really their own, and at the same time they were the handcuffs that tied them prescribing their future.
+Так что даже если кто-то и говорил что важна связь с мечом, такое они сходу понять не мгли.
 
-So even if one said that a connection to a sword is essential, they could not understand that immediately.
+Юдзио говорил с мягкой улыбкой, обращаясь к этим двоим.
 
-To such two people, Yujio talked with a gentle smile.
+"Не только с мечом. Одежда, обувь, утварь...... каждая частичка, созданная священным искусством, если откроете им своё сердце и поделитесь любовью, они ответят. Может, и люди тоже."
 
-"Not only the sword. Even clothes, shoes, tableware...... every single particle generated by sacred art, if you open your heart and share your love they will surely respond. Maybe, people too."
+Тогда, Кирито, молча выслушавший два последних предложения, прервал полировку "Меча Ночного Неба" — который в то время назывался просто "чёрным" ─ и от души зловредно ухмыльнуцлся.
 
-Then, Кирито who listened last two sentences silently stopped polishing "the sword of the night sky" — at that time simply called "black" ─ and deepened the mischievous smile.
+"Да, мы с Юдзио держим свой разум открытым. У меня вот, к примеру, образовалась связь с куском пирога, предназначающегося Юдзио, и я слышу как он сладостно взывает, чтобы я схел его."
 
-"Yes, Yujio and myself have our minds open. For example, I have a connection to Yujio’s pie, and I hear it happily permits me to eat it."
+"Прости, но когда я доем свой пирог, я планирую последовать за своей связью с твоим, Кирито."
 
-"I'm sorry, but the moment I eat my pie I will be executing my connection with yours, Кирито."
+Слушая их пикировку, Ронье неожиданно улыбнулась и асмеялась. Радуясь, орна подумала, что понимает слова Юдзио.
 
-When listening to that exchange, Ронье unexpectedly smiled and laughed. Laughing, she felt like she could understand the words of Yujio.
+С того самого юдня, с разрешения смотрителя общеждития, эти двое решили чистить и полировать выданные им мечи из платинового дуба с тренироволчной площадки, исправляя повреждения, нанесённые во время тренировки. Прошло совсем немного времени, и они смогли свободно взмахнуть этими мечами.
 
-From that day on, with the permission of the dorm guardian those two decided to brush and polish platinum oak wooden swords from the training ground every day to heal the damage caused by training. It did not take a while until they become able to freely swing a wooden sword.
+Когда-то они в тайне надеялис, что эти счастливые деньки в  Академии продлятся вечно. Но всего лишь через полтора месяца, Юдзио и Кирито  напали на других элитных учеников мечника с помощью Меча Синей Розы и Меча Ночного Неба чтобы спасти Тейзу с Ронье, и были увезены в Церковь Аксиом. После этого, сбежав из темницы, они вышли на бой протов самой Церкви Аксиом, прорвавшись через самых сильных рыцарей в мире, и в конце даже повергли Первосвященника Администратор, бывшую правителем Мира Людей. Но в той битве Юдзио потерял жизнь, уйдя туда, откуда не возвращаются.
 
-They hoped secretly that those enjoyable days at the Academy would continue forever. But only a month and a half later, Yujio and Кирито attacked other elite swordsmen-in-training with the Sword of the Blue Rose and the Sword of the Night Sky to help Тейза and Ронье and were taken to the Axiom Church. After that, when they escaped from the dungeon, they challenged the Axiom Church itself, breaking through the world's most powerful knights, and finally even defeated the Highest Priest Administrator who was the ruler of the Мира Людей. But in that fight Yujio lost his life and became the one who will never return.
+Вспоминая голос Тейзы жаждущей вновь увидеть Юдзио-сенпая, Ронье вытянула правую руку, не прикоснувшись к выступившим слёзам.
 
-Recalling the voice of Тейза striving to meet Yujio-сенпай, Ронье stretched her right hand without touching the tears that appeared once again.
+_Не мечник выбирает меч. Меч выбирает владельца. Если я открою своё сердце и напою его своей лбюбовью, меч точно ответит._
 
-_Swordsman does not choose a sword. It is the sword that picks the owner. Should I open my heart and pour love to them, any sword will surely respond._
+Рука Ронье прикоснулась к третьему слева — длинному мечу с серебристой гардой и навершием, с рукоятью, обёрнутой жёсткой чёрной кожей, напоминающей волосы Кирито, излучавшему слаюое сияние. Новёхонькая кожа на рукояти была слегка грубоватой, но ей подумалось, что если за ней должным образом ухаживать, то скоро ладонь свыкнется с этой жёсткостью.
 
-Ронье's hands caught the third from left — a long sword with silver guard and pommel, with handle wrapped with rough black leather resembling Кирито’s hair, emitting a soft sheen. Brand new handle leather was a little hard feeling, but she thought that if she handles it with care it will soon become familiar with her palm.
+Она вдохнула и выдохнула, а затем медленно подняла меч.
 
-She breathed in and exhaled, then gently lifted the sword.
+Тяжёлый. Ощущение тяжести плотного, сопротивляющегося предмета отчётливо передалось от пальцев через запястье, локоть и плечо в самый центр тела.
 
-Heavy. A heavy feeling of dense and resistant thing strongly transmitted from fingers through her wrist, elbow and shoulder to the core of the body.
+_Но это приятная тяжесть. Точно как и деревянный меч из платинового дуба, что я использовала будучи младшим учеником мечника, также как и табельный меч Армии Защиты Мира Людей, с которым я бок-о-бок прошла всю войну, я чувствую, что однажды смогу обращаться с этим мечом свободно, если буду заботиться о нём с любовью._
 
-_But it was not an unpleasant weight. Just like platinum oak wooden sword I was using as a junior swordsman trainee, just like an official sword of Мира Людей Defense Army we fought through two wars together, I feel like I’ll be able to handle this one freely someday if I take care of it with love._
+Она плотно обхватила рукоять правой ладонью и положив клинок плашмя на левую ощутила самую сущность этого меча, когда прозвучал мягкий голос.
 
-She grasped the handle with her right hand and felt the essence of the sword by placing a blade on her left, then a gentle voice sounded.
+"......Этот меч выберешь?"
 
-"...... Is this sword OK?"
+Она уверенно кивнула в ответ на слова Асуны.
 
-She firmly nodded to Асуна’s words.
+Вице-Премьер-Мечник вложила остальные три в ножны, установила обратно на стойке, а затем обьошла скамью и встала слева от Ронье.
 
-The Vice-Премьер-Мечник put all the other three in sheaths, rested on the wall support, and then went around the bench and stood on the left side of Ронье.
+"Имя этому мечу должно быть опредлелено самой Ронье-сан. Когда решишь, отправляйся в админ-отдел, и попроси их зарегистрировать его в журнале регистрации рыцарей."
 
-"The name for this sword should be assigned by Ронье-сан. Go to the administration department once you decide, have them register it in the knight equipment ledger."
+"......Да."
 
-"......Yes."
+Она впервые обладала мечом, который изза его ценности нужно было регистрировать, так что она удивилась, но кивнула, решив что такова обязанность нового владельца. Ведь в прошлом это ервосвященник Администратор по собственной прихоти создавала и разрушала Божественные Инструменты, даровала изх или отдирала назад, но сейчас всё оружие и доспехи в Соборе аккуратно учитывались в журнале.
 
-It was the first time she had a sword that must be registered due to its significance, so she was a bit confused but nodded thinking that it is also an obligation of the owner. In the past it was the Highest Priest Administrator’s whimsy to build or destroy divine objects, give it to someone or take it back, but now all kinds of weapons and armor accessories in Собор are carefully managed by ledger.
+Асуна кивнула, и с улыюбюкойц бросила взгляд на талию Ронье.
 
-Асуна nodded smiling, glanced at the left side of Ронье’s waist.
+"А с тем мечом что делать будешь? Если желаешь его вернуть в Армию Мира Людей, я могу передать в штаб с завтрашней почтой."
 
-"What will you do with that sword? If you wish to return it to the Мира Людей army, I can deliver it to the headquarters with a tomorrow's messenger."
-
-"Oh, ye... yes, I should..."
+"Ой, д-да, я должна..."
 
 ![Image](/Translate/Img/p115.jpg)
 
-She would involuntarily begin to stammer in response to unexpected words.
+В ответ на неожиданные слова она против воли начала запинаться.
 
-The standard sword, which was always on her left hip, was owned by Ронье ── the sacred letter "P" would be shown indicating that she is the owner if she opens the Stacia’s Window ── but in the light of military rules of the Мира Людей Defense Army, it was a loan only. _When we renew our weapons and old ones become redundant we have to return them to the army._
+Табельный меч, всегда висевший на её левом бедре, принадлежал Ронье ── священная буква "P" означавшая права алдельца, высвечивалась при открытии Окна Стасии ── но в свете военных норм Армии Защиты Мира Людей, это был всего лишь займ. _Когда нам обновляют оружие и старые становятся лишними, их приходится возвращать._
 
-Both handle and sheath were made of dark brown leather, and although its creation involved practically no decoration, it was still a sharp sword of priority 25 made from Crois steel<sup><a href="#Prim5">5</a></sup> which was southern specialty. It by no means was a cheap production, and because Ронье had carefully maintained it, plenty of life was still left.
+Рукоять и ножны выплолнены из тёмно-коричневой кожи, и хоть его создание практически не включало кукрашгений, это всё ещё был острый меч приоритета 25 сделаный из стали Круа<sup><a href="#Prim5">5</a></sup>, бывшей южной особенностью. Его ни в коем случае нельзя было назвать дешёвым, и поскольку Ронье аккуратно за ним ухаживала, у него ещё оставалось много жизни.
 
-Actually, it should have been exchanged to the standard sword of the Knights Order a year ago when she was appointed as an Integrity Knight trainee, but at that time she kept postponing it as she was too busy, so eventually both Ронье and Тейза remained attached to their previous sword and kept using it as it was.
+Вообще-то его следовало обменять на стандартный меч Оржена Рыцарей ещё год назад, когда её только назначили учеником Рыцарая Целостности, но она всё откладывала из-за занятости, так что в итоге и Ронье, и Тейза так и остались со своими старыфми мечами и продолжали ими пользоваться.
 
-However, if a new sword is offered from a Vice-Премьер-Мечник in such a way, she had to finally bid it farewell. ── However.
+Тем не менее, раз уж Вице-Премьер-Мечник в такой ситуации предлагает новый меч, она должна была, наконец, попрощаться. ── Однако.
 
 ".................."
 
-Holding a new sword with her right hand, she was still gently touching the handle of the standard sword with the left one; Асуна nodded and said.
+Держа правой рукой новый меч, она левой продолжала трепетно касаться ручки табельного; Асуна кивнула и сказала.
 
-"I understand that feeling. I also didn’t want to let go my first loved sword, so I annoyed Кирито-kun."
+"Я понимаю твои чувства. Я тоже не знала как расстаться со своим первым любимым мечом, и даже порядком надоела этим Кирито-куну."
 
-"Er…?"
+"Э…?"
 
-Surprised, she stared at the face of Vice-Prime.
+Удивлённая, она уставилась на Вице-Премьера.
 
-"Асуна-сама...... is that about Real World...?"
+"Асуна-сама...... вы говорите о реальном мире...?"
 
-"Well, not exactly. Long ago, Кирито-kun and I were fighting together in a world that is neither a Real World nor an Underworld. To be precise...... Кирито-kun taught me how to fight when I knew nothing at all."
+"Ну, не совсем. Давным-давно, Кирито-кун и я сражались вместе в одном мире, что не был ни реальным миром, ни Подмирьем. Если уж по правде...... это Кирито-кун тогда научил сражаться меня, ещё ничего не знающую."
 
-"So even Асуна-сама who is strong like God, had times like that......."
+"Так даже Асуна-сама, сильная словно богиня, когда-то была такой......."
 
-"That's right, I am not a god but same as Ронье-сан...... a human girl."
+"Точно, я не бог, а такая же как Ронье-сан...... просто человеческая девушка."
 
-Looking at Асуна's smiling face, which seemed to be more beautiful than any human being is allowed to have, Ронье narrowed her eyes for a moment and asked.
+Глядя на улыбающееся лицо Асуны, которое казалось более прекрасным, чем дозволено имеьь человеку, Ронье на мгновенье сощурилась и спросила.
 
-"Em...... Асуна-сама, so how did you make yourself to let go your first sword?"
+"Эм...... Асуна-сама, и как вы заставили себя расстаться со своим первым маечом?"
 
-Асуна looked down at the palm of the right hand as if to miss the sensation of the sword, raised her face and answered.
+Асуна бросила взгляд вниз на ладонь правой руки, которой недоставало ощущения меча, потом подняла взгляд и ответила.
 
-"With the recommendation of Кирито-kun, I melt the sword... into a metal bar, its original form, and I made a new sword from that material. This way, he said, the soul of the sword will be transferred....... That person, he can be so badly sentimental about swords."
+"По рекоммендации Кирито-куна, я его расплавила... в металлический слиток, его первичную форму, и сделала новый меч из этого металла. Так, он сказал, душа меча перенесётся в целостности....... Этот челотвек может быть ужасно сентиментальным, если речь заходит о мечах."
 
-"Hehehe...... It looks very much like Кирито-сенпай."
+"Хе-хе-хе...... Очнь походе на Кирито-сенпая."
 
-Two people were laughing and giggling for some time, but eventually Асуна murmured "But".
+Какое-то время эти двое смеялись и хихикали, но потом Асуна пробормотала "Однако".
 
-"This story in current circumstances won’t help Ронье-сан...... I cannot melt the sword of the Мира Людей army, and furthermore, there is already a new sword in the first place..."
+"При нынешних обстоятельстввах эта история Ронье-сан не поможет...... Я не могу расплавить меч армии Мира Людей, и более того, в первую очередь, у нас уже есть новый меч..."
 
-"...Well, I could decide after listening to your story. This sword will be returned to the human forces army."
+"...Ничего, я решилась, выслушав вашу историю. Я верну этот меч в армию Мрира Людей."
 
-She put the new sword back to the table, removed the standard sword together with the sheath from the clasp on the sword belt and handed it out to Асуна with both hands.
+Она положила новый меч на стол, с щелчком отстегнула табельный меч вместе с ножнами с мечевого пояса и передала его Асуне обеими руками.
 
-"Is it really okay...? If you ask Rina-сан, I think it is also possible to continue to own it......"
+"Всё правда в порчдке...? Если попросить Рину-сан, я думаю, она позволит продолжить владеть им......"
 
-"No, it's really fine. I knew this sword is too light for me long ago....... I guess, someone next needs it."
+"Нет, всё хорошо. Я давно знала, что этот меч для меня слишком лёгок....... Полагаю, он может сослужить добрую слуюбу кому-то ещё."
 
-"I understood. Well then, I will return this to the Human Army Headquarters with a messenger tomorrow."
+"Я поняла. Что же, тогда я верну его в штаб Армии Людей с завтрашним гонцом."
+
+### Продолжение завтра...
 
 Having received the standard sword with a gesture full of respect, Асуна hung it on the right side of her waist. Although the standard sword of the Мира Людей Army is said to be light, when it is combined with the sacred instrument "Radiant Light" on the left of her waist, it should be a considerable weight, but she returned to the opposite side of the bench with a gait that does not suggest any weight at all and presented a black leather sheath decorated with silverwork that she put there.
 

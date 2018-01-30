@@ -250,7 +250,7 @@ She felt that a faint voice came back from the depths of her memory when she was
 
 _......In the past, this sword was too heavy, even hard to lift, rather not to swing it._
 
-The one who said that holding a beautiful long sword with a slightly bluish white blade, was the same person whom Tiese served as a valet, elite swordsman-in-training Yujio. Next to him elite swordsman-in-training Kirito smiled polishing his own black sword, and nearby tables had just boiled tea and freshly baked honey pie spreading a nice scent. It has been so long time ago, nearly two years have passed already since that old scene.
+The one who said that holding a beautiful long sword with a slightly bluish white blade, was the same person whom Tiese served as a valet, elite swordsman-in-training Yujio. Next to him elite swordsman-in-training Kirito smiled polishing his own black sword, and nearby table had just boiled tea and freshly baked honey pie spreading a nice scent. It has been so long time ago, nearly two years have passed already since that old scene.
 
 At that time Tiese and Ronye were first year students just entered the Northern Centoria’s Sword Mastery Academy. Although it happened so that the results of their entrance exams were good and they were able to get the place among twelve people chosen from one hundred twenty applicants, they still had troubles handling as expected those platinum oak wooden swords of priority 15 they were given, so they asked senpais how to handle heavy swords.
 
@@ -286,13 +286,13 @@ Recalling the voice of Tiese striving to meet Yujio-senpai, Ronye stretched her 
 
 _Swordsman does not choose a sword. It is the sword that picks the owner. Should I open my heart and pour love to them, any sword will surely respond._
 
-Ronye's hands caught the third from left — a long sword with silver guard and pommel, with handle wrapped with rough black leather resembling Kirito’s hair, emitting a soft sheen. Brand new handle leather was a little hard feeling, but she thought that if she handles it with care it will soon become familiar with her palm.
+Ronye's hand caught the third from left — a long sword with silver guard and pommel, with handle wrapped with rough black leather resembling Kirito’s hair, emitting a soft sheen. Brand new handle leather was a little hard feeling, but she thought that if she handles it with care it will soon become familiar with her palm.
 
 She breathed in and exhaled, then gently lifted the sword.
 
 Heavy. A heavy feeling of dense and resistant thing strongly transmitted from fingers through her wrist, elbow and shoulder to the core of the body.
 
-_But it was not an unpleasant weight. Just like platinum oak wooden sword I was using as a junior swordsman trainee, just like an official sword of Human World Defense Army we fought through two wars together, I feel like I’ll be able to handle this one freely someday if I take care of it with love._
+_But it is not an unpleasant weight. Just like platinum oak wooden sword I was using as a junior swordsman trainee, just like an official sword of Human World Defense Army we fought through two wars together, I feel like I’ll be able to handle this one freely someday if I take care of it with love._
 
 She grasped the handle with her right hand and felt the essence of the sword by placing a blade on her left, then a gentle voice sounded.
 
