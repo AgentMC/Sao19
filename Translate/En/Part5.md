@@ -446,7 +446,7 @@ She used to ride an automatic elevator to Cathedral 22nd floor where her room wa
 
 Kirito and Yujio, who escaped from the dungeon nearly two years ago, flew this staircase up to the 50th floor fighting Integrity Knights. There were no signs of fierce battle left, except for the feeling of two people being chased at that time, and just like them she moved her legs and eventually arrived to the 22nd floor with a little dyspnea.
 
-A private room on the right side of the corridor a little ahead was still a double room shared with Tiese because of their trainee rank, but here friend was not in the room. She thought that Tiese has probably gone to dinner, and went to her bedroom through a shared living room.
+A private room on the right side of the corridor a little ahead was still a double room shared with Tiese because of their trainee rank, but her friend was not in the room. She thought that Tiese has probably gone to dinner, and went to her bedroom through a shared living room.
 
 As a coincidence, the living room and two bedrooms structure was exactly the same as the room of the elite swordsman-in-training dormitory where Kirito and Yujio were living, but each room was quite large here. Her room at the parents' house where she spent her childhood until entering the Sword Mastery Academy was about half of these, so Ronye felt too restless because of its size from the very beginning, but in the end, took her time to arrange favorite furniture and restyle it many times, as a result it finally felt comfortable to live.
 

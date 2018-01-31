@@ -368,117 +368,117 @@ _Но это приятная тяжесть. Точно как и деревя�
 
 "Я поняла. Что же, тогда я верну его в штаб Армии Людей с завтрашним гонцом."
 
-### Продолжение завтра...
+Приняв табельный меч с жестом, выражавшим уважение, Асуна повесила его справа на талии. Пускай табельный меч Армии Мира Людей и был лёгким, в паре с Божественным Инструментом "Рейдиэнт Лайт" слева на её талии, они должны бы составлять весьма немалый вес, однако та вернулась за скамью  походкой, что вообще не выражала какой-либо тяжести, и вытащила лежавшие там чёрные кожаные ножны, украшенные серебром.
 
-Having received the standard sword with a gesture full of respect, Асуна hung it on the right side of her waist. Although the standard sword of the Мира Людей Army is said to be light, when it is combined with the sacred instrument "Radiant Light" on the left of her waist, it should be a considerable weight, but she returned to the opposite side of the bench with a gait that does not suggest any weight at all and presented a black leather sheath decorated with silverwork that she put there.
+Ронье вложила в них меч и склонив голову защёлкнула их на мечевом поясе. Пока она всем телом прислушивалась к чувству новой тяжести, Асуна внезапно распрямила спину и посмотрела прямо на Ронье.
 
-Ронье who lowered his head lowered his clasp to the sword belt when he put the sword in it. While feeling new weights throughout the body, Асуна suddenly stretched his spine straight and stared straight at Ронье.
+"...Ронье-сан. За Кирито-куна, спасибо тебе."
 
-"...Ронье-сан. Regarding Кирито-kun, thank you."
+"К... конечно!"
 
-"Ah... sure!"
+Она ответила автоматически, но осознав ситуацию, Ронье поправилась в официальном рыцарском стиле.
 
-She answered reflexively, but remembering the situation, Ронье returned to the attitude of knight recitation.
+"Ученик Рыцаря Целостности Ронье Арабель обязуется защитить Премьер-Мечника даже ценой собственной жизни!"
 
-"Integrity knight apprentice Ронье Arabel, will protect the Премьер-Мечник at the cost of my life!"
+После того, как Ронье ответила верно, Асуна усмехнулась.
 
-After Ронье replied correctly, Асуна smiled.
+"Всё же не разбрасывайся своей жизнью. Лучше, чтобы вы оба вернулись обратно целыми и невредимыми, и если Кирито-кун решит сбежать, пожалуйста, следуй за ним."
 
-"Do not discard your life though. It is the best that you both come home safely, if you see Кирито-kun runs away, please escape as well."
+Слыша, как её голос подрагивает от эмоций, Ронье спросила, всё ещё сомневаясь, стоит ли опускать руки.
 
-Feeling something like a trembling of emotions in her words, Ронье asked still hesitating to lower his hands.
+"......Эм, а вправду, хотела бы Асуна-сама лично его сопровождать..?"
 
-"......Er, really, does Асуна-сама wish to accompany him herself..?"
+"Разве что самую малость."
 
-"Just a little bit"
+Ответ был шутлив, но чувствовалось, что за этими словами скрыто совсем другое значение. Однако, Вице-Премьер-Мечник тряхнула головой и сказала прежде, чем Ронье успела открыть рот, чтобы ответить.
 
-It was a jokingly answer, but it was clear that the meaning behind her words was different. However, Vice-Премьер-Мечник shook her head a little and said even before Ронье opened her mouth to answer.
+"Одновременно мы с Кирито-куном сейчас не можем покидать Центорию. Ежедневно, нам нужно принимать множество решений, а недовольство бывших аристократов Объединённым Советом Мира Людей и не собирается проходить..."
 
-"Both me and Кирито-kun cannot leave Centoria at the same time now. There are a lot of decisions we have to take every day, and former senior aristocrats’ dissatisfaction with the Объединённого Совета Мира Людей is not going to disappear any time soon..."
+"....... Простите, мне так жаль......."
 
-"....... I’m sorry, it’s such a shame......."
+Когда та рефлективно опустила голову, Асуна моргнула и усмехнулась ей.
 
-As she reflexively lowered his head, Асуна blinked her eyes and smile to her.
+"Тебе не за что извиняться, Ронье-сан, чего ты?"
 
-"There’s nothing to apologize, Ронье-сан, what is it?"
+"Знаете... я и сама происхожу из благородной семьи, и я никогда не сомневалась в аристократической системе Мира Людей пока не встретила Кирито-сенпая..."
 
-"You see... I also came from a noble family and I never had any doubts about the aristocracy system of the Мира Людей until I met Кирито-сенпай..."
-
-"But fathers of Ронье-сан and Тейза-сан were doing important work in the guard and the executive branch for a long time, did they not? It is entirely different from great aristocrats enjoying each day thanks to the forced hard labor of people living in their territory."
+"Но отцы Ронье-сан и Тейза-сан долгие годы выполняли ответственную работу в страже и исполнительной ветке, не так ли? Они совершенно отличаются от великих аристократов, наслаждающихся каждым днём за счёт принуждения к тяжкому труду людей живущих в их феоде."
 
 "............"
 
-Ронье remained silent, keeping her head low feeling a great appreciation.
+Ронье молчала, склонив голову и чувствуя сильную благодарность.
 
-In the former Imperial Palace rising above the hill not far from Центральный Собор, former Imperial administration and Imperial guards were still operating at that time, so her father worked as a guard platoon leader the same way as before the war. But the Konoe Knights order that was previously present on the imperial guard was completely dismantled<sup><a href="#Prim6">6</a></sup>, the functions of guard offices were mostly transferred to the Мира Людей Defense Army led by General Solterina Selrut. In the future, it seemed, all of the four platoons remaining in four empires will be integrated into the Defense Army and the size of military itself will be reduced. It is natural since the Dark World threat has already passed, but should this happen, Ронье was not sure whether her father will remain in his present position.
+Бывшая Имперская Стража и Администрация всё ещё работали в бывшем Императорском Дворце, возвышавшемся на холме неподалёку от Центрального Собора, так что её отец продолжал работать главой отряда стражи так же, как и до войны. Но вот орден Рыцарей Коноэ, существовавший ранее в Имперской Страже, был полностью распущен<sup><a href="#Prim6">6</a></sup>, функции отделений стражи постепенно переходили к Армии Защиты Мира Людей под командованием генерала Солтерины Селюрут. Походе, что в будущем все четыре группировки стражи четырёх империй будут интегрированы в Армию Защиты, а количество военных будет уменьшено. Это было естественным, поскольку угроза Тёмной Территории миновала, но если это произойдёт, Ронье не была уверена, останется ли её отец на прежней должности.
 
-If he is ordered to rearrange within the platoon or transfer to an administrative office, her father will continue to fulfill his duties properly. _Even if we lose the enormous amount of income from labor of lenders by the Private Estate Liberation Act and he is going to work in the executive branch or the Мира Людей Army, it will still be different from great aristocrats trying not to serve themselves at any cost......_ so Ронье thought.
+Если ему придётся изменить должность внутри отряда или перейти в администрирование, её отец все равно продолжит выполнять свои обязанности как должно. _Даже работая в исполнительной ветви Армии Мира Людей, он будет отличаться от Великих Аристократов, потерявших огромные доходы от труда арендаторов из-за Акта Освобождения Частной Земли, и стремящихся вернуть былую праздность любой ценой......_ так думала Ронье.
 
-But even this way her father, and perhaps Ронье herself, will still feel it in their hearts. Perception that they are noblemen and different from general people. As long as that class mindset passed from generation to generation has not disappeared, both Ронье and people of Arabel family would remain essentially the same as the senior nobility.
+Но пусти и так, её отец, а может и сама Ронье, всё ещё будут чувствовать это в своих сердцах. Ощущение, что они благородного происхождения и отличаются от обычных людей. И пока не исчезнет это передающееся из поколения в поколение классовое мировоззрение, и Ронье, и прочие члены семьи Арабель будут по сути мало чем отличаться от тех же Великих Аристократов.
 
-"Асуна-сама, better to......"
+"Асуна-сама, уж лучше......"
 
-Ронье managed somehow to interrupt words that were almost out of her mouth.
+Ронье прервала слова, готовые сорваться с её губ.
 
-_Not only the noble grades, it would be better to abolish the aristocratic system itself._
+_Не только классы аристократии, уж лучше упразднить всю аристократическую систему._
 
-She thought so, but it wasn’t a good thing to say while aiming at the Мира Людей highest rank of Integrity Knight herself. And the wish to become a knight can never be thrown away. Being given the glorious knight number, the silver armor, and the dragon, she would continue to serve Кирито for the rest of her life... because that was the only true dream of Ронье.
+Так она подумала, но лучше не говорить подобное перед кем-то, по рангу в Мире Людей даже превышавшем Рыцарей Целостности. Да и её собственное желание стать рыцарем никуда не денется. Получив славный рыцарский номер, сверкающий доспех и дракона, она продолжит служить Кирито до конца своей жизни... потому что это была единственная истинная мечта Ронье.
 
-Асуна tilted the neck encouraging her to continue, and Ронье answered after shaking her head a little.
+Асуна вопросительно наклонила голову, предлагая ей продолжить, и Ронье сказала немного покачав головой.
 
-"No, it’s nothing...... But uh, if possible, could you let Тейза to get the same sword as this one...? Because she also still continues to use the sword of Мира Людей Army......"
+"Нет, ничего...... Но эмм, если возможно, можете и Тейзе позволить получить подобный меч...? Потому что и она до сих порт  продолжает использовать табельный меч Армии Мира Людей....."
 
-"Yes, I'm going to get permission for Тейза-сан as well."
+"Да, я запрошу разрешение и для Тейзы-сан."
 
-"That’s great, thank you very much."
+"Отлично, большое спасибо."
 
-_If after that Тейза also makes it to the same conclusion......_ thinking this way, Ронье swallowed the words she could not admit herself at all.
+_Если после этого и Тейза придёт к тому же выводу......_ думая таким образом, Ронье проглотила слова, в которых не могла признаться и себе самой.
 
 ***
 
-When two of them came out of the weapon storehouse where the light of luminous elements started to fade already, the 7 PM bell echoed around.
+Они вдвоём вышли из оружейного склада когда световые элементы уже начали тускнеть, а колокол прозвонил 7 часов вечера.
 
-After writing the exit time in the journal, Асуна said that she would go to the general affairs section on the second floor and went down the main stairway. Ронье left alone again looked up at the night sky still shaded light purple through the big window in the front of the armor store and let out a heavy breath.
+Записав в журнале время выхода, Асуна сказала, что направится в секцию общих вопросов на втором этаже и начала спускаться по центральной лестнице. Оставленная в одиночестве Ронье взглянула через большое окно напротив оружейного склада на ночное небо, окрасившееся светло-пурпурным, и тяжело вздохнула.
 
-In the Академии Мастеров Меча where she was studying for only half a year, there was a rule that dinner must be finished by 7 PM, and if one was late without a good reason, that day they would be left without dinner. Of course, there was no such rule in Центральный Собор, it was possible to eat hot food at any time until 9 PM while big dining room on the 10th floor is open, and even later snacks are available in the large kitchen next to the dining room.
+В Академии Мастеров Меча, где она проучилась полтора года, было правило, что ужин должен был быть закончен к 7 вечера, и если кто-то опаздывал без уважительной причины, то в тот день он оставался без ужина. Конечно, в Центральном Соборе таких правил не было, горячая еда была доступна в любое время до 9 вечера, вплоть до закрытия большой столовой на 10м этаже, да и потом можно было перекусить в большой кухне по соседству.
 
-Today she ran around up and down, so supposedly she should had been hungry because of all those various activities, but somehow, she did not feel like eating that very moment, so Ронье decided to return to her room.
+В тот день она моталась вверх и вниз по всему Собору, так что должна была быть весьма голодна, но по какой-то причине именно в этот момент есть ей не хотелось, так что Ронье решила вернуться в свою комнату.
 
-She used to ride an automatic elevator to Собор 22nd floor where her room was located, but that day she climbed the main stairs to get used to the weight of the new sword as soon as possible.
+Обычно она поднималась на автоматическом лифте на 22й этаж Собора, где располагалась её комната, но в тот день, чтобы пообвыкнуться с тяжестью нового меча, она взобралась по основной лестнице.
 
-Кирито and Yujio, who escaped from the dungeon nearly two years ago, flew this staircase up to the 50th floor fighting Integrity Knights. There were no signs of fierce battle left, except for the feeling of two people being chased at that time, and just like them she moved her legs and eventually arrived to the 22nd floor with a little dyspnea.
+Кирито и Юдзио, сбежавшие из темницы примерно за два года до того, пронеслись по этой лестнице до 50го этажа, сражаясь с Рыцарями Целостности. Следов от яростной битвы не осталось, кроме ощущения двух людей, спасающихся от погони, и также как и они тогда она двигала ногами и шаг за шагом добралась до 22го этажа, чувствуя небольшую одышку.
 
-A private room on the right side of the corridor a little ahead was still a double room shared with Тейза because of their trainee rank, but here friend was not in the room. She thought that Тейза has probably gone to dinner, and went to her bedroom through a shared living room.
+Личную комнату по правой стороне коридора немного впереди она всё ещё делила с Тейзой из-за их статуса учеников, но её подруга была не в комнате. Подумав, что Тейза, вероятно, пошла на обед, она прошла через общую гостиную в свою спальню.
 
-As a coincidence, the living room and two bedrooms structure was exactly the same as the room of the elite swordsman-in-training dormitory where Кирито and Yujio were living, but each room was quite large here. Her room at the parents' house where she spent her childhood until entering the Академии Мастеров Меча was about half of these, so Ронье felt too restless because of its size from the very beginning, but in the end, took her time to arrange favorite furniture and restyle it many times, as a result it finally felt comfortable to live.
+Так совпало, что структура из гостиной и двух спален в точности повторяла комнату в дортуаре элитных учеников мечника, где жили Кирито и Юдзио, но здесь каждая комната была довольно велика. Её комната в родительском доме, где она провела детство до поступления в Академию Мастеров Меча, была примерно в половину от этой, так что Ронье сначала чувствовала себя неспокойно в этом большом помещении, но в итоге, потратив время на расстановку любимой мебели и много раз всё переделав, она всё же начала чувствовать себя там уютно.
 
-Looking from the entrance, the wall on the back had a large window facing East Centoria, a bed with linen was on the left and there was a small table on the right. And the wall on the opposite side from the window there was a lighting deВице-like the one in the armor storehouse. She entered the room, removed the sword from the waist and gently placed it by the wall; the black leather sheath fitted well to the interior with many dark brown furniture.
+Если смотреть от входа, в дальней стене было большое окно, выходившее на Восточную Центорию, слева была застеленная кровать, и справа бал небольшой стол. А на противоположной от окна стене располагалось осветительное устройство, подобное тому, что было установлено в оружейном складе. Она вошла в комнату, сняла меч с пояса и аккуратно прислонила его к стене; чёрные кожаные ножны прекрасно подошёл к интерьеру с преобладанием тёмно-коричневой мебели.
 
-"I’ll think carefully, and will give you a name that suits you."
+"Я всё обдумаю и дам тебе название, которое тебе подойдёт."
 
-She whispered to the sword, removed the gray light armor and fixed it quickly on the armor stand on the right side of the sword rest. She would want to throw the body that immediately felt lighter to the bed, but had to endure. In preparation for a long trip from tomorrow, she must pack things well.
+Прошептала она мечу, сняла лёгкую серую броню и быстро развесила её на специальной стойке справа от стойки меча. Ей бы очень хотелось сейчас швырнуть своё мгновенно полегчавшее тело на кровать, но приходилось терпеть. Ей следовало аккуратно спаковать вещи перед завтрашней поездкой.
 
-From Кирито she learned that the luggage should be one medium-sized bag available to knights, so she had to select things quite carefully. As girl reaching 17 years old that year she would of course like to take as many dresses as possible, but as a guardian of Кирито she knew it was not just a trip, she should give priority to medicines and sacred art media. First of all, she checked the medium at hand and would have to refill missing items with the management department, but before that ──
+От Кирито она узнала, что багаж должен составлять одну среднюю сумку, которые выдавали рыцарям, так что вещи выбирать пришлось бы тщательно. Как девушка, которой в том году исполнялось 17, она бы хотела взять как можно больше платьев, но как эскорт Кирито она понимала, что это не обычная поездка, и следовало отдать предпочтение зельям и материалам для священного искусства. Прежде всего, она проверила, какие материалы у неё уже были, а какие следовало взять в отделе снабжения, но сначала ──
 
-"............... bath, let’s go..."
+"............... ванная, вперёд..."
 
-Muttering that and having prepared the changing underwear, Ронье left the room.
+Пробормотав это и подготовив сменное бельё, Ронье покинула комнату.
 
-Bathrooms were located on each floor of a residential area from the 20th to the 30th floor of Собор, so both Ронье and Тейза usually bathed there. But occasionally...... especially before leaving Собор for long, she would definitely want to go over there.
+Ванные располагались на каждом этаже спальной зоны, продолжавшейся с 20го по 30й этажи Собора, так что и Ронье, и Тейза обычно использовали их. Но иногда...... особенно перед тем, как надолго покинуть Собор, ей хотелось сходит в иное место.
 
-She walked along the aisle to the elevator area in the northern part of the floor. Aligned the control knob to the mark of 90th floor at the top and pushed the metal button; the aerial element contained in a sealed can at the bottom of the elevator was released as requested, and began to raising Ронье.
+Она прошла по проходу к лифту в северной части этажа. Выставила управляющий диск сверху напротив 90го этажа и нажала металлическую кнопку; воздушные элементы, содержащиеся в баке в дне лифта, начали автоматически выпускаться, и Ронье понеслась вверх.
 
-After several tens of seconds, the elevator gradually slowed down and eventually locked in, and Ронье opened the metal door.
+Через несколько десятков секунд, лифт постепенно затормозился и наконец застыл, и Ронье открыла металлическую дверь.
 
-When she exited there was a short passage divided into the left and right ways ahead. And, before the branch, a pure white cloth hung down from the ceiling with strange text "ゆ"<sup><a href="#Prim7">7</a></sup> written in black with a strange font.
+Когда она вышла, перед ней открылся короткий проход, разделявшийся впереди на два. А перед разделением с потолка свисала чистая белая ткань со странным символом "ゆ"<sup><a href="#Prim7">7</a></sup> написанным чёрным цветом каким-то странным почерком.
 
-This hanging cloth was attached by the Премьер-Мечник Кирито, and it seemed he had written the character himself, but no one knew what it was intended for. They said, Vice-Prime Асуна seemed to be the only one who knew it but remained silent and just laughed with surprised expression.
+Эта свисающее полотнище прикрепил сам Премьер-Мечник Кирито, и походе что и символ он сам написал, но никто не знал, что он значит. Говорили, Вице-Премьер Асуна единственная из всех поняла, но не проронила ни слова, а только удивлённо засмеялась.
 
-Tilting her head as she was walking through this passageway, she lifted the cloth with "ゆ" lower half of which was cut into strips, and reached the branch point. More hanging cloths of same design appeared on the left and right.
+Пройдя по проходу и наклонив голову, она подняла ткань с "ゆ", нижняя половина которой была разрезана на полоски, и достигла разделения. Слева и справа появилось ещё по одной такой ткани.
 
-The blue cloth on the right side had "men" written in white letters. The pink cloth of the left had "women".
+На синей ткани справа было белыми буквами написано "мужчины". На розовой ткани справа — "женщины".
 
-The meaning of these signs can be understood with no effort ─ which didn’t help at all with the mystery of “ゆ” ─ so, she went through the cloth with "women". The aisle bent to the right and ended with a little wider room.
+Назначение этих знаков было очевидным ─ что, однако, никак не помогало справиться с загадкой “ゆ” ─ так что она прошла мимо ткани с надписью  "женщины". Проход изогнулся вправо и привёл в более широкую комнату.
+
+### Продолжене завтра...
 
 The room with a large shelf installed as a partition wall was not empty, three female clerics wearing only thin eastern style kimonos sat on wall chairs wiping wet hair. As they noticed Ронье they hurriedly got up and put hands together.
 
@@ -630,8 +630,8 @@ She unwillingly muttered such a name and hurriedly looked around. Even though no
 3. <a name="Prim3"></a>"Уровень Контроля Объектов". Кстати, приоритет и УКО здесь и ниже указаны, используя западное написание, например "39" вместо "三十九", иначе говоря, это “священные числа”, которые персонажи _произносят_ "сёти-найн" или вроде того.
 4. <a name="Prim4"></a>Жасмин индийский, _Jasminum sambac_
 5. <a name="Prim5"></a>К слову, クロイス, возможно, отсылка к серии “Legend of Heroes”.
-6. <a name="Prim6"></a>Here “Konoe Knights” should be treated as “personal Emperor’s guards”; the “Prologue III” from vol.18 contains a spoiler that unveils what will happen in Underworld with this role in the future.
-7. <a name="Prim7"></a>“Yu”, or specifically kanji “湯” means hot water or hot springs. Based on the following paragraphs it seems that hot springs are not simulated by Main Visualizer — which I personally find hard to believe given who built it, but OK — so the only “yu” in Underworld should be “弓”, a bow, which is actually pronounced “yumi” but can be shortened to “yu”. You can have a glimpse of the look of cloth [here](https://ojiya-chijimi.jp/archives/31862). It is quite obvious that it serves as a pseudo-door to hot springs/hot tub area.
+6. <a name="Prim6"></a>Здесь под “Рыцарями Коноэ” имеется в виду “личная стража Императора”; т.н. “Пролог III” из тома 18 содержит спойлер, поясняющий, что произойдёт с этой ролью в Подмирье в будущем.
+7. <a name="Prim7"></a>“Ю”, или конкретно кандзи “湯” означает горячую воду, или — горячие источники. Судя по последующим параграфам, горячие источники не симулируются Главным Визуализатором — во что лично мне верится с трудом, учитывая _кто_ его создал, ну да ладно — так что единственным “ю” в Подмирье было “弓”, лук (оружие), который вообще-то звучит как “юми”, но и до “ю” может сокращаться. Как выглядит ткань можно посмотреть [здесь](https://ojiya-chijimi.jp/archives/31862). Вполне очевидно, служит она как псевдо-дверь в зону горячих источников или ванн.
 8. <a name="Prim8"></a>The quick #KawaharaMath calculation is obviously wrong because it ignores the fact of the “floor surfaces falling down in a staircase pattern”. Depending on whether those steps are included in 25m calculation or excluded, and on the form of steps, we get significantly more or less than 874 m<sup>3</sup>, but under no condition exactly that number. Well, at least these numbers suggest the width of Catherdal’s outer wall: ~55m (25+2+wall+2+25).
 9. <a name="Prim9"></a>閑割, something like Leisure Splitter per kanji, however in this case furigana ヒマワリ is also an homonym to ひまわり which means Sunflower.
 10. <a name="Prim10"></a>Fizel calls Фанатио “higher ranked older sister”. Emperor is more complicated. It’s like Fizel calls him her direct beloved grandpa, but in a somewhat official form that would be probably used by someone who is visually older than her. 
