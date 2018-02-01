@@ -478,150 +478,148 @@ _Если после этого и Тейза придёт к тому же вы
 
 Назначение этих знаков было очевидным ─ что, однако, никак не помогало справиться с загадкой “ゆ” ─ так что она прошла мимо ткани с надписью  "женщины". Проход изогнулся вправо и привёл в более широкую комнату.
 
-### Продолжене завтра...
+Комната с большими шкафами, установленными в качестве разделительной стены, не была пустой, три женщины-клерика, облачённые лишь в тонкие кимоно в восточном стиле, сидели на стульях под стеной и вытирали волосы. Заметив Ронье, они торопливо поднялись и свели ладони вместе.
 
-The room with a large shelf installed as a partition wall was not empty, three female clerics wearing only thin eastern style kimonos sat on wall chairs wiping wet hair. As they noticed Ронье they hurriedly got up and put hands together.
+Женщины поклонились до уровня пояса и поприветствовали её, не поднимая головы.
 
-Women bowed to the level of their waists and greeted her keeping their head down.
+"Добрый вечер, рыцарь-сама" "Приветствую, рыцарь-сама" "Добрый вечер"
 
-"Good evening, knight-сама" "Greetings, knight-сама" "Good evening"
+Ронье вернула приветствие, так же поклонившись до пояса, и поспешила в дальнюю часть комнаты. Достигнув спасительной тени, падавшей от полки, она выдохнула. Не вчера и не позавчера её назначили учеником рыцаря, но нона никак не могла привыкнуть к такому обожанию в отношении, особенно от старших людей одного с ней пола. Она совершенно не понимала, каким образом вести себя столь же достойно, как командир рыцарей Фанатио, да и сами остальные рыцари.
 
-Ронье returned the greeting bowing to the waist as well, and hurried toward the opposite side of the room. When she reached the shade of the shelf, she breathed out. It was not yesterday or the day before yesterday that she was appointed as a knight trainee, but she was still not getting used to such admiring attitude especially from older people of same gender. She couldn’t grasp how to display such a dignified demeanor how knights’ commander Фанатио and even ordered knights do.
+Раздевшись и положив свою одежду вместе со сменным бельём в корзину на полке шкафа, Ронье обернулась белым полотенцем и открыла стеклянную дверь в дальней стене.
 
-Having undressed and put her clothes together with the change she brought into basket inside the shelf, Ронье wrapped white towel around her body and opened the glass door in the back.
+Внутрь немедленно повалил белый пар, так что она быстро шагнула вперёд и закрыла за собой дверь.
 
-White steam immediately started pouting inside so she quickly did a step ahead and closed the door behind her.
+Пар тем временем развеялся, открыв взору сцену, которой невозможно было перестать восхищаться, даже увидев её сотни раз.
 
-The steam dissipated unhiding a scene that she could not stop to adore even though she saw it number of times.
+Обширное пространство занимало почти половину 90го этажа Собора. И пол, и колонны были целиком сделаны из белого мрамора, южная и восточная стены были по сути цельными кусками стекла, так что купаясь можно было созерцать ночную центральную столицу. Даже одно это уже было роскошью, превосходящей любые мыслимые излишества Императорского Дворца, но вот что действительно поражало — так это громадный объём горячей воды, заполнявшие весь пол, ступеньками снижавшийся впереди.
 
-A vast space taking almost half of the 90th floor of the Собор. Both the floor and pillars are made of pure white marble, the southern and eastern walls were huge solid pieces of glass, so one could overlook the night view of the central capital Centoria. Even this alone would be a luxury exceeding one of the former Imperial Palace, but the truly amazing thing was the huge amount of hot water filling all the floor surfaces falling down in a staircase pattern.
+Длина продолговатого зала с севера на юг была около 40 мел, а ширина достигала 25 мел. Ширина идущей по кругу дорожки была 2 мела, а поскольку глубина от пола до дна была 1 мел, нехитрые подсчёты давали ответ, что общее количество горячей воды в ванной достигало 874 кубических мел, а при перевода в "лилы", которые использовались в качестве единицы объёма жидкостей, получалось огромное число 874000 лил<sup><a href="#Prim8">8</a></sup>. Более того, с западной стороны за мраморной стеной — там, куда вела дорожка, обозначенная тканью со словом "мужчины",— была совершенно симметричная структура, Так что итоговый объём воды был в два раза больше.
 
-The length of the elongated hall from north to south was about 40 mel, the width reached 25 mel. The width of the surrounding track was 2 mel, and since the depth from the floor to the bottom of the bath was one mel, simple calculation suggested that total amount of hot water in the bath was equal to 874 cubic mel, and converted to the "lil" which was a unit of the liquid volume, the result would be a huge figure of 874000 lil<sup><a href="#Prim8">8</a></sup>. Moreover, the west side across the marble wall — that is, the one marked with hanging cloth with "men" on it, had completely symmetrical structure, so the total amount of hot water is doubled.
+Это место было большой общественной ванной, которую Кирито называл "роскошнейшим заведением Центрального Собора".
 
-This place was a large public bath that Кирито called "the most luxurious facility in Центральный Собор".
+До Войны с Внешним Миром использовать её могли лишь тридцать Рыцарей Целостности, стены в середине не было, и судя по всему обычной ситуацией был всего один человек, отмокающий в ванне. Однако, вместе с другими элементами реструктуризации организации, она было открыта для всего персонала и клериков Собора, и одновременно с этим мужские и женские части были отделены друг от друга.
 
-Before the Foreign World War, only thirty Integrity Knights could use it, there was no middle wall, and it seems it was quite often case that only a single person was soaking in this bathtub. However, along with organization restructuring, it was opened to all Собор clerics and staff, and at the same time male and female sections were separated.
+В то время купалось около двадцати людей, не ощущения, что ванна — это маленькое переполненное озеро, вовсе не создавалось. И всё же, она двинулась к юго-восточному углу, где людей было поменьше, и медленно погрузила большой палец ноги в прозрачную воду. Сперва было горячо, но скоро она привыкла, спустилась по мраморной лестнице и уселась на последней ступеньке.
 
-About twenty people were bathing at that time, but there was no impression that the bathtub wide as a little lake was crowded. Still, she walked to the southeast corner where fewer people were, slowly submerged her toe in transparent water. At first it felt hot, but soon she got used to it, went down the marble staircase and sit on the last step.
+Погружение по шею в горячую воду принесло чувство глубокой релаксации, проникающее до самого центра головы, которым, конечно, нельзя было насладиться в обычной ванной в спальной зоне, и она довольно выдохнула.
 
-Immersing in hot water to the neck brought a feeling of deep relaxation to the core of the head that cannot be enjoyed in a bathtub of common size in the residential area, and she let a breath out.
+"Хуууу............"
 
-"Huu............"
+"Н-да, большая ванна хороша, не так ли?"
 
-"Well, a huge bath is good, is it not?"
+"Несказанно…………"
 
-"It really is…………"
+Она кивнула, а потом открыла глаза шире. Слева от неё сидел кто-то, кого она до того момента совершенно не замечала.
 
-She nodded, then opened her eyes wide. Someone was sitting on the left completely unnoticed till that moment.
+В паре, поднимавшемся от горячей воды, появился разрыв, и как только в нём появилось лицо этого человека, Ронье от удивления отшатнулась.
 
-A tear appeared in the steam raising from the hot water, and as soon as that person's face was exposed, Ронье was once again bend backwards, surprised.
+Светло-коричневые волосы, столь короткие, что кончики прилипли к затылку, ясные большие светло-голубые глаза.
 
-Light-brown hair so short that wet ends were sticking to the nape, crisp large light-blue eyes.
+Тело той, что сидела выше Ронье, было по-детскому хрупким ─ но за этой внешностью девочки примерно лет десяти скрывалось нечто и близко не настолько невинное, как оно выглядело.
 
-The body of one sitting higher than Ронье was a child delicate ─ but behind that appearance suggesting a girl of about ten years old was something by no means as innocent as it looked.
+"Доб… добрый вечер, Физель-сама"
 
-"Good… good evening, Fizel-сама"
+Девочка, поглаживавшая кончиками пальцев поверхность воды, отреагировала подобно самой Ронье, когда её только что в раздевалке поприветствовали три клерика.
 
-The girl flying her fingertips over the water surface reacted the way similar to Ронье herself greeted just now by three clerics in the undressing room.
+"Не надо этого “-сама”. Ронье же старше."
 
-"There is no need in that “sama”. Ронье is older."
+"Но...... но ведь Физель-сама номерной рыцарь......."
 
-"But...... but Fizel-сама is a numbered knight......."
+"Уф, у меня такое чувство, что я этот диалог веду раз в сотый, наверное."
 
-"Ugh, I feel like I had this dialog for about a hundred times already."
+Имя девочки, растянувшейся по поверхности воды и бултыхавшей обеими ногами, было Физель Синтезис Твенти-найн.
 
-The name of the girl who floated her stretched body on the water surface kicking the water with both feet was Fizel Synthesis Twenty-nine.
+Во время Войны с Внешним Миром она носила специальный титул "номерной ученик", но вскоре после неё её повысили, и на этот момента она была настоящим Рыцарем Целостности. У неё была серебристая броня, созданная в соответствии с её телосложением, и дракон по имени "Химавари"<sup><a href="#Prim9">9</a></sup> и в последнее время она в основном летала по Миру Людей с разведывательными заданиями.
 
-During the Foreign World War she had a special titled being "numbered trainee", but after it she soon got publicly promoted and now she was a genuine Integrity Knight. She was given silver armor made according to her physique and a dragon named "Himawari"<sup><a href="#Prim9">9</a></sup> and Recently she was mainly flying around the Мира Людей with intelligence missions.
+"Физель-сама, я какое-то время вас не видела, вас снова отправили на задание?"
 
-"Fizel-сама, I haven’t seen you for a while, have you been at a mission again?"
+В ответ на вопрос Ронье, Физель кивнула и подняла рот над водой.
 
-To Ронье's question, Fizel nodded and brought her mouth from under hot water.
+"Да, недавние передвижения Рыцарей Коноэ Западного Императора вызывали подозрения, так что мы полетели посмотреть. Линель всё ещё там, я просто вернулась с отчётом и заодно набрать провизии."
 
-"Yeah, the latest movements of the western Emperor’s Konoe Knights’ remnants were somewhat suspicious, so we were sent out explore. Linel is still over there, I have just returned for reporting and picking up some supplies."
+"Спасибо вам большое за ваш тяжёлый труд...... Ардейлс Весдарат V из Западной Империи был единственным, следов кого обнаружить не удалось...... с этим связано, наверное?"
 
-"Thank you very much for your hard work...... Ardales Wesdarath V of the Western Empire was the only one of the four emperors we could not find traces of...... Is it related to that?"
+"Хмм, западный Имперский дворец был разрушен и сожжён дотла техникой освобождения памяти Фанатио-онээсамы. Не думаю, что Император-одзитян<sup><a href="#Prim10">10</a></sup> пережил взрыв, но вокруг него крутились всякие разные людишки, и вот они вполне могли спасти свои жалкие жизни."
 
-"Hmm, the Western Imperial Palace was destroyed and burned out to the ground by Фанатио-onēsama’s memory release technique. I don’t think that the Emperor-ojiichan<sup><a href="#Prim10">10</a></sup> survived that explosion, but there were other people who wanted to save their miserable lives."
+Невозможно представить, чтобы подобные слова произносил, выдувая пузыри на поверхности воды, десятилетний ребёнок, Физель определённо не соответствовала тому возрасту, на который она выглядела. Её подруга, Рыцарь Целостности Линель Синтезис Твенти-эйт, и она сама обе были рождены в Соборе, но так и не прошли "Ритуал Синтеза"; поговаривали, что когда Первосвященник Администратор назначила их учениками Рыцарей Целостности, по некоей причине было задействовано священное искусство, заморозившее их жизни прежде, чем они смогли достичь максимума. Иначе говоря, по внешнему виду об их возрасте судить не приходилось ─ просто они больше не росли.
 
-It couldn’t be imagined that such words were spoken by a ten-year-old kid blowing bubbles on the water surface, Fizel was certainly not of the age she looked like. Her friend, Integrity Knight Linel Synthesis Twenty-eight, and her were both born within Собор, but never received the "Synthesis Ritual"; they said that when the Highest Priest Administrator appointed them as Integrity Knight trainees, for some reason a sacred art had been performed to freeze their life before it had a chance to reach its maximum value. In other words, one couldn’t judge their age from their appearance ─ they simply did not grow any more.
+Учитывая это, даже если у Ронье и появлялось желание крепко прижать к себе Физель и её подругу, она бы никогда этого не сделала. Помимо того факта, что они были Рыцарями Целостности, чтобы стать номерными учениками им пришлось убить рыцарей, которые прежде занимали соответствующие номера; они попытались парализовать Кирито и Юдзио ядовитым мечом и снять с них головы; эта парочка вдвоём избавилась от большинства гоблинских войск, наводнивших тыл Армии Защиты Мира Людей во времена Войны с Внешним Миром, — ужасных слухов было предостаточно. И если кто-то говорит подобным образом прямо, не показывая ни грамма страха, нет сомнений, что этот человек требует к себе соответствующие уважительного отношения.
 
-Considering that, even though Ронье for some reason had a wish to tightly hug Fizel & the other one, she would have never done it. Apart from the fact that they were Integrity Knights, to become a numbered trainee they had killed knights who previously took that number; they tried to paralyze Кирито and Yujio with a poisonous sword and take head off their neck; those two got rid of the majority of goblin troops that had invaded the back of the Мира Людей Defense Army at the time of a Foreign World War, — there were a number of horrible rumors. If one speaks directly like this showing not even a glimpse of fear, there is no doubt that she is a kind of person requiring appropriate respect.
+"Так значит, Ронье-тян…"
 
-"So then, Ронье-chan…"
+Внезапно прозвучало её имя, и Ронье выпрямила спину в горячей воде.
 
-Unexpectedly her name was called, and Ронье straightened his spine in hot water.
+"Д-да!"
 
-"Ye…yes!"
+"Я тут слышала~"
 
-"I heard that~"
+Физель ухмыльнулась, плывя по поверхности воды.
 
-Fizel grinned floating on the water surface.
+"…что ты как напарник Кирито, вместе с ним отправишься в Обсидию?"
 
-"…as a companion of Кирито, you go to Obsidia?"
+"Ээээ, ну, это......."
 
-"Err, well, that......."
+Полёт Кирито и Ронье в границах Тёмной Территории должен был оставаться секретным, но понимая, что бессмысленно скрывать это от лучшего разведчика Собора, она кивнула.
 
-Кирито and Ронье's route beyond the Тёмной Территории boundary was supposed to be a secret mission, but she thought it would be useless to try hiding it from a Собор's best intelligence agent, so she nodded.
+"......да, так и есть."
 
-"......Yeah, I do."
+"Сувениры должны включать набор секретных эликсиров от гильдии Мастеров Тёмных Искусств~"
 
-"Souvenirs should be a selection of secret elixirs from dark arts masters’ guild~"
+"................ Я постараюсь..."
 
-"................ I will do my best..."
+"Ха-ха, да шучу я, шучу."
 
-"Ha-ha, I’m joking, joking."
-
-After displaying an innocent smile suitable for her age, Fizel sitting on the higher step turned her gaze outside the glass window.
+Изобразив на лице невинную улыбочку, подходящую детям её возраста, сидящая на супеньку выше Физель обратила свой взор к стеклянной стене.
 
 ![Image](/Translate/Img/p131.jpg)
 
-In the direction Fizel was looking, the light of East Centoria city was blinking like stars in the abyss of dark. Traditionally in East Centoria there were many wooden buildings, so wooden and stone torches were used instead of oil lanterns, which made the city light to gain a kind of soft color.
+В направлении взгляда Физель, словно звёзды в ночной бездне, мерцала огоньками Восточная Центория. Так сложилось, что в Восточной Центории было много деревянных домов, так что вместо масляных лампад использовались деревянные и каменные фонарики, придававшие городским огням успокаивающий и мягкий оттенок.
 
-_Far away beyond that light, "The Great Eastern Gate" rises in over 750 kilolu and the capital of Тёмной Территории Obsidia is even further, in more than two thousand kilolu. They taught us at the Академии Мастеров Меча that its name means "the capital made of obsidian" in ancient sacred words, but the teacher did not seem to know its origin. Will I understand it when see with my own eyes, will I really go to the end in the first place to reach that city, or will it be too late and the overwhelming emotions will capture me same way as ──_
+_Где-то далеко за этими огоньками, в более чем 750 килолу, возвышаются "Великие Восточные Врата", а столица Тёмной Территории Обсидия ещё дальше, в более чем двух тысячах килолу. как нам объяснили в Академии Мастеров Меча, её название на древних священных словах означает "столица, сделанная из обсидиана", но учитель не знал происхождение этого слова. Пойму ли я, увидев её собственными глазами, да и вообще, смогу ли я дойти до конца и увидеть этот город, или всё окажется слишком поздно, и мне достанутся лишь безжалостные эмоции, прямо как ──_
 
-"When you get over there......."
+"Когда доберёшься......."
 
-As Fizel muttered closely, Ронье returned her gaze to a young сенпай knight.
+Пробормотала Физель вблизи от неё, и Ронье повернулась к рыцарю-сенпаю.
 
-"Yes……?"
+"Да……?"
 
-"Hmm... the war is over and I do not care too much, but ..."
+"Умм... война закончилась, и не то чтобы я переживала..."
 
-There was no person in the vicinity and no one could hear the conversation of two people with the sound of all the hot water flowing down vigorously from gates in the wall, but when Fizel approached Ронье and whispered with a serious face.
+Поблизости никого не было, да и никто не услышал бы диалог этих двоих из-за всего того шума, что создавала горячая вода, под напором вырывавшаяся из отверстий в стене, но Физель придвинулась к Ронье и прошептала с серьёзным лицом.
 
-"In Obsidia, keep your eyes open, be careful everywhere."
+"В Обсидии держи ушки на макушке, не теряй бдительности."
 
-"Ye...yes...."
+"Д...да...."
 
-"Although the "Peace Treaty of the Five Peoples" has been signed, the Тёмной Территории is still dominated by "Закону Сильнейшего". The strongest one now is the Тёмной Территории United Forces commander Исукан, and there’s Шейта as well, so I guess from the surface it looks like they firmly suppress it, but...... Even on this side that is supposed to be bound by many ties of the Taboo Index and Мира Людей Fundamental Law, there are still people who are disinterested in obeying them and find loopholes in the text interpreting it conveniently. So, if it is a Тёмной Территории that obeys much more ambiguous things than taboo or law, there is no wonder if some bad guys are hiding there."
+"Хоть и был подписан "Мирный Договор Пяти Народов", на Тёмной Территории всё ещё имеет силу "Закон Сильнейшего". Сейчас самым сильным считается командир Объединённых Сил Тёмной Территории Исукан, а ещё есть Шейта, так что на первый взгляд всё выглядит как будто они действительно доминируют, но...... Даже на этой стороне, где, казалось бы, люди связаны множественными ограничениями Индекса Табу и Фундаментальным Законом Мира Людей, всё равно находятся люди, не заинтересованные в подчинении им, и находящие дыры, позволяющие интерпретировать их в свою пользу. Так что, если речь о Тёмной Территории, которая подчиняется условностям намного менее однозначным, чем табу или закон, ничего удивительного, если там прячутся плохие ребята."
 
-Realizing the words of Fizel, Ронье was attacked by a feeling of hot water suddenly dropping the temperature. She started to shake a little, but Fizel stretched her right hand and tapped Ронье’s head.
+Осознавая что сейчас сказала Физель, Ронье почувствовала как горячая вода внезапно остыла. Её начало мелко трясти, но Физель вытянула руку и погладила Ронье по голове.
 
-"Sorry, sorry, I did not mean to scare you."
+"Прости, прости, я не отела тебя напугать."
 
-"No, it's okay. I will carve your admonition in my heart."
+"Нет, всё в порядке. Я вырежу ваше наставление в своём сердце."
 
-"Since our duties will be over by the time Ронье-chan comes back, let's invite Тейза-chan and have a party."
+"Поскольку к тому моменту как Ронье-тян вернётся, наше задание будет завершено, давай пригласим Тейзу-тян и устроим вечеринку."
 
-"Yes, by all means!"
+"Да, с удовольствием!"
 
-As Ронье nodded, Fizel smiled and stood up.
+Когда Ронье кивнула, Физель улыбнулась ей и поднялась.
 
-"Well, then, I will have to get up early."
+"Ну тогда ладно, а то мне вставать рано."
 
-Waving with her right hand, the girl knight stepped on a slippery marble and left, so Ронье relaxed again.
+Помахав правой рукой, девочка-рыцарь ступила на скользкий пол и ушла, и Ронье снова расслабилась.
 
-Fizel's knight number is 29, thirtieth was the "Knight of the Fragrant Olive" Alice who left for the real world in the end of the Foreign World War, thirty-first was the "Frost Scale Whip" Eldrie who had fallen defending Alice. Since the numbers will continue after these two will be missing, if Ронье and Тейза are appointed as Integrity Knights, one of them will get the number thirty-two and the other one becomes thirty-third.
+Рыцарский номер Физель был 29, тридцатой была "Рыцарь Ароматной Оливы" Алиса, отправившаяся в реальный мир в конце Войны с Внешним Миром, тридцать первым был "Хлыст Морозной Чешуи" Элдри, погибший дабы защитить Алису. Поскольку номера будут продолжаться после этих двоих, если Ронье и Тейзу назначать Рыцарями Целостности, одна из них получит номер тридцать два, а вторая станет тридцать третьей.
 
-She certainly couldn’t wait for that day. But at the same time, the feeling of uncertainty was strangling her because she could not decide yet if she’s ready. Ронье at that time had sword skill, sacred art mastery and strength of mind way lower than even those of children Fizel and Linel, not to mention higher ranking knights like Renri.
+Она с нетерпением ждала этого дня. Но в то же время её сковывало чувство неуверенности, ведь она никак не могла почувствовать, что готова к этому. Ронье на тот момент обладала навыками меча, мастерством священного искусства и силой разума меньшими, чем даже эти дели Линель и Физель, не говоря уже о старших рыцарях, таких как Ренри.
 
-_Step by step.  
-I’ll move one step at a time. If you continue to train every day and learn seriously, you will definitely be able to reach where you aim._
+_Шаг за шагом.  
+Будешь двигаться к одной цели за раз. Если продолжишь тренироваться каждый день и серьёзно учиться, то совершенно точно сможешь достичь своей цели._
 
-"............ Ронье Synthesis Thirty-three ............"
+"............ Ронье Синтезис Сёти-три............"
 
-She unwillingly muttered such a name and hurriedly looked around. Even though no one seemed to hear, Ронье dived in hot water to hide from embarrassment that was too big and continued to spit out bubbles until the air ended up.
+Она сказала это в слух, не желая того, и испуганно огляделась вокруг. Хотя походе никто и не услышал, Ронье нырнула под воду чтобы скрыть своё смущение и продолжала пускать пузыри пока не кончился воздух.
 
 ## Примечания:
 
@@ -632,6 +630,6 @@ She unwillingly muttered such a name and hurriedly looked around. Even though no
 5. <a name="Prim5"></a>К слову, クロイス, возможно, отсылка к серии “Legend of Heroes”.
 6. <a name="Prim6"></a>Здесь под “Рыцарями Коноэ” имеется в виду “личная стража Императора”; т.н. “Пролог III” из тома 18 содержит спойлер, поясняющий, что произойдёт с этой ролью в Подмирье в будущем.
 7. <a name="Prim7"></a>“Ю”, или конкретно кандзи “湯” означает горячую воду, или — горячие источники. Судя по последующим параграфам, горячие источники не симулируются Главным Визуализатором — во что лично мне верится с трудом, учитывая _кто_ его создал, ну да ладно — так что единственным “ю” в Подмирье было “弓”, лук (оружие), который вообще-то звучит как “юми”, но и до “ю” может сокращаться. Как выглядит ткань можно посмотреть [здесь](https://ojiya-chijimi.jp/archives/31862). Вполне очевидно, служит она как псевдо-дверь в зону горячих источников или ванн.
-8. <a name="Prim8"></a>The quick #KawaharaMath calculation is obviously wrong because it ignores the fact of the “floor surfaces falling down in a staircase pattern”. Depending on whether those steps are included in 25m calculation or excluded, and on the form of steps, we get significantly more or less than 874 m<sup>3</sup>, but under no condition exactly that number. Well, at least these numbers suggest the width of Catherdal’s outer wall: ~55m (25+2+wall+2+25).
-9. <a name="Prim9"></a>閑割, something like Leisure Splitter per kanji, however in this case furigana ヒマワリ is also an homonym to ひまわり which means Sunflower.
-10. <a name="Prim10"></a>Fizel calls Фанатио “higher ranked older sister”. Emperor is more complicated. It’s like Fizel calls him her direct beloved grandpa, but in a somewhat official form that would be probably used by someone who is visually older than her. 
+8. <a name="Prim8"></a>Нехитрые #Кавахарифметика подсчёты, очевидно, неверны, поскольку совершенно игнорируют “пол, ступеньками снижавшийся впереди”. В зависимости от того, включены эти ступени в 25-метровый расчёт или исключены, а также от формы ступеней, мы получим значительно больше или меньше, чем 874 м<sup>3</sup>, но вот ровно это число — ни при каких обстоятельствах. Ну, по крайней мере эти цифры дают представление о длине внешней стены Собора: ~55м (25+2+стена+2+25).
+9. <a name="Prim9"></a>閑割, по кандзи это что-то вроде Разбиватель Отдыха, однако в этом случае фуригана ヒマワリ является омонимом хираганы ひまわり, означающей Подсолнух.
+10. <a name="Prim10"></a>Физель называет Фанатио “старшей по званию старшей сестрой”. С Императором всё сложнее. Это как если бы Физель назвала его своим прямым любимым дедулей, но в немного более официальной форме, которая бы больше подошла кому-то визуально более старшему. 

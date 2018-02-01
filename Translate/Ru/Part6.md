@@ -406,7 +406,7 @@ The Obsidia Castle Town which she saw for the first time, had most buildings mad
 
 They walked ahead having such a conversation and eventually a place of a lively atmosphere appeared in the front. There was a small square, with numerous tents around, and many people were drinking having surrounded tables lined in the center.
 
-About half of them were humans with the dark skin, and there were not a few orks and goblins, but they occupied another table. _Even after the "Peace Treaty of the Five Peoples" was supposed to have been concluded in Тёмной Территории, the confrontation between tribes has not yet disappeared..._, thought Ронье peeking from behind of Кирито’s head, but he told her.
+About half of them were humans with the dark skin, and there were not a few orks and goblins, but they occupied another table. _Even after the "Мирный Договор Пяти Народов" was supposed to have been concluded in Тёмной Территории, the confrontation between tribes has not yet disappeared..._, thought Ронье peeking from behind of Кирито’s head, but he told her.
 
 "Hey, just being drinking in the same place is a big change already. Look, that fist-fighter and a group of orks are talking to each other at neighboring tables, aren’t they?"
 
@@ -596,7 +596,7 @@ The fighter who told them so with a sigh bought a dubious vial from the goblin t
 
 Although Кирито seemed to be dealing fine with it for a moment, he immediately coughed violently as soon as exhaled. The fist fighter to whom the bottle has been returned, smiled and continued the explanation.
 
-"This hooch is made by the flat goblin tribe that settled near the city recently. It is tasty, and because it is cheap like nothing at all, it sells great. The town liquor store is shabby and sales are falling, and the commercial guilds seem to be crisp. If it is before the war, the guard soldiers would attack the goblin village and kill them all, but now there is a Peace Treaty of the Five Peoples......."
+"This hooch is made by the flat goblin tribe that settled near the city recently. It is tasty, and because it is cheap like nothing at all, it sells great. The town liquor store is shabby and sales are falling, and the commercial guilds seem to be crisp. If it is before the war, the guard soldiers would attack the goblin village and kill them all, but now there is a Мирный Договор Пяти Народов......."
 
 "...... That is, as long as sub-humans move to Obsidia, humans will be robbed of work...?"
 

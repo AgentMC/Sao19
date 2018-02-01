@@ -522,7 +522,7 @@ The body of one sitting higher than Ronye was a child delicate ─ but behind th
 
 The girl flying her fingertips over the water surface reacted the way similar to Ronye herself greeted just now by three clerics in the undressing room.
 
-"There is no need in that “sama”. Ronye is older."
+"There is no need in that “-sama”. Ronye is older."
 
 "But...... but Fizel-sama is a numbered knight......."
 
@@ -530,7 +530,7 @@ The girl flying her fingertips over the water surface reacted the way similar to
 
 The name of the girl who floated her stretched body on the water surface kicking the water with both feet was Fizel Synthesis Twenty-nine.
 
-During the Foreign World War she had a special titled being "numbered trainee", but after it she soon got publicly promoted and now she was a genuine Integrity Knight. She was given silver armor made according to her physique and a dragon named "Himawari"<sup><a href="#Prim9">9</a></sup> and Recently she was mainly flying around the Human World with intelligence missions.
+During the Foreign World War she had a special titled being "numbered trainee", but after it she soon got publicly promoted and now she was a genuine Integrity Knight. She was given silver armor made according to her physique and a dragon named "Himawari"<sup><a href="#Prim9">9</a></sup> and recently she was mainly flying around the Human World with intelligence missions.
 
 "Fizel-sama, I haven’t seen you for a while, have you been at a mission again?"
 
