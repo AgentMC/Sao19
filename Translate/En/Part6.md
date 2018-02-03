@@ -6,7 +6,7 @@ In the huge dragon stables by the western end of Cathedral site, Ronye was strok
 
 Young Tsukigaki was making sound of “**Kurururu**”... narrowing the eyes, half from the pleasure, half because it was simply still sleepy. Not only the young dragon, but also Tiese leaning against the silvery fence was sweepingly rocking the red hair. Last night, Ronye thought about going to bed early but could not fall asleep, so she talked to Tiese about a lot of things in the living room.
 
-It is strange that topics for long talks wouldn’t run out even though they were together every day for nearly two years, but her best friend was that kind of person. Kirito and Yujio also had to leave northern Rulid village, traveled to the central capital, entered the Sword Mastery Academy, took years to become Elite Swordsmen, but it was always fun to talk to those two people: about swordsmanship, and fights, and sometimes even sharing the silence was perfectly cozy.
+It is strange that topics for long talks wouldn’t run out even though they were together every day for nearly two years, but her best friend was that kind of person. Kirito and Yujio also had to leave northern Rulid village, traveled to the central capital, entered the Sword Mastery Academy, took a year to become Elite Swordsmen, but it was always fun with those two people: talking about swordsmanship, and fights, and sometimes even sharing the silence was perfectly cozy.
 
 _Now Tiese is at the crossroad of adult life. Whether she accepts the proposal of Integrity Knight Renri, or refuses, I think we can at least remain best friend forever._
 
@@ -54,7 +54,7 @@ And trying to push the suddenly resurrected in vivid colors image of the last mo
 
 "No, it’s still well before the five o'clock."
 
-Kirito answered in a relaxed tone even though it was a while after the bell had rang 4:30 pm, then he got a glance at the new sword on the Ronye’s left waist and smiled.
+Kirito answered in a relaxed tone even though it was a while after the bell had rang 4:30 am, then he got a glance at the new sword on the Ronye’s left waist and smiled.
 
 "Ronye, my escort guard, I kindly ask you to take care of me."
 
@@ -66,7 +66,7 @@ _Even at the cost of my life...._ After she began to reply...... she remembered 
 
 Although it was a childish word, both Kirito and Asuna nodded again with smiles.
 
-They greeted Fanatio and Sadore as well, then she took package from Tiese. Because it was packed up tightly with supplies and clothes a medium-sized bag was pretty heavy, _but should be fine since it’s going to be put into the machine dragon......_ she was thinking.
+Girls greeted Fanatio and Sadore as well, then she took package from Tiese. Because it was packed up tightly with supplies and clothes a medium-sized bag was pretty heavy, _but should be fine since it’s going to be put into the machine dragon......_ she was thinking.
 
 "Kirito-san, the aerial element charge has been completed"
 
@@ -92,7 +92,7 @@ Kirito immediately came up the ladder after her, returned the back of the front 
 
 Same moment Ronye’s heart began to pound and she gulped the saliva.
 
-Tsukigaki was still young and couldn’t fly, but there have been many times she was allowed to ride Renri’s  Kazenui<sup><a href="#Prim1">1</a></sup>, Fizel's Himawari and Linel's Hinageshi<sup><a href="#Prim2">2</a></sup>. As expected it was scary for the first one or two times, but the pleasant feeling of flying through the air soon grew above fear. However, she never thought of flying in the sky by herself, or specifically with the artificial dragon made of metal, moreover, flying inside of it rather than riding on the back, so a feeling of incongruity completely engulfed her. _In the first place, there are no wings for flapping, so how would it return to the ground anyway after taking off?_
+Tsukigaki was still young and couldn’t fly, but there have been many times she was allowed to ride Renri’s Kazenui<sup><a href="#Prim1">1</a></sup>, Fizel's Himawari and Linel's Hinageshi<sup><a href="#Prim2">2</a></sup>. As expected it was scary for the first one or two times, but the pleasant feeling of flying through the air soon grew above fear. However, she never thought of flying in the sky by herself, or specifically with the artificial dragon made of metal, moreover, flying inside of it rather than riding on the back, so a feeling of incongruity completely engulfed her. _In the first place, there are no wings for flapping, so how would it return to the ground anyway after taking off?_
 
 That moment she again remembered the scene where Version 1 exploded and after calming down her trembling body she asked.
 
@@ -144,7 +144,7 @@ Again, she was amazed by the unrelenting willpower of the Human World Prime Swor
 
 Ronye also practiced as a knight trainee, but not only practical results of "Standing straight on the top of a pillar" which required standing on a thin pillar with one foot, "Controlling the created element" teaching of handling the element created in the air with pure will, but even "Tanza mind emptying" which is basically just sitting on the floor and trying to get rid of all the thoughts — could hardly proceed to the next stage.
 
-Even for the senior knights like Fanatio or Dusolbert, trainings only included secret incarnational techniques like "Arm of Mind" allowing to move things of the size of about a dagger with one’s will and "Blade of Mind" which swings invisible blade, so Kirito's incarnation allowing humans to freely flight a huge machine dragon that carries a human rider was way beyond of normality.
+Even for the senior knights like Fanatio or Dusolbert, trainings only included secret incarnational techniques like "Arm of Mind" allowing to move things of the size of about a dagger with one’s will and "Blade of Mind" which swings invisible blade, so Kirito's incarnation allowing humans to freely flight a huge machine dragon that carries two human riders was way beyond of normality.
 
 "...... Even with such a strong senpai’s mind power, the "end wall of the world" can still not be crossed...."
 
@@ -168,13 +168,13 @@ Eventually, she heard a voice low like a muttering.
 
 "Er... what do you mean...?"
 
-"Hmm....... Well, yes, we currently estimate the total population of Human World around 82,000. Per recent reports, Dark World seems to be about the same. The area of Human World is about 1.77 million square kilolu, since more than a half of them are undeveloped forests and wilderness, certainly Ronye is right, even if the population doubles or becomes even more, there is no problem at all from the land's perspective...... I think."
+"Hmm....... Well, yes, we currently estimate the total population of Human World around 82,000. Per recent reports, Dark Territory seems to be about the same. The area of Human World is about 1.77 million square kilolu, since more than a half of them are undeveloped forests and wilderness, certainly Ronye is right, even if the population doubles or becomes even more, there is no problem at all from the land's perspective...... I think."
 
 Among that words, certain information came as a big surprise for Ronye.
 
-"Err....... You say the total population of Dark World is around eighty thousand!? But at the time of a Foreign World War, didn’t emperor Vector prepare as many as fifty thousand army?"
+"Err....... You say the total population of Dark Territory is around eighty thousand!? But at the time of a Foreign World War, didn’t emperor Vector prepare as many as fifty thousand army?"
 
-"Do not be surprised like that....... In Dark World, as Fanatio-san says, everyone who can fight should become a soldier, but yeah, I agree at any rate it is a terrible story. However, that is surely the custom of Dark Territory. It's kind of world that you simply cannot survive unless you fight and rob."
+"Do not be surprised like that....... In Dark Territory, as Fanatio-san says, everyone who can fight should become a soldier, but yeah, I agree at any rate it is a terrible story. However, that is surely the custom of Dark Territory. It's kind of world that you simply cannot survive unless you fight and rob."
 
 Kirito cut off words and put his body to the back of the chair. The concentration of consciousness broke off for a moment, the dragon shook slightly, but then immediately regained stability.
 
@@ -231,7 +231,7 @@ The intense acceleration pressed Ronye’s body hard against the chair pushing a
 
 Clouds drifting outside the window rushed backwards. Comparing only the speed, it was faster when they flew from Central Cathedral to the guards’ office in South Centoria using Kirito's aerial elements flight technique, but the dragon was at that moment under little control of incarnation. In other words, if a high-level cleric trains enough, they could become able to fly as fast as Kirito.
 
-Rather than challenging the "end wall of the world", perhaps, that's more important...... thought Ronye for a moment, as vibrating thunderous roar filled the narrow room. She shouted out loudly holding the frame of the chair hard.
+_Rather than challenging the "end wall of the world", perhaps, that's more important......_ thought Ronye for a moment, as vibrating thunderous roar filled the narrow room. She shouted out loudly holding the frame of the chair hard.
 
 "Se...... senpai! This dragon, how fast is it flying now!?"
 
@@ -251,7 +251,7 @@ While saying that, Kirito pointed to one of several disks lined up in front of h
 
 Ronye repeated that shaking her head again and again, trying to comprehend such speed.
 
-_Now I understand, yes, if the machine dragon can fly that fast and far away from the ground ── it would take just half a day to arrive to Obsidia Castle that lies in 3,000 kilometers away. Then, there could also be nobody able to attack such a machine dragon soaring at this ridiculous speed.  
+_Now I understand, yes, if the machine dragon can fly that fast and far away from the ground ── it would take just half a day to arrive to Obsidia Castle that lies in 3,000 kilolu away. Then, there could also be nobody able to attack such a machine dragon soaring at this ridiculous speed.  
 And also, beyond that there’s a huge benefit of…_ thinking in such a way, Ronye finally got used to surrounding rhythmic vibrations.
 
 ***
@@ -276,7 +276,7 @@ After mumbling so with a hoarse voice, Ronye asked the Prime Swordsman.
 
 Ronye's words sounded disappointing, but Kirito turned back and finally laughed.
 
-"No, let alone this time it’s informal, to the degree that we did not even contact Isukan. So, something tells me we’ll have a chance of doing it."
+"No, let alone this time it’s informal, to the degree that we did not even contact Isukan, but something tells me we’ll have a chance of doing it."
 
 "Something… tells you...?"
 
@@ -354,7 +354,7 @@ In just a few seconds, the face of Kirito turned into a color of kohiru tea<sup>
 
 Listening to that words, Ronye noticed that his face had been colored as well with both hands passing down the cheeks already. As Kirito who glanced at her face said that she was "cool, looking great" with a smiley face, she felt bottom of her palms got hotter.
 
-"Then, senpai, I hop its washable, is it not?"
+"Then, senpai, I hope its washable, is it not?"
 
 She asked with a blunt sharp voice, and Kirito hurriedly frowned and nodded.
 
@@ -368,7 +368,7 @@ Having mumbled that last words, Kirito reached out his hands again, corrected Ro
 
 In Centoria, there was a big gate and a guard room at the border of the city, but it seems that there is not such a thing in Obsidia outskirts, the building number gradually increased on both sides of the road and seemed to continue to the city as is. No guards could be seen.
 
-"...... So far so good, I think, if anyone asks me for identity...... that's right, I came from Faldera to find a job in the northern fu... and let's say we’re brother and sister."
+"...... So far so good, I think, if anyone asks me for identity...... that's right, we came from Faldera to find a job in the northern fu... and let's say we’re brother and sister."
 
 Ronye finally released both hands from cheeks and asked about unfamiliar words in Kirito’s phrase.
 

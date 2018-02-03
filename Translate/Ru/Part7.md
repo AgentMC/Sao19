@@ -32,7 +32,7 @@ About two years have elapsed since Elite Swordsman-in-Training Yujio, who was a 
 
 On her tiptoes, she returned to the sofa and sat again.
 
-_Асуна, a Vice-Премьер-Мечник who is waking up in the same room as Кирито, knows Кирито's heart... Does she know the existence of deep sorrow that he is hiding? And if she does, I wonder how does she keeps her gentle, kind smile standing by Кирито......._
+_Асуна, a Vice-Премьер-Мечник who is waking up in the same room as Кирито, knows Кирито heart... Does she know the existence of deep sorrow that he is hiding? And if she does, I wonder how does she keeps her gentle, kind smile standing by Кирито......._
 
 She decided to talk to Асуна properly upon the return to Centoria. Of course, not about the feeling kept secretly in Ронье’s mind, but because both of them feel they want to be the power of Кирито.
 
@@ -74,11 +74,11 @@ Having heard the words of Кирито, Ронье also sighed unwillingly.
 
 After painting the faces with brown ointment again and paying the rent the left, and morning sun dyed red greeted them with a light similar to that of ore lanterns.
 
-There was a distance of more than 5 kilometers from the inn to Obsidia castle, they walked enjoying the scenery of a foreign country feeling great impatience.
+There was a distance of more than 5 kilometers from the inn to Обсидия castle, they walked enjoying the scenery of a foreign country feeling great impatience.
 
 As they got closer to the castle the road became wider and the buildings on both sides also became fine. However, the number of passers-by decreased rapidly, in particular the sub-humans are completely absent.
 
-Eventually, a river rich in water, black as everything else in this dark world, and a fine stone bridge appeared. After it, there was a big gate, and the way ran gradually uphill, to a sharp obsidian mountain ─ to the imperial castle of Obsidia.
+Eventually, a river rich in water, black as everything else in this dark world, and a fine stone bridge appeared. After it, there was a big gate, and the way ran gradually uphill, to a sharp Обсидияn mountain ─ to the imperial castle of Обсидия.
 
 Ронье asked Кирито who stopped at the beginning of the bridge.
 
@@ -96,9 +96,9 @@ Then Премьер-Мечник tilted his painted dark head lightly.
 
 Shouting so, he pulled Ронье's hand, and they went along the left bank of the river. _As the bridge that leads directly to the castle keeps getting away more and more, he surely wants to swim across this river which seems to be not easy at all, climb up the hill full of rocks and intrude into the castle._
 
-Кирито stopped at a place where the river got a little wider, put two bags on the ground and looked up again at Obsidia castle.
+Кирито stopped at a place where the river got a little wider, put two bags on the ground and looked up again at Обсидия castle.
 
-Obsidian-black rocky mountain looked like a tower rather than a mountain because its base was about 300 mel in diameter, while its height was about two times that. Most of the side facing the town was presented as a castle, with magnificent columns and large windows glittering in the morning sun, but the back side was almost a rocky mountain, only a large terrace was hanging high above which was probably the dragon departure ground.
+Обсидияn-black rocky mountain looked like a tower rather than a mountain because its base was about 300 mel in diameter, while its height was about two times that. Most of the side facing the town was presented as a castle, with magnificent columns and large windows glittering in the morning sun, but the back side was almost a rocky mountain, only a large terrace was hanging high above which was probably the dragon departure ground.
 
 Unexpectedly Кирито lifted his right hand and drew it straight towards the top of the castle. Moved five stretched fingers as if looking for something small.
 
@@ -116,7 +116,7 @@ _Кирито did not cast any sacred art. So, this is a secret mystery of Integ
 
 With a short shout, Кирито swept his right hand with tremendous momentum.
 
-A white light flickered as if it was one of knight Renri's “Twin Edged Wings” and instantly flew a distance of half a kilolu, hitting the handrail of a small terrace near the top of Obsidia castle. Ронье's trained eyes clearly recognized that a small obsidian fragment spilled from the handrail struck by the blade.
+A white light flickered as if it was one of knight Renri's “Twin Edged Wings” and instantly flew a distance of half a kilolu, hitting the handrail of a small terrace near the top of Обсидия castle. Ронье's trained eyes clearly recognized that a small Обсидияn fragment spilled from the handrail struck by the blade.
 
 "What a......., se-se-se-se-se-сенпай, what are you doing?! You scratched the castle!"
 
@@ -124,7 +124,7 @@ Although being astonished and surprised to a great extent by the blade of incarn
 
 "Don’t worry of that damage, it will disappear if they smear a piece of a charcoal with glue and stick there…I think. Now, look there."
 
-As Кирито lifted his right hand again, she looked up to where he pointed. Then, she saw a small figure emerging from the terrace struck by Кирито's "blade of mind". As expected the distance was too far to see the face, but a slender body belonged to a human. Noticing the scratch of the handrail, the person looked below bending the upper body over the terrace’s border.
+As Кирито lifted his right hand again, she looked up to where he pointed. Then, she saw a small figure emerging from the terrace struck by Кирито "blade of mind". As expected the distance was too far to see the face, but a slender body belonged to a human. Noticing the scratch of the handrail, the person looked below bending the upper body over the terrace’s border.
 
 Even though it was more than one kilometer away, there is no place to hide in the open riverside where Кирито and Ронье were standing. The shadow of the terrace kept her eyes on the two of them... and that moment.
 
@@ -178,7 +178,7 @@ Among current integrity knights, she was a senior knight following Фанати�
 
 They said there is nothing that cannot be cut by her sacred treasure "Black Lily Sword" given by the Highest Priest, and in a Foreign World War, first she countered the main force of fist fighters, and then bravely<sup><a href="#Prim2">2</a></sup> fought a fierce battle against the large army of red knights.
 
-However, by the end of the battle, she left Центральный Собор and stayed at Obsidia castle as a full authority representative for the Объединённого Совета Мира Людей.
+However, by the end of the battle, she left Центральный Собор and stayed at Обсидия castle as a full authority representative for the Объединённого Совета Мира Людей.
 
 In other words, she was the best person for Кирито and Ронье to contact first — but, the question, how did Кирито bring her here, remained unanswered. Кирито swung the blade of mind against the castle, and Шейта was the single person who noticed it and flew to them — it seems to be only a result of a lucky coincidence that this haphazard strategy happened to be successful.
 
@@ -222,15 +222,15 @@ She released these words unintentionally, then turned to laugh at Кирито w
 
 She signaled with her right hand, and Yoiyobi laid down. There was no saddle, but thanks to that, all three of them could get on packed together. With Ронье in front, Кирито behind, and Шейта in the middle they rode the dragon which easily took off after running a bit on the riverbank, not frightened at all by the weight of the two of sacred treasure class long swords and three human beings.
 
-Powerfully flapping wings, it quickly raised, aiming at the upper part of Obsidia castle. The guards noticed them, but it was known that it was a dragon of full authority ambassador, so there was no appearance of a fuss.
+Powerfully flapping wings, it quickly raised, aiming at the upper part of Обсидия castle. The guards noticed them, but it was known that it was a dragon of full authority ambassador, so there was no appearance of a fuss.
 
-Yoiyobi flew to the mentioned terrace in about two minutes, and when three people descended, it sang them good-bye<sup><a href="#Prim3">3</a></sup> and flew back to the departure point again. When the dragon's large body disappeared, Ронье walked over to obsidian handrails and looked at the place where Кирито hit it with the blade of mind. As she had feared, scratches that are likely to be more than a centimeter deep were engraved clearly.
+Yoiyobi flew to the mentioned terrace in about two minutes, and when three people descended, it sang them good-bye<sup><a href="#Prim3">3</a></sup> and flew back to the departure point again. When the dragon's large body disappeared, Ронье walked over to Обсидияn handrails and looked at the place where Кирито hit it with the blade of mind. As she had feared, scratches that are likely to be more than a centimeter deep were engraved clearly.
 
 _They will certainly be angry, this is no..._ then Ронье raised her eyes towards the view in front of her and unexpectedly shouted completely forgetting what she was worrying about one second ago.
 
 "Wow...... it’s amazing......!"
 
-She could see the entire city of Obsidia in front of her eyes. It was a cluttered and disorganized townscape, completely different from the Centoria city separated radially in four equal fragments, but what she saw almost shined with the power of life.
+She could see the entire city of Обсидия in front of her eyes. It was a cluttered and disorganized townscape, completely different from the Centoria city separated radially in four equal fragments, but what she saw almost shined with the power of life.
 
 "Hey that area of the city, where it seems the ground itself is stacked in numerous layers...a-ah, is that a stadium? It is big, сенпай!"
 
@@ -368,7 +368,7 @@ Anyway, Лизетта herself seemed to have no dissatisfaction with milk conta
 
 Кирито nodded and started talking about the murder case occurred in South Centoria two days ago.
 
-Исукан and Шейта listened silently, but at the moment when the story ran over to the mountain goblin Oroi who was accused as the murderer, two people sharply breathed. But without saying a word, they finished listening to where Кирито and Ронье flew out of Мира Людей with a "dragon" and arrived at Obsidia last night.
+Исукан and Шейта listened silently, but at the moment when the story ran over to the mountain goblin Oroi who was accused as the murderer, two people sharply breathed. But without saying a word, they finished listening to where Кирито and Ронье flew out of Мира Людей with a "dragon" and arrived at Обсидия last night.
 
 "……I see……. Spreading this would incur undesired attention......."
 
@@ -376,7 +376,7 @@ To the commander sitting next to him, Премьер-Мечник shook his head
 
 "No, I thought of sending a message as the first thing to do, but... the time for delivery and waiting for the reply to come back, it will be next month."
 
-Currently, the communication between Centoria and Obsidia relies on a horse riding messengers passing through ten cities and fortresses. The number of days it takes one way is really two weeks. Moreover, there is a danger that a messenger will be attacked by numerous huge monsters inhabiting the Тёмной Территории.
+Currently, the communication between Centoria and Обсидия relies on a horse riding messengers passing through ten cities and fortresses. The number of days it takes one way is really two weeks. Moreover, there is a danger that a messenger will be attacked by numerous huge monsters inhabiting the Тёмной Территории.
 
 "That's right……I wish I had found a parent skull......."
 
@@ -480,7 +480,7 @@ Although his tone sounded already full of wholehearted regrets, Кирито con
 
 After nodding, Исукан glanced out of the window and turned back to Кирито again.
 
-"── As for tourists going to Мира Людей from here, this is fine... How about merchant parties coming from Мира Людей? Certainly, every party should stay away from Obsidia."
+"── As for tourists going to Мира Людей from here, this is fine... How about merchant parties coming from Мира Людей? Certainly, every party should stay away from Обсидия."
 
 "Ugh, and this also..."
 
@@ -488,11 +488,11 @@ After nodding, Исукан glanced out of the window and turned back to Кир�
 
 As a part of exchange project, in addition to the acceptance of tourists visiting Мира Людей from Тёмной Территории, the dispatching of merchant parties from Мира Людей has begun. Although it was still in trial scale, only including buying and selling goods via several horse-drawn carriages, but in Тёмной Территории there are lots of rare items not found in Мира Людей like luminescent stone used for lighting, so great merchants who sniffed the smell of money were flooding officials with requests for dispatch permission.
 
-"...... If the culprit of the incident is an organization, they may have companions in Obsidia, then the reverse of cleaner murder may happen...... In other words, there is indeed a possibility that a human merchant might try to kill a resident of Тёмной Территории. However, in the merchant parties there are skilled men from the Мира Людей Army and clerics as escorts, additionally merchants are following regulations so they cannot dispatch without permission, so that wouldn’t be easy, I think..."
+"...... If the culprit of the incident is an organization, they may have companions in Обсидия, then the reverse of cleaner murder may happen...... In other words, there is indeed a possibility that a human merchant might try to kill a resident of Тёмной Территории. However, in the merchant parties there are skilled men from the Мира Людей Army and clerics as escorts, additionally merchants are following regulations so they cannot dispatch without permission, so that wouldn’t be easy, I think..."
 
 Шейта also nodded to the words of Кирито.
 
-"I do not think there is a need to stop the trade business right now also because the merchant parties carry a lot of valuable medicine and media of the Мира Людей, so they are welcomed more than I had expected....... As a precaution, during merchants’ stay in Obsidia, one of my disciples will be attending them."
+"I do not think there is a need to stop the trade business right now also because the merchant parties carry a lot of valuable medicine and media of the Мира Людей, so they are welcomed more than I had expected....... As a precaution, during merchants’ stay in Обсидия, one of my disciples will be attending them."
 
 "Eh, disciples......? Шейта-сан wasn’t transferred with a company.... Hmm, I was under impression you have come here alone by yourself...?"
 
@@ -568,9 +568,9 @@ Nodding, she gently stroked the silvery guard.
 
 When Ронье responded with a clear voice, Кирито and Исукан sitting in front looked back in surprise.
 
-Eventually the carriage passed through the city area and returned to the Obsidia Castle in the normal way of passing through the gates across the bridge.
+Eventually the carriage passed through the city area and returned to the Обсидия Castle in the normal way of passing through the gates across the bridge.
 
-Although Obsidia Castle with its height of 500 mel and fifty floors was only slightly below the Центральный Собор, there was no automatic elevator as in Собор. In other words, it is only a matter of going up the stairs to reach to the upper level, which was also a countermeasure against the raiders.
+Although Обсидия Castle with its height of 500 mel and fifty floors was only slightly below the Центральный Собор, there was no automatic elevator as in Собор. In other words, it is only a matter of going up the stairs to reach to the upper level, which was also a countermeasure against the raiders.
 
 To the 49th floor where the Исукан lived, four people climbed up without a single stop. The couple and Кирито did not seem to lost breathe, but Ронье said after having several “**\~ha…\~ha…**” after arrival, that even in such a place she realizes the lack of training.
 

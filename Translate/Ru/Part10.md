@@ -64,7 +64,7 @@ Saying so with a tough face, Кирито turned his gaze to the window.
 
 Шейта nodded deeply to his words.
 
-"Yes, I will discuss this with the Knights Order and the Commercial Guild. I will not let such a mess occur in Obsidia anymore."
+"Yes, I will discuss this with the Knights Order and the Commercial Guild. I will not let such a mess occur in Обсидия anymore."
 
 Кирито leaned forward to Исукан who declared this.
 
@@ -74,7 +74,7 @@ Saying so with a tough face, Кирито turned his gaze to the window.
 
 Despite the bitter smile, Исукан shrugged and replied.
 
-"But yes, certainly that's a way to go. That added to quarrels between humans around Obsidia, the problems of sub-humans trying to settle in shared areas, and problems alike.... ── Кирито, okay, how long can you stay here?"
+"But yes, certainly that's a way to go. That added to quarrels between humans around Обсидия, the problems of sub-humans trying to settle in shared areas, and problems alike.... ── Кирито, okay, how long can you stay here?"
 
 This time it was already Исукан who tilted ahead, and Кирито strengthened his upper body.
 
@@ -94,11 +94,11 @@ Looking at Исукан puffing his lips like a child, Кирито just smiled 
 
 ***
 
-Кирито and Ронье, who took a few hours of nap in their apartment and finished a simple meal, departed from Obsidia Castle at 8 p.m.
+Кирито and Ронье, who took a few hours of nap in their apartment and finished a simple meal, departed from Обсидия Castle at 8 p.m.
 
 This time, there was no need to paint the face with ointment, or to fly with incarnation. Шейта sent them to the place where the machine dragon was left by her loved dragon Yoiyobi.
 
-She seemed to be surprised seeing the steel dragon, but apparently, she realized the possibilities of the machine dragon at once. Saying that if this is mass-produced, the day will come when the travel between Мира Людей and Тёмной Территории is simple and enjoyable, Шейта returned to the castle of Obsidia which was her place of assignment and home as well; Кирито and Ронье also got into the dragon and flew to the western sky.
+She seemed to be surprised seeing the steel dragon, but apparently, she realized the possibilities of the machine dragon at once. Saying that if this is mass-produced, the day will come when the travel between Мира Людей and Тёмной Территории is simple and enjoyable, Шейта returned to the castle of Обсидия which was her place of assignment and home as well; Кирито and Ронье also got into the dragon and flew to the western sky.
 
 When the flight stabilized, after exhaling a long breath, Кирито in the front seat said.
 
@@ -120,7 +120,7 @@ As they flew, through the transparent windshield one could see the night sky of 
 
 _Мира Людей and Тёмной Территории are far apart, but the people living in both worlds are watching the same moon...._
 
-At the moment when she thought so, the same mysterious sensation came as when she saw a sign of an inn in Obsidia castle town and when she heard the melody of the hour bells, but this time Ронье caught the thought.
+At the moment when she thought so, the same mysterious sensation came as when she saw a sign of an inn in Обсидия castle town and when she heard the melody of the hour bells, but this time Ронье caught the thought.
 
 "Ah... that, Кирито-сенпай."
 

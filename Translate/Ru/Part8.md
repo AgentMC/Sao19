@@ -53,11 +53,11 @@ They ran down the stairs and arrived on the 48th floor, and at the same time, a 
 
 That voice crying "Down there!" definitely belonged to Исукан. They nodded each other and ran through a wide corridor.
 
-On the right side at the end of the corridor, they saw a large two-sash door in front. The obsidian door decorated with silver, clearly guarding a considerably important area, was opened wide, and the voice of the guards filled with fear and hatred were constantly heard from the inside.
+On the right side at the end of the corridor, they saw a large two-sash door in front. The Обсидияn door decorated with silver, clearly guarding a considerably important area, was opened wide, and the voice of the guards filled with fear and hatred were constantly heard from the inside.
 
 Кирито and Ронье quickly passed through a corridor of about 20 meters and jumped into the room.
 
-Immediately, innumerable bright lights glowing on both sides dazzled the eyes. In light of ore lanterns, the guards of about ten people were standing in the passage, and ahead of them, was a large room filled with a myriad of decorated weapons and armor, all sorts of jewelry and ornaments. It must be an armor store of Obsidia castle, or a treasury.
+Immediately, innumerable bright lights glowing on both sides dazzled the eyes. In light of ore lanterns, the guards of about ten people were standing in the passage, and ahead of them, was a large room filled with a myriad of decorated weapons and armor, all sorts of jewelry and ornaments. It must be an armor store of Обсидия castle, or a treasury.
 
 "It's monsters......!"
 
@@ -145,7 +145,7 @@ She muttered so with a faint voice and started to run fiery. Like a wind she rus
 
 "Wha…, what is goi…, going on?"
 
-Кирито blushed and shouted to a fist fighter who leaked bewildered voice while kicking a polished obsidian floor barefoot.
+Кирито blushed and shouted to a fist fighter who leaked bewildered voice while kicking a polished Обсидияn floor barefoot.
 
 "Perhaps, the real purpose of the arts master is much more important than treasure"
 
@@ -157,7 +157,7 @@ She muttered so with a faint voice and started to run fiery. Like a wind she rus
 
 Immediately after he murmured the name of the baby in a low voice, both feet of fist fighter radiated a light-red glow.
 
-**Gaan**! And the obsidian floor where he kicked off cracked like a spider's web. Rushing up skipping four or five steps he quickly separated from them by enormous accelerating and reached the top of the stairs few seconds after dashing ahead Шейта. Just behind him, Кирито glided in an ashihakobi<sup><a href="#Prim1">1</a></sup> style.
+**Gaan**! And the Обсидияn floor where he kicked off cracked like a spider's web. Rushing up skipping four or five steps he quickly separated from them by enormous accelerating and reached the top of the stairs few seconds after dashing ahead Шейта. Just behind him, Кирито glided in an ashihakobi<sup><a href="#Prim1">1</a></sup> style.
 
 Resisting the shiver that tried to make the whole body numb, Ронье ran hard after them. She climbed the stairs and jumped into the corridor of the 49th floor, but there was already no appearance of the three, only footsteps can be heard.
 
@@ -257,7 +257,7 @@ From his hand, Шейта took the parchment next. The expression of astonishmen
 
 Standing beside Кирито who received the message, Ронье ran her eyes over the black characters.
 
-【By the sunset of the 21st day of the 2nd month, publicly execute the Премьер-Мечник of the Объединённого Совета Мира Людей at the Great Stadium due to the attempted assassination of the Dark Army General Commander, and send back the head to Мира Людей. When that is not done, the head of the innocent baby will be delivered to Obsidia castle】
+【By the sunset of the 21st day of the 2nd month, publicly execute the Премьер-Мечник of the Объединённого Совета Мира Людей at the Great Stadium due to the attempted assassination of the Dark Army General Commander, and send back the head to Мира Людей. When that is not done, the head of the innocent baby will be delivered to Обсидия castle】
 
 "............ Tha-t-t is............"
 
@@ -317,9 +317,9 @@ Both hands firmly gripped knees, and creaking added to the groaning. Шейта 
 
 Кирито said again with a threatening letter in his right hand.
 
-"Ронье realized the possibility that the murder in Мира Людей is a trap for make me go to Obsidia. But I decided that if I move to Obsidia in a day, no conspiracy could catch up with me. However, the guys who kidnapped Лизетта are good ones... they have a group in both Мира Людей and Тёмной Территории and they have a means to contact each other faster than with machine dragon."
+"Ронье realized the possibility that the murder in Мира Людей is a trap for make me go to Обсидия. But I decided that if I move to Обсидия in a day, no conspiracy could catch up with me. However, the guys who kidnapped Лизетта are good ones... they have a group in both Мира Людей and Тёмной Территории and they have a means to contact each other faster than with machine dragon."
 
-"Machine... dragon? You used it to be able to move from Centoria to Obsidia in a day?<sup><a href="#Prim2">2</a></sup>"
+"Machine... dragon? You used it to be able to move from Centoria to Обсидия in a day?<sup><a href="#Prim2">2</a></sup>"
 
 Кирито nodded to Шейта’s question.
 

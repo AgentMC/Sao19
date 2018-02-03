@@ -1,398 +1,401 @@
-# Part 6
+# Часть 6
 
-Dawn of the next day, 19th February.
+На рассвете следующего дня, 19го Февраля.
 
-In the huge dragon stables by the western end of Собор site, Ронье was stroking the neck of her beloved Tsukigaki again and again.
+В огромных драконьих стойлах к западу от Собора, Ронье вновь и вновь гладила шею своего любимого Цукигаки.
 
-Young Tsukigaki was making sound of “**Kurururu**”... narrowing the eyes, half from the pleasure, half because it was simply still sleepy. Not only the young dragon, but also Тейза leaning against the silvery fence was sweepingly rocking the red hair. Last night, Ронье thought about going to bed early but could not fall asleep, so she talked to Тейза about a lot of things in the living room.
+Молодой дракон Цукигаки издавал довольное “**Ку-ру-ру**”... полуприкрыв глаза, частично от удовольствия, частично от того, что до сих пор был сонным. Не только молодой дракон, но и облокотившаяся на серебристую ограду Тейза клевала носом. Прошлой ночью Ронье хотела было лечь спать пораньше, но сон всё не шёл, так что она долго разговаривала с Тейзой в гостиной обо всём на свете.
 
-It is strange that topics for long talks wouldn’t run out even though they were together every day for nearly two years, but her best friend was that kind of person. Кирито and Yujio also had to leave northern Rulid village, traveled to the central capital, entered the Академии Мастеров Меча, took years to become Elite Swordsmen, but it was always fun to talk to those two people: about swordsmanship, and fights, and sometimes even sharing the silence was perfectly cozy.
+Казалось странным, что темы для разговора всё не иссякали, хотя последние два гола они по сути провели вместе, но её лучшая подруга просто относилась к подобному типу людей. Кирито и Юдзио тоже пришлось оставить северную деревушку Рулид, отправиться к центральной столице, поступить в Академию Мастеров Меча, потратить год чтобы стать Элитными Учениками Мечника, но с этой парочкой всегда было весело: говорить про мастерство меча, или поединки, и даже изредка разделяя с ними тишину они чувствовали себя уютно.
 
-_Now Тейза is at the crossroad of adult life. Whether she accepts the proposal of Integrity Knight Renri, or refuses, I think we can at least remain best friend forever._
+_Сейчас Тейза на перепутье взрослой жизни. Примет ли она предложение Рыцаря Целостности Ренри и ли же откажет, по крайней мере я надеюсь, мы сможем остаться лучшими подругами._
 
-"... Well then, Tsukigaki, I’ll go, I guess. Listen carefully to Тейза and be a good boy."
+"... Ладно, Цукигаки, пора мне, пожалуй. Слушайся Тейзу и будь хорошим мальчиком."
 
-Ронье stood up, and the young dragon lifted his neck and replied "**Kyuru~**".
+Ронье поднялась, а молодой дракон поднял шею и ответил "**Кью-ру~**".
 
 ***
 
-When they finally moved to the arsenal behind Собор together with Тейза who finally looked awoken, the Machine Dragon Version 2 was already drawn out to the cobblestone yard.
+Когда они, наконец, добрались до арсенала за Собором вместе с Тейзой, окончательно проснувшейся, Искусственный Дракон Версии 2 был уже вытащен на мощёный булыжником двор.
 
-It was not standing vertically like Version 1, but laid on the ground with three legs, just as it was inside the arsenal. Looking closely, one could see that tips of legs weren’t claws like that of a real dragon but had wheels attached.
+В отличие от Версии 1, он не стоял вертикально, а лежал на земле на трёх ногах, прямо как внутри арсенала. Если присмотреться, то можно было заметить, что ноги его не заканчивались когтями, как у настоящих драконов, а вместо этого к ним были прикреплены колёса.
 
-Кирито, Асуна, Фанатио, chief of engineering master Садоре were standing close to its head, and there was one more person, a woman of the same age Ронье wearing the arsenal work clothes was standing by the side of a dragon, casting some sacred art with her hand touching the fuselage.
+Кирито, Асуна, Фанатио, главный инженер мастер Садоре стояли возле его головы, и кроме них был ещё один человек, женщина на вид одного с Ронье возраста, облачённая в рабочую одежду сотрудников арсенала, стояла сбоку от дракона и читала какое-то священное искусство, касаясь дракона рукой.
 
-Ронье recognized aerial element generation expression and turned to her friend who stood next holding a bag.
+Ронье смогла разобрать фразу генерации воздушных элементов и повернулась к стоящей рядом с сумкой в руках подруге.
 
-"Hey Тейза, is that girl......."
+"Хей Тейза, а эта девушка......."
 
-"Oh, yes, that's her. This young woman was the elevator operator before it has been automated."
+"О, да, это она. Эта девушка работала оператором подъёма до того как его автоматизировали."
 
-"Oh...... she’s cute, is she not?"
+"Оу...... а она милая, правда?"
 
-"She is, but there is a rumor that this cute girl lives as long as Дюсольберт, at least."
+"Точно, хотя ходит слух, что живёт эта милашка так же долго как Дюсольберт, а то и больше."
 
-"That… that's also true..."
+"И… и то верно..."
 
-Кирито noticed two people stopped a little away and having a conversation and waved his hand.
+Кирито заметил как эти двое переговаривались, остановившись поодаль и помахал рукой.
 
-"Hey Ронье, Тейза, over here."
+"Привет Ронье, Тейза, идите сюда."
 
-"Ah... yes, good morning!"
+"А... да, доброе утро!"
 
-"Morning!"
+"Утро доброе!"
 
-They said greetings walking up to him.
+Они прокричали приветствия и зашагали к нему.
 
-Although the sky was still dark, the Machine Dragon Ver. 2 seen outdoors was bigger than she imagined. In addition to having two cockpit seats, left and right wings were elongated to the size of real dragon’s ones, and nozzles in the back were larger as well. The total length would be 40% more than that of Ver. 1, reaching about seven mel.
+Хоть небо было ещё тёмным, но Искусственный Дракон Версии 2, выкаченный наружу, был отчётливо виден бо́льшим, чем она представляла. В дополнение к двум сиденьям в кабине, крылья с обеих сторон были продлены до размеров таковых у настоящего дракона, да и дюзы сзади были явно больше. Общая длина была примерно на 40% больше, чем у Версии 1, в итоге достигая примерно 7 мелов.
 
-_Will I ride this? I guess feeling nervous is expected though, but there is no time to show fear as I volunteered myself._
+_И мне на этом лететь? Ну, думаю, чувствовать волнение нормально, но раз уж я вызвалась добровольцем, страх показывать нельзя._
 
-And trying to push the suddenly resurrected in vivid colors image of the last moments of Version 1 out of her mind, she lowered her head again in front of Кирито and Асуна.
+И пытаясь вытолкнуть из своего воображения внезапно заигравшие яркими красками воспоминания о последних мгновениях существования Версии 1, она склонила голову перед Кирито и Асуной.
 
-"Sorry, we’re late."
+"Простите, мы поздно."
 
-"No, it’s still well before the five o'clock."
+"А, ничего, до пяти часов время ещё есть."
 
-Кирито answered in a relaxed tone even though it was a while after the bell had rang 4:30 pm, then he got a glance at the new sword on the Ронье’s left waist and smiled.
+Кирито ответил спокойно, хотя уже прошло довольно много времени с того момента, как колокол пробил 4:30 утра, потом он взглянул на новый меч на боку Ронье и улыбнулся.
 
-"Ронье, my escort guard, I kindly ask you to take care of me."
+"Ронье, мой эскорт, я прошу тебя позаботиться обо мне."
 
-"Ye...... Yes!"
+"Д...... Да!"
 
-_Even at the cost of my life...._ After she began to reply...... she remembered the words between her and Асуна last night. As a result, she got it out of her mouth.
+_Даже ценой моей жизни...._ После того как она начала отвечать...... она вспомнила о чём они с Асуной говорили прошлым вечером. Так что в итоге, она выдала это.
 
-"I, I will do my best!"
+"Я, я сделаю всё возможное!"
 
-Although it was a childish word, both Кирито and Асуна nodded again with smiles.
+Хоть и прозвучало как-то по-детски, но и Кирито, и Асуна снова кивнули, улыбаясь.
 
-They greeted Фанатио and Садоре as well, then she took package from Тейза. Because it was packed up tightly with supplies and clothes a medium-sized bag was pretty heavy, _but should be fine since it’s going to be put into the machine dragon......_ she was thinking.
+Девушки также поприветствовали Фанатио и Садоре, а затем Тейза отдала ей сумку. Плотно набитая одеждой и материалами средних размеров сумка была довольно тяжёлой, _но всё же должно быть нормально раз мы летим на искусственном драконе......_ думала она.
 
-"Кирито-сан, the aerial element charge has been completed"
+"Кирито-сан, зарядка воздушными элементами завершена."
 
-Having heard such a voice from behind, Ронье and Тейза turned around at the same time. The owner of the voice was a girl who had been previously called an elevator operator; one could say that instead of work clothes of the arsenal or clerics’ robes, an aristocratic dress would more likely to fit her fragile beautiful face.
+Услышав этот голос позади себя, Ронье и Тейза одновременно развернулись. Обладателем голоса была девушка, которую раньше называли оператором подъёма; вполне можно было сказать, что вместо рабочей одежды арсенала или мантий клериков, её хрупкому прекрасному лицу бы больше шло платье аристократки.
 
-"Thank you Airy, you saved me."
+"Спасибо, Эйри, очень выручила."
 
-A girl called Airy to whom Кирито addressed these words bowed without changing a face expression and went by Садоре.
+Девушка по имени Эйри, к которой обращался Кирито, поклонилась и не меняя выражения лица, встала возле Садоре.
 
-Immediately afterwards, Собор's bell gently played the 5 o'clock melody, Кирито clapped hands energetically.
+И сразу после этого колокол Собора проиграл негромкую пятичасовую мелодию, и Кирито энергично хлопнул в ладоши.
 
-"Well, then, let us be off! Ронье, hand your luggage over here."
+"Ну, что же, пора нам в путь! Ронье, давай сюда багаж."
 
-She handed the bag that would be her luggage to the stretched-out hand, and Кирито opened a small door on the side of the machine dragon and placed it inside. After seeing it, Ронье firmly hugged Тейза. There was no need to say anything, Ронье's "Well, see you soon" and Тейза’s "Come back safely" thoughts instantly came across between the two of them.
+Она отдала сумку, являвшуюся её багажом в протянутую руку, и Кирито, открыв небольшую дверцу в боку Искусственного Дракона, забросил её внутрь. Увидев это, Ронье крепко обняла Тейзу. Им не нужно было ничего говорить, Роньино "Ну, до скорого" и Тейзино "Вернись целой и невредимой" мгновенно пронеслось мыслями между ними.
 
 ![Image](/Translate/Img/p139.jpg)
 
-As she released the hug, looked at her best friend's face and nodded, Кирито had already moved to the head of the machine dragon. He urged to get up the ladder extending from the ground to the head, and she obeyed; up there she found a small oval room with two chairs: one in front and one in the back.
+Когда подруги разжали объятья, посмотрели друг другу в лицо и кивнули, Кирито уже приблизился к голове Искусственного Дракона. Он поторопил, чтобы Ронье поскорее поднималась по лестнице приставленной к дракону сбоку, и та подчинилась; наверху её ждало небольшое овальное помещение с 2 сиденьями: одно спереди, а другое сзади.
 
-Because the backrest of the front chair was collapsed, Ронье removed the sword from the waist and squeezed the body behind the chair. Chairs were simple, just leather stretched over the metal frame, but made of highly valuable red horn cow leather rich in flexibility and comfort, so it was overall not as bad as expected.
+Ронье сняла с пояса меч и протиснулась за сложенную спинку переднего сиденья. Сиденья были простыми, просто кожа, натянутая поверх металлической рамы, но сделано это было из высоко ценившейся кожи краснорогих коров, которая ценилась за эластичность и удобство, так что всё было не так уж и плохо.
 
-Кирито immediately came up the ladder after her, returned the back of the front chair to its original angle and sat there. Садоре removed the ladder, then Кирито pulled the handle, the glass canopy came down and closed.
+Кирито сразу же поднялся по лестнице вслед за ней, вернул спинку переднего кресла в обычное состояние и уселся там. Садоре убрал лестницу, затем Кирито потянул за ремешок, стеклянный купол двинулся вперёд и вниз и захлопнулся.
 
-Same moment Ронье’s heart began to pound and she gulped the saliva.
+В тот момент сердце Ронье начало сильно стучать, и она сглотнула набежавшую слюну.
 
-Tsukigaki was still young and couldn’t fly, but there have been many times she was allowed to ride Renri’s  Kazenui<sup><a href="#Prim1">1</a></sup>, Fizel's Himawari and Linel's Hinageshi<sup><a href="#Prim2">2</a></sup>. As expected it was scary for the first one or two times, but the pleasant feeling of flying through the air soon grew above fear. However, she never thought of flying in the sky by herself, or specifically with the artificial dragon made of metal, moreover, flying inside of it rather than riding on the back, so a feeling of incongruity completely engulfed her. _In the first place, there are no wings for flapping, so how would it return to the ground anyway after taking off?_
+Цукигаки всё ещё был молод и потому пока не летал, но ей много раз позволялось летать верхом на Казенуи<sup><a href="#Prim1">1</a></sup> Ренри, Химавари Физель и Хинагеши<sup><a href="#Prim2">2</a></sup> Линель. Как и ожидалось, первые пару раз было страшно, но вскоре великолепное ощущение полёта во воздуху превысило страх. Однако, она никогда не думала о полёте в небе самой по себе, или даже с помощью рукотворного металлического дракона, более того, лететь в нём самом вместо того чтобы сидеть верхом на его спине, так что её охватило всеобъемлющее чувство неуместности происходящего. _Да и вообще, у него же крылья не машут, как он приземляться-то собирается?_
 
-That moment she again remembered the scene where Version 1 exploded and after calming down her trembling body she asked.
+И тогда она снова вспомнила, как громко и ярко взорвалась Версия 1, и ей пришлось успокоить дрожь во всём теле, прежде чем она спросила.
 
-"Ah ... that, Кирито-сенпай."
+"А... это, Кирито-сенпай."
 
-"What's it?"
+"Что такое?"
 
-Ронье bent ahead and asked the Премьер-Мечник who returned relaxed voice from the front seat.
+Ронье нагнулась вперёд и спросила Премьер-Мечника, который расслаблено откликнулся с переднего сидения.
 
-"Like the previous dragon, this one releases its thermal energy to fly, right?"
+"Как и предыдущий дракон, этот летит, выпуская термальную энергию, так?"
 
-"That's right."
+"Именно."
 
-"In the early morning, if you fly in the sky with a loud sound like the one before, won’t people in the capital be surprised and scared...?"
+"Ног сейчас раннее утро, если мы полетим по небу с таким же громким звуком, как раньше, разве это не удивит и напугает людей в столице...?"
 
-"I guess it could be the case......."
+"Полагаю, такое возможно......."
 
-After nodding, Кирито continued in a little difficult to understand words.
+Кивнув, Кирито продолжил словами, понять которые было не так уж просто.
 
-"But since the length of the runway is not enough here in the first place, we cannot take off horizontally. Which means, for Version 2 taking off and landing, unfortunately, we’ll have to cheat a bit."
+"Но поскольку нам здесь всё равно не хватит длины взлётной полосы, горизонтально взлететь не получится. Что значит, для того чтобы поднять и посадить Версию 2, придётся почитерить, хоть это и нечестно."
 
-"Chee… cheat...... a... bit...?"
+"По… чите...... рить... придётся...?"
 
-Кирито did not reply to that question but only laughed, and then firmly grasped two metal rods placed in the front of the chair. His hands began to suddenly emit light, and Ронье breathed in.
+Кирито не ответил, а только рассмеялся, а затем крепко сжал два металлических стержня, расположенные  перед сиденьем. Его руки начали внезапно излучать свет, и Ронье втянула воздух.
 
-It was not the light of a sacred art. Кирито's will, directly connected to the matter of the world itself, was visible as light. In other words, it was the radiance of incarnation<sup><a href="#Prim3">3</a></sup>.
+Этот свет был не от священного искусства. Воля Кирито, напрямую воздействуя на саму сущность мира, изливалась светом. Другими словами, это было сияние инкарнации<sup><a href="#Prim3">3</a></sup>.
 
-The steel dragon shivered like a living thing. Immediately afterwards, the feeling of the body getting lifted away arrived.
+Стальной дракон задрожал, словно живой. Сразу после этого, пришло чувства, что тело поднимается вверх.
 
-Ронье hurriedly looked out through the glass lid. The gray cobblestones and figures Тейза, Асуна and others were slowly moving away. Кирито was lifting the huge machine dragon entirely with the incarnation power.
+Ронье поспешила выглянуть сквозь стеклянную крышу. Серый булыжник вместе с фигурами Тейзы, Асуны и других медленно удалялся вниз. Кирито поднимал огромного Искусственного Дракона, используя исключительно свою инкарнацию.
 
-Watching the ground Ронье was thinking that this was certainly a cheating. As the rising speed increased, the size of those seen outside decreased accordingly. Eventually the white morning haze concealed them, the rose garden spreading north of the arsenal and the white wall of Собор occupied the sight.
+Смотря на удаляющуюся землю, Ронье думала, что это определённо нечестно. Когда скорость подъёма возросла, размер людей по ту сторону стекла сильно уменьшился. В какой-то миг утренняя дымка скрыла их, и всё поле зрения заполнил розарий, разросшийся на север от арсенала и белые стены Собора.
 
-She put both hands together and looked straight ahead; the dark-blue before dawn sky had spread far and wide. Ронье lost her words to the beauty of the horizon that was starting to slowly illuminated with red.
+Она сложила руки и стала смотреть вперёд, где тёмно-синее предрассветное небо раскинулось вдаль и вширь. Ронье лишилась слов, глядя на красоту начинавшей потихоньку розоветь линии горизонта.
 
-When the dragon had risen as high as the large public bath on Собор’s ninetieth floor, it stopped the elevation and began to move horizontally. It was quite different from the powerful flapping of the real dragons, more like gliding on the water surface. Nothing else could be heard than a low humming wind noise. This way the citizens of Centoria would not notice them unless they were looking up at the sky at dawn.
+Когда дракон поднялся на высоту большой общественной ванны на девяностом этаже Собора, он перестал подниматься и начал двигаться горизонтально. Это движение сильно отличалось от мощных взмахов драконьих крыльев, скорее напоминая скольжение по воде. Не доносилось никаких звуков кроме низкого гудящего шума ветра. Так граждане Центории не заметят их, ну разве что кто-то станет смотреть прямо в небо.
 
-But as soon as one concern cleared up, another one came to her head.
+Но как только одна проблема была решена, её стало волновать другое.
 
-"...... Кирито-сенпай, will you be fine as you move such a big thing with the power of incarnation?"
+"...... Кирито-сенпай, а вы будете в порядке, двигая такую громадину одной лишь силой инкарнации?"
 
-After asking the one in the front seat, she panicked if she had disturbed the Кирито’s concentration, but soon the answer was returned with an unchanged tone.
+Спросив сидящего на переднем сидении, она запаниковала, не нарушила ли часом концентрацию Кирито, но вскоре она услышала ответ, произнесённый не изменившимся голосом.
 
-"Well, for a while I will. But it is hard to fly this way as you leave Мира Людей."
+"Ну, какое-то время, буду. Но так лететь будет сложновато, когда мы покинем Мир Людей."
 
-"Oh, I see......"
+"О, я понимаю......"
 
-Again, she was amazed by the unrelenting willpower of the Мира Людей Премьер-Мечник.
+И вновь она поразилась несокрушимой силе воли Премьер-Мечника Мира Людей.
 
-Ронье also practiced as a knight trainee, but not only practical results of "Standing straight on the top of a pillar" which required standing on a thin pillar with one foot, "Controlling the created element" teaching of handling the element created in the air with pure will, but even "Tanza mind emptying" which is basically just sitting on the floor and trying to get rid of all the thoughts — could hardly proceed to the next stage.
+Ронье тоже практиковалась, будучи учеником рыцаря, но её практические достижения не только по "Стоянию смирно на вершине шеста", предполагавшем стояние на одной ноге на вершине тонкого металлического шеста, или "Контролю над созданным элементом", обучавшим обращению с новосозданным элементом одной лишь силой воли, но даже и в "Очищении разума в тандзе", которое по сути было просто сидением на полу в попытках отчистить свой разум от всех мыслей — и близко не достигли перехода на следующий уровень.
 
-Even for the senior knights like Фанатио or Дюсольберт, trainings only included secret incarnational techniques like "Arm of Mind" allowing to move things of the size of about a dagger with one’s will and "Blade of Mind" which swings invisible blade, so Кирито's incarnation allowing humans to freely flight a huge machine dragon that carries a human rider was way beyond of normality.
+Даже тренировки старших рыцарей, таких как Фанатио или Дюсольберт, включали лишь секретные инкарнационные техники "Рука разума", позволявшую двигать силой воли предметы размером с кинжал, и "Клинок разума", позволявшую взмахнуть невидимым мечом, так что инкарнация Кирито, позволявшая летать на громадном Искусственном Драконе, была просто за гранью нормальности.
 
-"...... Even with such a strong сенпай’s mind power, the "end wall of the world" can still not be crossed...."
+"......И даже такая сила разума сенпая всё ещё не позволяет преодолеть "стену конца мироздания"...."
 
-When Ронье muttered that, Кирито nodded with a bitter smile.
+Когда Ронье пробормотала это, Кирито кивнул с горькой улыбкой.
 
-"Maybe it’s due to a lack of training, but... but it is still meaningless if in the end only I can cross the "wall". In the future it is necessary to set up scheduled flights via large dragons, or make a mechanism like a Собор elevator so that all the inhabitants of the Тёмной Территории... no, entire Underworld can freely come and go."
+"Может быть это из-за недостатка тренировки, но... но это всё равно останется бессмысленным, если только я смогу преодолеть "стену". В будущем нам нужны будут большие драконы, совершающие регулярные перевозки, ну или механизм наподобие лифта в Соборе, так чтобы все жители Тёмной Территории... нет всего Подмирья, могли по желанию прибывать и отбывать."
 
-Ронье looked out the window, astonished by Кирито's idea of attaching an elevator to the "end wall of the world", height of which was not known to anyone, but she thought she is getting used to this feeling of astonishment.
+Ронье взглянула в окно, поражённая идеей Кирито прицепить лифт к "стене конца мироздания", даже высота которой — и то была никому не известна, но ей подумалось, что она начала привыкать к этому чувству потрясения.
 
-The machine dragon seemed to have passed through the city of East Centoria unnoticed, and fields and meadows covered with snow that had fallen a while ago spread before her eyes. Although it was still a cold view, wheat will start to grow in March, the ground will be covered with new green.
+Походе, Искусственный Дракон покинул пределы Восточной Центории незамеченным, и перед её глазами раскинулись поля и луга, покрытые давно выпавшим снегом. Выглядело довольно холодно, но скоро в марте начнёт расти пшеница, и земля покроется молодой зеленью.
 
-Ронье had been imagining that view for a while, then asked a new question.
+Ронье какое-то время представляла себе этот вид, а потом задала новый вопрос.
 
-"Oh, сенпай...... Even if we cannot go over "end wall of the world" eventually, wouldn’t it be good to have people from Тёмной Территории moved to Мира Людей? There are a lot of non-cultivated lands in the Мира Людей, I think there is still room to make new fields and villages yet...."
+"О, сенпай...... Даже если мы так и не сможем преодолеть "стену конца мироздания", разве не здорово было бы, чтобы жители Тёмной Территории переместились в Мир Людей? В Мире Людей достаточно некультивированных земель, я думаю, места на новые деревни и поля хватит...."
 
-This time, Кирито did not answer for a while.
+На этот раз Кирито молчал довольно долго.
 
-Eventually, she heard a voice low like a muttering.
+Наконец, она услышала голос, тихий, словно выдох.
 
-"If people of Мира Людей all think like Ронье......."
+"Если бы все жители Мира Людей думали так же как Ронье......."
 
-"Er... what do you mean...?"
+"Э... что вы имеете в виду...?"
 
-"Hmm....... Well, yes, we currently estimate the total population of Мира Людей around 82,000. Per recent reports, Dark World seems to be about the same. The area of Мира Людей is about 1.77 million square kilolu, since more than a half of them are undeveloped forests and wilderness, certainly Ронье is right, even if the population doubles or becomes even more, there is no problem at all from the land's perspective...... I think."
+"Хмм....... Ну, вот, на данный момент мы оцениваем общее население Мира Людей около 82 000 человек. Согласно последним отчётам, у Тёмной Территории примерно столько же. Площадь Мира Людей около 1.77 миллиона квадратный килолу, и более половины из них занимают неразработанные леса и пустоши, так что Ронье определённо, даже если население удвоится, или даже станет ещё больше, с точки зрения доступной земли проблем не возникнет...... я думаю."
 
-Among that words, certain information came as a big surprise for Ронье.
+Определённая информация, проскользнувшая среди этих слов, сильно удивила Ронье.
 
-"Err....... You say the total population of Dark World is around eighty thousand!? But at the time of a Foreign World War, didn’t emperor Vector prepare as many as fifty thousand army?"
+"Эм....... Вы говорите, что общее население Тёмной Территории около восьмидесяти тысяч!? Но ведь во время Войны с Внешним Миром, разве Император Вектор не собрал армию, не менее пятидесяти тысяч?"
 
-"Do not be surprised like that....... In Dark World, as Фанатио-сан says, everyone who can fight should become a soldier, but yeah, I agree at any rate it is a terrible story. However, that is surely the custom of Тёмной Территории. It's kind of world that you simply cannot survive unless you fight and rob."
+"А чего тут удивляться....... В Тёмной Территории, как говорит Фанатио-сан, каждый, кто способен сражаться, становится солдатом, но да, я согласен, как не посмотри, ужасная история. Однако, таков обычай Тёмной Территории. Этот тот мир, где нельзя выжить, не убивая и не грабя."
 
-Кирито cut off words and put his body to the back of the chair. The concentration of consciousness broke off for a moment, the dragon shook slightly, but then immediately regained stability.
+Кирито прервался и снова откинулся на спинку сидения. Концентрация сознания на какое-то время нарушилась, и дракон несильно задрожал, но затем вновь обрёл стабильность.
 
-"...and just like in Тёмной Территории, people of Мира Людей have common mindset built for over 300 years. The inhabitants of Тёмной Территории are horrible monsters, going across the Mountain Range at the Edge and stealing children and livestock. The flow of tourists and merchants traversing between the two worlds are increasing little by little, but the mindset of people does not change that easily. Even if I try to bind them with a new law or taboo, instinctive fear and disgust will not disappear..."
+"...и так же, как и в Тёмной Территории, у жителей Мира Людей тоже за 300 лет выработалось общее мировоззрение. Жители Тёмной Территории — ужасные чудовища, что пересекая Горную Гряду-на-Грани, воруют детей и скот. Поток туристов и торговцев, циркулирующий между двумя мирами, мало-помалу увеличивается, но вот мировоззрение людей так просто не изменить. Даже если я попытаюсь их связать новым законом или табу, инстинктивный страх и отвращение никуда не денутся..."
 
-His voice trembled with deep sadness, and Ронье did not have a good answer.
+Его голос задрожал от глубокой грусти, и Ронье не могла подобрать верных слов.
 
-_Кирито was the one having a power of incarnation enough to float a huge metal dragon, the one defeated Highest Priest Administrator and Тёмной Территории emperor Vector, but he was never a god. He was a human being — suffering, hesitating, worrying just like me, simply born in a different world.  
-Кирито always stood up no matter how bad he got and saved the Underworld from the danger of annihilation; he has not been honored for this officially but he’s still struggling for our world even now. I wish I’d have his strength enough to trying to extend my hand to the far-reaching goal of the harmony between Мира Людей and Тёмной Территории that nobody could have imagined before_ — but Ронье who was one of the best to imagine the steepness of that road, could not give any adВице-to him.
+_Кирито — этот тот, у кого хватает силы инкарнации, чтобы лететь на огромном металлическом драконе, кто победил Первосвященника Администратор и Императора Тёмной Территории Вектора, но ни в коем случае не бог. Он просто человек — страдающий, сомневающийся, волнующийся, прямо как я, только рождённый в ином мире.  
+Кирито всегда поднимался, неважно, какой бы крутой оборот не принимало дело, и поэтому он спас Подмирье от полного уничтожения; его за это никто не чествовал официально, но даже сейчас он продолжает бороться за этот мир. Хотела бы я иметь его силы, достаточную, чтобы протянуть руку к недостижимой цели, гармонии между Миром Людей и Тёмной Территорией, которую раньше никто и представить не мог_ — но Ронье, одна из тех, кто лучше других понимал всю сложность этого пути, не могла дать ему подходящего совета.
 
-Although they came to this topic spontaneously, there would be no way of this sad dialogue occurring should she not accompany him...... but the moment she felt depressed, Кирито said as though he had sensed it.
+Хотя они пришли к этой теме внезапно, такой печальный диалог был бы невозможен, не напросись она с ним вместе...... но в тот момент, когда она уже почувствовала депрессию, Кирито сказал, словно бы ощутив это.
 
-"I’m glad that Ронье came along. I would be frightened by those children there if it was my first time meeting them."
+"Я рад, что Ронье присоединилась ко мне. Те дети напугали бы меня, если бы я видел их в первые."
 
-"Oh ... is that so?"
+"О... правда?"
 
-"It seems, there are various ways rumors take to reach our minds...... but they still remain senseless because we finished the war that way..."
+"Похоже, есть много путей, по которым ядовитые слухи попадают в наш разум...... но всё это неважно, ведь мы закончили войну так, как закончили..."
 
-She breathed out lightly, and Кирито said in a different, clear voice as if switching his feelings off.
+Ей немного полегчало, и Кирито сказал другим, чистым голосом, словно бы отключив свои чувства.
 
-"Well, now that we’re away from Centoria, let’s switch from incarnational flight to elemental flight."
+"Так, мы уже далеко от Центории, пора перейти с инкарнационного на элементальный полёт."
 
-"Yes, please!"
+"Да, пожалуйста!"
 
-After nodding vigorously, she asked the front seat.
+Энергично кивнув, она спросила со своего места.
 
-"Well, what should I do...?"
+"Ну, а мне что делать...?"
 
-"Just keep your connection to elements and watch their state like during the first test flight, and please let me know if anything is going to happen."
+"Просто поддерживай свою связь с элементами, как во время первого проверочного полёта, и пожалуйста, сообщи мне если что-то начнёт происходить."
 
-"I understood!"
+"Поняла!"
 
-Кирито heard Ронье’s voice and showed her thumb up, then grasped two metal bars with both hands. He continued with sacred art initiation phrase.
+Кирито услышал голос Ронье и показал ей большой палец вверх, потом схватил два металлических стержня обеими руками. Он продолжил фразой, запускающей священное искусство.
 
-"System Call, Generate Thermal Element"
+"Систем Колл, Дженерейт Термал Элемент."
 
-Both hands of Кирито glow red and it looked like thermal elements are generated one after another inside hollow metal pipes. They were manipulated by incarnation through the pipe and placed in the sealed can in the middle of the dragon.
+Обе руки Кирито осветились красным, и было похоже, что термальные элементы один за другим генерируются внутри полых трубок. С помощью инкарнации огни были по трубкам перемещены в запечатанный бак в середине Искусственного Дракона.
 
-It seemed, even for the Премьер-Мечник, it was not that easy to simultaneously control the giant dragon and small elements at the same time, as the dragon began to shake again. Suddenly Ронье, not quite realizing what she was doing, bent forward and put her hands onto Кирито’s shoulders.
+Похоже, даже для Премьер-Мечника было не так легко одновременно контролировать громадного дракона и мелкие элементы, так как дракон снова начал дрожать. Внезапно Ронье, не отдавая себе отчёт, наклонилась вперёд и положила свои руки на плечи Кирито.
 
-She did not cast any art, but there was a feeling that the flow of the sacred power spiraling in the surrounding space calmed down a little. The tremor of the dragon decreased and ten thermal elements fit firmly into the sealed can.
+Она не зачитала никакого искусства, но почувствовала, что течение святой силы, кружащейся в окружающем пространстве, немного поутихло. Дрожание дракона прекратилось, и десять термальных элементов оказались надёжно помещены в запечатанный бак.
 
-"Thank you, Ронье"
+"Спасибо, Ронье."
 
-Кирито gently tapped Ронье's right hand, slowly breathed in and whispered.
+Кирито легонько коснулся правой руки Ронье, медленно вдохнул и произнёс.
 
-"Discharge"
+"Дисчардж."
 
-Hot elements discharged in the sealed can created a tremendously powerful flame.
+Термальные элементы разрядились в запечатанном баке, создавая сильнейший поток огня.
 
-The flame pushed out from the can to the rear part of the machine dragon driven by its own pressure. In the middle of the way, it mixed with the airstream of aerial elements placed in another can before takeoff, got compressed and blasted out from rear nozzles as a straight torrent much alike to the flame of real dragons.
+Яростное пламя, влекомое собственным давлением, метнулось из бака, стоило лишь дать ему такую возможность, в заднюю часть Искусственного Дракона. В середине пути оно смешалось с потоком воздуха от воздушных элементов, размещённых в отдельном баке перед взлётом, что вызывало дополнительную компрессию, и прямым потоком вырвалось из задних дюз, весьма напоминая пламя настоящих драконов.
 
-The intense acceleration pressed Ронье’s body hard against the chair pushing air outside of her lungs.
+Резкое ускорение жёстко вжало тело Ронье в сиденье, выдавив воздух из лёгких.
 
-Clouds drifting outside the window rushed backwards. Comparing only the speed, it was faster when they flew from Центральный Собор to the guards’ office in South Centoria using Кирито's aerial elements flight technique, but the dragon was at that moment under little control of incarnation. In other words, if a high-level cleric trains enough, they could become able to fly as fast as Кирито.
+Тучи, плывущие за окном, дёрнулись назад. Сравнивая только скорость, это было ещё быстрее, чем когда они летели от Центрального Собора к отделению стражи южной Центории, используя технику полёта на воздушных элементах Кирито, но в этот момент дракон практически не управлялся инкарнацией. Иначе говоря, если высокоуровневые клерики будут достаточно тренироваться, они смогут летать так же быстро как Кирито.
 
-Rather than challenging the "end wall of the world", perhaps, that's more important...... thought Ронье for a moment, as vibrating thunderous roar filled the narrow room. She shouted out loudly holding the frame of the chair hard.
+_Чем испытывать "стену конца мироздания", возможно, более важным......_ задумалась Ронье на секунду, в то время как вибрирующий рёв заполнил собой узкое пространство кабины. Она громко выкрикнула, вцепившись в металлические ручки кресла.
 
-"Se...... сенпай! This dragon, how fast is it flying now!?"
+"Се...... сенпай! Этот дракон, как быстро он сейчас летит!?"
 
-"Hmm, let’s see."
+"Хммм, посмотрим."
 
-Кирито replied with a voice that did not show any tension.
+Кирито ответил тоном, в котором вообще не чувствовалось напряжения.
 
-"The highest speed of an Integrity Knight’s dragon is roughly 120 kilolu per hour, and if one has to fly long distances without problems, then you have only about 80 kilolu per hour. But I guess this guy is currently having 250 kilolu per hour..."
+"Максимальная скорость полёта драконов Рыцарей Целостности около 120 килолу в час, а если требуется успешно покрыть большое расстояние, то не превысишь и 80 килолу в час. Ну а этот парень сейчас делает около 250 килолу в час..."
 
-"Er...... twi… twice as fast as a real dragon!?"
+"Э...... два… в два раза быстрее настоящего дракона!?"
 
-"I think it can go up to 300 kilolu if I push it down the floor. But I was told by grandpa Садоре to keep around 80% at all times"
+"Думаю, если, так сказать, надавить в пол, будет и 300 килолу. Но дедуля Садоре сказал держаться на 80% и не выше."
 
-While saying that, Кирито pointed to one of several disks lined up in front of his chair. The attached needle certainly trembled slightly before the upper limit of the scale.
+Говоря это, Кирито указал на один из нескольких дисков, выстроившихся спереди от его сидения. Прикреплённая стрелка определённо дрожала немного  не доходя до верхнего предела шкалы.
 
-"Three… three hundred kilolu in one hour..."
+"Т-три сотни килолу в час..."
 
-Ронье repeated that shaking her head again and again, trying to comprehend such speed.
+Ронье повторяла это, снова и снова тряся головой, пытаясь осознать такую скорость.
 
-_Now I understand, yes, if the machine dragon can fly that fast and far away from the ground ── it would take just half a day to arrive to Obsidia Castle that lies in 3,000 kilometers away. Then, there could also be nobody able to attack such a machine dragon soaring at this ridiculous speed.  
-And also, beyond that there’s a huge benefit of…_ thinking in such a way, Ронье finally got used to surrounding rhythmic vibrations.
+_Теперь я понимаю, да, если Искусственные Драконы могут летать так быстро и так далеко от земли ── то хватит всего лишь пол-дня чтобы добраться до замка Обсидия, лежащего за 3 000 килолу. А ещё, никто не сможет напасть на Искусственного Дракона, проносящегося на такой безумной скорости.  
+К тому же, ещё это даёт громадное преимущество для…_ мысля в таком русле, Ронье, наконец, привыкла к окружающим ритмическим вибрациям.
 
 ***
 
-About fifteen hours have passed since they crossed the Mountain Range at the Edge and started flying the red sky of Тёмной Территории.
+Около пятнадцати часов прошло с того момента, как они пересекли Горную Гряду-на-Грани, начав лететь в тёмно-красном небе Тёмной Территории.
 
-Despite they made two breaks, buttocks and backs already began to hurt, but that moment Кирито pointed ahead.
+Несмотря на два перерыва, которые они сделали, ягодицы и спины уже начали болеть, но тогда Кирито указал вперёд.
 
-"I see it."
+"Вижу."
 
-Looking over Кирито's shoulder, she saw a faint light ahead on the ground already covered with darkness. At first it was only a blurred point, but as they got closer it turned into countless lights.
+Смотря через плечо Кирито, она увидела слабый свет впереди на земле, уже укутанной тьмой. В начале это была просто размытая точка, но когда они приблизились, она превратилась в бессчётные огни.
 
-"That is...... the capital of Тёмной Территории, Obsidia..."
+"Это...... столица Тёмной Территории, Обсидия..."
 
-After mumbling so with a hoarse voice, Ронье asked the Премьер-Мечник.
+Прошептав это хриплым голосом, Ронье спросила Премьер-Мечника.
 
-"...... Кирито-сенпай, have you been there?"
+"...... Кирито-сенпай, а вы там были?"
 
-"Yeah, only once. However, because it was an informal visit, I could hardly see the insides of the castle or the capital city."
+"Да, но только однажды. Однако, поскольку визит был неформальный, я едва ли смог насладиться убранством замка и красотами города."
 
-"It seems to be alike again this time..."
+"Походе, что и в этот раз будет так же..."
 
-Ронье's words sounded disappointing, but Кирито turned back and finally laughed.
+Слова Ронье звучали разочарованно, однако Кирито обернулся к ней и рассмеялся.
 
-"No, let alone this time it’s informal, to the degree that we did not even contact Исукан. So, something tells me we’ll have a chance of doing it."
+"Нет, пускай и в этот раз визит весьма неформальный, до такой степени, что мы даже не предупредили Исукана, но что-то говорит мне, что шанс у нас будет."
 
-"Something… tells you...?"
+"Что-то… говорит вам...?"
 
-She looked outside the window again trying to push down the well-known "bad feeling" that occurred at a considerable frequency when anyone interacted with Кирито.
+Она вновь посмотрела в окно, стараясь игнорировать небезызвестное "дурное предчувствие", с завидной регулярностью  возникавшее у всех, кто так или иначе контактировал с Кирито.
 
-The machine dragon has reduced the speed to less than half, but still the city light ahead remained somewhat blurred.
+Искусственный дракон сбросил скорость больше чем в половину, но городские огни вдали всё ещё оставались размытыми.
 
-Unlike the circularly organized city of Centoria, countless lights were gathered in a shape of a crescent without any regularity. Behind them, a huge black rock rose like a spear.
+В отличие от круговой организации Центории, бессчётные огни без какого-либо порядка скучились в форме креста. За ними чёрным копьём рвалась в небо громадная чёрная скала.
 
-A lot of lights lit up the rock, because that was the former emperor Vector's castle Obsidia. It seemed that it was dug out in a huge rocky mountain to finally obtain its current castle shape over an enormous number of years, no less than Axiom Church's Центральный Собор ─ so only its outline was visible in the darkness.
+Скалу подсвечивало много огней, потому что это был замок бывшего Императора Вектора, Обсидия. Походе, его в течение множества лет выдалбливали прямо в скалистой горе, пока он не принял свою нынешнюю форму замка, а размером не догнал Центральный Собор Церкви Аксиом ─ и поэтому во тьме виднелись лишь его контуры.
 
-"It's about 10 kilolu remaining... All right, it's time to switch to incarnational flight and land."
+"Осталось примерно 10 килолу... Хорошо, пора переключиться на инкарнационный полёт и приземлиться."
 
-Surprised with the words of Кирито, Ронье asked back.
+Удивившись словам Кирито, Ронье спросила в ответ.
 
-"Why are we going to get off that far?"
+"Почему мы выходим так рано?"
 
-"Well, it's going to make a fuss if we go down to the city or castle suddenly with this guy..."
+"Ну, просто если мы с этим парнем приземлимся в городе или в замке, поднимется ненужная шумиха..."
 
-Answering so, Кирито grasped a metal rod that seemed to be a "control stick" and gradually attenuated the thermal elements flame in the sealed can with incarnation. A roaring sound that was filling the small room (which is also officially called "cockpit") became quieter and finally disappeared.
+Ответив так, Кирито схватил металлический штырь, который был, видимо, "рукоятью управления" и с помощью инкарнации аккуратно погасил пламя термальных элементов в запечатанном баке. Рычавший звук, наполнявший небольшое помещение (которое официально называлось "кабина") начал затихать и наконец, полностью исчез.
 
-Кирито's incarnation strongly supported the machine dragon which lost propulsion and started to descend. While it was descending, nervousness did not leave Ронье and she was strongly gripping the frame of the chair in both hands.
+Инкарнация Кирито уверенно поддерживала Искусственного Дракона, потерявшего тягу и начавшего снижение. Пока он снижался, Ронье не оставляла нервозность и она сидела, обеими руками вцепившись в металлический каркас сидения.
 
-_When we return to Centoria, I’ll ask them to install a handle to hold on the back of a chair......_ thought Ронье endured a steep falling feeling quite different from one experienced in Собор's elevator. Eventually the machine dragon stopped with a small impact, Кирито stretched out greatly in the front seat and said.
+_Когда вернёмся в Центорию, надо будет попросить их, чтобы установили ручку на спинке сидения......_ подумала Ронье, борясь с ощущением свободного падения, сильно отличавшегося от аналогичного в плавном лифте Собора. Наконец, искусственный дракон с некоторым ударом остановился, и Кирито от души потянулся на переднем сидении и сказал.
 
-"That's it, Ронье. From here we will fly by human power."
+"Вот и всё, Ронье. Отсюда полетим своими силами."
 
 ***
 
-Two swords, one large and one small bag, a human called Ронье and heavy baggage of one — embracing this all with both his arms, Кирито quickly moved the distance of 10 kilometers by aerial elements flight technique. He mentioned that the limit distance he can fly in a stable way in Тёмной Территории where spatial sacred power had been sparse, was ten kilolu.
+Два меча, одна большая и одна маленькая сумка, одна человеческая единица по имени Ронье, а также её тяжёлый багаж — обнимая всё это обеими руками, Кирито быстро преодолел дистанцию в 10 килолу с помощью техники полёта на воздушных элементах. Он упомянул, что предельное расстояние, которое он мог стабильно пролететь по Тёмной Территории, где пространственные ресурсы были весьма разряжены, было как раз десять килолу.
 
-During the flight she was inevitably in close contact with Кирито, so her heart pounded at first, but since the treatment and hanging sideways within his arms was completely the same as those of luggage, the heartburn in her chest could not help being dramatically extinguished.
+Во время полёта она, естественно, была плотно прижата к Кирито, так что в начале её сердце билось сильно и часто, но поскольку мотание из стороны в сторону в его руках, да и отношение вообще никак не отличались от обычного багажа, жару в её груди пришлось затухнуть.
 
-They landed on the broad road that led to Obsidia castle town. The cobblestone was polished as marble, as in the daytime numerous humans, sub-humans, and carriages were going one after another, but at that time that would probably be after 10 o'clock in the evening there was no shadow there.
+Они приземлились на широкую дорогу, ведущую в город при замке Обсидия. Булыжник был отполирован как мрамор, поскольку днём много людей, суб-людей, а также повозок, проходили плотным потоком, но в то время, около 10 часов вечера, на дороге не было ни тени.
 
-As Ронье was usually in bed by that time, as soon as her feet touched the ground, she was attacked by intense sleepiness coupled with tiredness of a long journey, but shaking her head a lot helped fighting it away. Her escort mission begins from this moment ────
+Ронье к этому времени обычно уже была в постели, так что как только её ноги коснулись земли, на неё налетела сонливость вкупе с усталостью от долгого путшествия, и лишь долго тряся головой ей удалось отогнать это чувство. С этого момента начинается её миссия как эскорта ────
 
-Or, so she thought.
+Ну или так она думала.
 
-"So, let's look for an accommodation right away."
+"Так, давай-ка сперва найдём место где остановится."
 
-Кирито told such a thing while fixing the Sword of the Night Sky in the fastening on his left hip, and Ронье repeatedly blinked.
+Кирито сказал это, цепляя Меч Ночного Неба к креплению на своём левом бедре, и Ронье быстро заморгала.
 
-"Well... aren’t we going to the castle?"
+"А... а что, в замок не пойдём?"
 
-"The gate is already closed, and Исукан will also be sleeping soon. If guards find anyone sneaking in at such a time they surely think it is an assassin."
+"Ворота уже закрыты, да и Исукан уже скоро спать будет. Если стража найдёт кого-то, ошивающегося в округе, они явно решат, что это уюбийцу подослали."
 
-"...... certainly ......"
+"...... определённо......"
 
-Although they have traversed all the Underworld to cope with a mysterious murderer who took the life of the inn cleaner Yazen in South Centoria and tried to put the crime on the mountain goblin youth Oroi, if they are mistaken for assassins, it will not be a funny story.
+Хоть они и пересекли всё Подмирье чтобы справиться с таинственным убийцей, забравшего жизнь Язена, уборщика в таверне в Южной Центории, и попытавшегося переложить вину на юного горного гоблина Орои, если их примут за убийц, добром дело не кончится.
 
-"I understood. But the inn who can accommodate us being Мира Людей humans without any troubles..."
+"Поняла. Но таверна, которая бы без проблем согласилась обслужить жителей  Мира Людей..."
 
-Before answering, Кирито put his hands in his leather bag and took out something small. Looking down to it lit with the city lights, it seemed that it was a small bottle with a lid to keep ointment in.
+Прежде чем ответить, Кирито засунул руки в кожаную сумку и достал оттуда нечто маленькое. В свете городских огней это что-то выглядело, как маленькая ёмкость с крышкой, в которой хранят мазь.
 
-"Sorry, Ронье, please excuse me..."
+"Прости, Ронье, прошу меня извинить..."
 
-While saying this, Кирито opened the lid of the vial and took out the contents with a fingertip. That was the moment she moved her face closer.
+Говоря это, Кирито открыл крышку ёмкости и кончиком пальца извлёк оттуда содержимое. В этот самый момент, когда она придвинула лицо ближе.
 
-"Uni~a!"
+"**У\~нь\~я!**"
 
-Кирито's hand quickly approached and rubbed something sticky over her face, so Ронье screamed. On the face of Ронье, completely frozen because of surprise, Кирито spread the greasy patch with both hands. After passing through the forehead, cheeks, ears and under the chin, Кирито went one step away, looked at Ронье and nodded.
+Рука Кирито быстро приблизилась и размазала что-то липкое по её лицу, и Ронье вскрикнула. По лицу Ронье, полностью запершего от удивления, Кирито обеими руками размалывал жирное вещество. Пройдясь по лбу, щекам, ушам и под подбородком, Кирито отошёл на шаг назад, посмотрел на Ронье и кивнул.
 
-"Yeah, this looks good."
+"Да, вот так хорошо."
 
-"..............what… is this... thing..?"
+"..............что… это за... штука..?"
 
-She tried rubbing her face with her fingers, but the sticky feeling had disappeared, and nothing was sticking to her fingertips. Кирито did not reply, just once again took out ointment from the vial and painted it on his own face. His skin, averagely white as for a Мира Людей human, even though its color was naturally slightly darker compared with Ронье and Тейза both born in Norlangarth, was dyed in dark black.
+Она потёрла своё лицо пальцами, но липкое чувство исчезло, и на пальцах ничего не оставалось. Кирито не ответил, просто снова достал из ёмкости мазь и нанёс на своё лицо. Его кожа, обычно белая по меркам Мира Людей, даже пусть её цвет и был немного темнее в сравнении с Ронье и Тейзой рождёнными в Норлангарте, окрашивалось насыщенным чёрным.
 
-In just a few seconds, the face of Кирито turned into a color of kohiru tea<sup><a href="#Prim4">4</a></sup>. It was now of a Southacroith people color, no, even ones of Тёмной Территории......Thinking that far, she finally realized.
+Через несколько минут лицо Кирито цветом стало напоминать чай кохиру<sup><a href="#Prim4">4</a></sup>. Оно было теперь как у жителей Саутакройт, нет, даже как у обитателей Тёмной Территории......Дойдя в своих размышлениях до этого момента, до неё дошло.
 
-"Ah...... this thing is to disguise us as Тёмной Территории humans?"
+"А...... это чтобы замаскироваться под людей Тёмной Территории?"
 
-"Yep. Both Ронье’s and mine hair is dark, and its winter now, so I think that it will be impossible to distinguish if we also change the face color."
+"Угу. У Ронье и у меня волосы тёмные, и плюс сейчас зима, так что я думаю отличить нас, если мы сменим цвет лица будет нереально."
 
-Listening to that words, Ронье noticed that his face had been colored as well with both hands passing down the cheeks already. As Кирито who glanced at her face said that she was "cool, looking great" with a smiley face, she felt bottom of her palms got hotter.
+Слушая его слова, Ронье заметила, что его лицо, от лба до щёк, постепенно приняло окончательный цвет. Когда улыбающийся Кирито, осмотрев её лицо, сказал  "круто, отлично смотришься", она почувствовала как ладони потеплели.
 
-"Then, сенпай, I hop its washable, is it not?"
+"Тогда, сенпай, я надеюсь, это смоется?"
 
-She asked with a blunt sharp voice, and Кирито hurriedly frowned and nodded.
+Она спросила напрямик, и Кирито, посерьёзнев, кивнул.
 
-"Well, of course. Kutokonia-сан, a pharmacist, said it would naturally disappear in about eight hours."
+"Естественно. Кутокония-сан, аптекарь, сказала, что оно естественным путём исчезнет за восемь часов."
 
-"Naturally... what is it made of?"
+"Естественным... а из чего оно сделано?"
 
-"It seemed better to not know that."
+"Она сказала, лучше не знать."
 
-Having mumbled that last words, Кирито reached out his hands again, corrected Ронье's disturbed hair and turned his eyes to the east.
+Выдохнув последние слова, Кирито снова протянул руки, поправил потревоженную причёску Ронье и обратил взор на восток.
 
-In Centoria, there was a big gate and a guard room at the border of the city, but it seems that there is not such a thing in Obsidia outskirts, the building number gradually increased on both sides of the road and seemed to continue to the city as is. No guards could be seen.
+В Центории на границе с городом были большие ворота и отделение стражи, но, похоже, в окрестностях Обсидии подобного не было, просто по обеим сторонам дороги постепенно нарастало количество домов, пока это не превращалось в полноценный город. Стражи не было видно.
 
-"...... So far so good, I think, if anyone asks me for identity...... that's right, I came from Faldera to find a job in the northern fu... and let's say we’re brother and sister."
+"...... Пока что пойдёт, я думаю, и если кто спросит кто такие...... так, мы пришли из Фальдеры чтобы найти работу в северном фу... и скажем, мы брат и сестра."
 
-Ронье finally released both hands from cheeks and asked about unfamiliar words in Кирито’s phrase.
+Ронье наконец убрала руки от щёк и спросила про неизвестное слово во фразе Кирито.
 
-"Umm, what is Faldera...?"
+"Умм, а что такое Фальдера...?"
 
-"It's a city in the dark world in about 30 kilolu southwest from here."
+"Это город в Тёмной Территории примерно в 30 килолу на юго-запал отсюда."
 
-In truth, she wanted to know the meaning of the 'fu' that he mentioned before part of brother and sister, but enduring curiosity it a lot, Ронье nodded.
+По правде, ей хотелось бы ещё выяснить значение 'фу', упомянутого перед той частью про брата и сестру, но с трудом сдержав любопытство, Ронье кивнула.
 
-"I understand, let's go, сенпай."
+"Поняла, идёмте, сенпай."
 
-She covered head with a hood, took a long sword that has not been assigned a name yet from the top of the bag standing on the stone pavement and hung it on her waist. After that she reached for the bag, but Кирито lifted it a little too soon.
+Она закрыла голову капюшоном, подняла с сумки, стоящей на брусчатке, ещё пока не названный длинный меч и повесила его на поясе. После чего она потянулась за сумкой, но Кирито опередил её.
 
-"Ah...... сенпай, let me handle my own baggage myself..."
+"А...... сенпай, позвольте мне самой свой багаж..."
 
-"Oh no, I’m now your brother and you’re my sister. Your brother will bring his sister's luggage."
+"Не-не, я ведь твой брат, а ты моя сестра. Твой братик понесёт багаж своей сестрёнки."
 
-With a happy smile, Кирито took Ронье's bag in his right hand, hung his leather bag on his left shoulder and started walking. Ронье bothered her head as to what she should call Кирито when they enter the city and ran after him.
+Со счастливой улыбкой, Кирито поднял сумку Ронье правой рукой, повесил свою кожаную сумку на левое плечо и зашагал вперёд. Ронье, терзая себя, как же ей теперь называть Кирито когда они доберутся до города, побежала вслед за ним.
 
 ***
+
+### Продолжение завтра...
+
 
 After they had walked for a while in the late-night road, the surroundings gradually became bright, and at the same time the number of people and the sub-people passing by increased, so Ронье felt relief and tension at the same time.
 
-The Obsidia Castle Town which she saw for the first time, had most buildings made of dark stone, there were fewer trees and waterside, and it generally had a crowded feeling compared to Centoria. However, lanterns attached to the walls of the houses and pillars along the road had red, yellow and purple lights in spite of late night, so there was something like a festival atmosphere.
+The Обсидия Castle Town which she saw for the first time, had most buildings made of dark stone, there were fewer trees and waterside, and it generally had a crowded feeling compared to Centoria. However, lanterns attached to the walls of the houses and pillars along the road had red, yellow and purple lights in spite of late night, so there was something like a festival atmosphere.
 
 "What is burning in those lanterns?"
 
@@ -416,7 +419,7 @@ When a fist fighter who barely covered his sturdy upper body, even though it was
 
 "During the Foreign World War, the orc forces came to rescue an almost wiped out fist fighter group....... The "green swordsman" who led it, orcs are exalting her like a goddess."
 
-Ронье never met her, but she knew that the "green swordsman Leafa" who disappeared with the finish of the war was Кирито's sister from real world. Кирито’s painted dark face distorted as if he considered to cut it off for a moment but soon he returned to his usual expression and nodded.
+Ронье never met her, but she knew that the "green swordsman Leafa" who disappeared with the finish of the war was Кирито sister from real world. Кирито’s painted dark face distorted as if he considered to cut it off for a moment but soon he returned to his usual expression and nodded.
 
 "Yes...... It was the reason why we were able to get that treaty with Тёмной Территории so quickly, all thanks to Leafa without any exaggeration. That's why, we must protect this peace at all costs."
 
@@ -474,7 +477,7 @@ In the back of the sword belt that Ронье always wore, there was a thousand 
 
 Кирито stared at tents with a such face as if he had not given up even in these circumstances, and finally looked up at the gigantic castle piercing through the night sky.
 
-"It cannot be helped, let’s pray that Исукан is still awake and sneak into Obsidia castle......"
+"It cannot be helped, let’s pray that Исукан is still awake and sneak into Обсидия castle......"
 
 ── said her сенпай who mentioned a moment earlier that it would be tough if they got treated as assassins!
 
@@ -496,7 +499,7 @@ At least hostility was not felt in his voice, so Ронье ceased the alertness
 
 "Huh, Faldera is big, my old man is still over there."
 
-Listening to the word of the giant, Ронье chilled to the liver as it would be quite hard to start talking about memories of the city only known by name, but fortunately it did not develop that way. Fist fighter slammed Кирито's shoulder with a thick and heavy right hand as if fitted with leather gloves, and said generous thing.
+Listening to the word of the giant, Ронье chilled to the liver as it would be quite hard to start talking about memories of the city only known by name, but fortunately it did not develop that way. Fist fighter slammed Кирито shoulder with a thick and heavy right hand as if fitted with leather gloves, and said generous thing.
 
 "Yeah, lemme give a treat to fellow countryman."
 
@@ -504,7 +507,7 @@ Listening to the word of the giant, Ронье chilled to the liver as it would 
 
 Already regretting his acting, Кирито tried to refuse, but fist fighter pushed his back to the corner of the square. Кирито moved his legs reluctantly, and Ронье followed.
 
-It was the smallest and the most dimly-lit place among the six houses that the fist fighter led them to. The only thing that can be said for sure about the shopkeeper stirring a large pan of seasoning with a long ladle, with the majority of his face hidden with growing forelock, was that he is a human. The faded cloth hanging from the counter’s eaves’ corner bore the writing "Obsidia boil" with wry small letters, apparently it was the name of a dish.
+It was the smallest and the most dimly-lit place among the six houses that the fist fighter led them to. The only thing that can be said for sure about the shopkeeper stirring a large pan of seasoning with a long ladle, with the majority of his face hidden with growing forelock, was that he is a human. The faded cloth hanging from the counter’s eaves’ corner bore the writing "Обсидия boil" with wry small letters, apparently it was the name of a dish.
 
 "This place is the best in this square. Well, even though nobody of my friends agree!"
 
@@ -514,7 +517,7 @@ The drunk fist fighter laughed “**ga-ha-ha**”, and Кирито attempted to
 
 "All of them said so at first. Well, I dare you to try and don’t think you have been fooled. Hey, father, gimme three cups."
 
-He picked out three coppers from the pouch hung by the fist fighter’s belt and dropped them with a “**cha~linn**” sound a on dark long board. If the value of the coin is the same as that in Мира Людей, the mysterious “Obsidia boil” will be worth of ten shears, which was way too cheap as for a light street food.
+He picked out three coppers from the pouch hung by the fist fighter’s belt and dropped them with a “**cha~linn**” sound a on dark long board. If the value of the coin is the same as that in Мира Людей, the mysterious “Обсидия boil” will be worth of ten shears, which was way too cheap as for a light street food.
 
 The shopkeeper without any reply arranged three wooden bowls on the long board, poured with the sound of “**dobobo**” the contents of the pan with a long ladle, and accompanied the spoon of the same wood. Again, without saying a word, he collected coins and returning to his stirring work.
 
@@ -536,13 +539,13 @@ When Ронье asked with a loud voice, Кирито who ate a bite as well, wa
 
 Finally noticing that Ронье turned to him, Кирито shook his head.
 
-"Oh no, not quite....... There is a shop that serves similar dishes in the city I used to live. The shop owner resembles him either, but still it is...... The "boil" I know is something I was hardly able to eat because one had to fight though it’s spicy and sour and bitter and sweet tastes. But this Obsidia boil is orders or rather wraps tastes, making it indescribably mellow and......"
+"Oh no, not quite....... There is a shop that serves similar dishes in the city I used to live. The shop owner resembles him either, but still it is...... The "boil" I know is something I was hardly able to eat because one had to fight though it’s spicy and sour and bitter and sweet tastes. But this Обсидия boil is orders or rather wraps tastes, making it indescribably mellow and......"
 
 "Oh, so I see you tasted it, bro!"
 
 A fighter who reduced the contents of the bowl to as much as 30% already he hit the Кирито’s back vigorously. 
 
-"They say, from since the Imperial City of Obsidia was built, this Koitsu guy continues to add ingredients and simmer the soup for more than two hundred years every day. I guess this is not a Мира Людей cuisine, **ga-ha-ha**!"
+"They say, from since the Imperial City of Обсидия was built, this Koitsu guy continues to add ingredients and simmer the soup for more than two hundred years every day. I guess this is not a Мира Людей cuisine, **ga-ha-ha**!"
 
 "Tha… that's right......."
 
@@ -582,11 +585,11 @@ He stretched his spine and lowered his head deeply to a fist fighter sitting opp
 
 The fist fighter who had finished eating a long ago nodded with his smiling face.
 
-"When you find a nice job here and a day comes when you can eat Obsidia boil as much as you want, please give one to me... as they say..."
+"When you find a nice job here and a day comes when you can eat Обсидия boil as much as you want, please give one to me... as they say..."
 
 Rubbing the face gently with a thick palm, he kept on smiling.
 
-"...... It might be a bit difficult for you to find work for both brother and sister in Obsidia now, bro."
+"...... It might be a bit difficult for you to find work for both brother and sister in Обсидия now, bro."
 
 "Oh ... is that so? It is lively in the streets even at such time and it seems to be nice..."
 
@@ -598,11 +601,11 @@ Although Кирито seemed to be dealing fine with it for a moment, he immedia
 
 "This hooch is made by the flat goblin tribe that settled near the city recently. It is tasty, and because it is cheap like nothing at all, it sells great. The town liquor store is shabby and sales are falling, and the commercial guilds seem to be crisp. If it is before the war, the guard soldiers would attack the goblin village and kill them all, but now there is a Мирный Договор Пяти Народов......."
 
-"...... That is, as long as sub-humans move to Obsidia, humans will be robbed of work...?"
+"...... That is, as long as sub-humans move to Обсидия, humans will be robbed of work...?"
 
 "It's not just fault of sub-humans, the number of people is increasing considerably......That's what bro should see."
 
-In response to Кирито's question, the fighter shrugged his shoulders and answered, looking up at the dark sky.
+In response to Кирито question, the fighter shrugged his shoulders and answered, looking up at the dark sky.
 
 "If you came from Faldera I don’t need to tell you...... the land is just killing everything in this dark world. Humans and subhumans have always been suffering from hunger and thirst. Even the big war that ended the "era of iron and blood" began with a fight for a lake of some tribe’s origin..."
 
@@ -614,19 +617,19 @@ As soon as she heard the words, Ронье unintentionally strengthened her body
 
 "...Neither my small brother nor sister would not have survived till that age, but as Emperor Vector recovered a little over than a year ago, it was awesome excitement when I was attacking the Мира Людей. Finally, the time of legend came, we thought... ── But, Мира Людей Integrity Knights, rumors say, were worse than any monster...... Besides, then suddenly an army of a different world emerged. I did not understand anything, but the emperor was kidnapped by some swordsman of the Мира Людей, and the war was over......"
 
-Ронье looked at "some swordsman" next to her who had already cold sweat spreading over his forehead with a face more delicate than when he tasted Obsidia boil. A fist fighter who hopefully had no way of knowing the true identity of the young man sitting in front of him opened his mouth again slamming a spoon on the table.
+Ронье looked at "some swordsman" next to her who had already cold sweat spreading over his forehead with a face more delicate than when he tasted Обсидия boil. A fist fighter who hopefully had no way of knowing the true identity of the young man sitting in front of him opened his mouth again slamming a spoon on the table.
 
-"...If the war continued as rumors say, this time the God of the Тёмной Территории may have perished for good. So, there are no complaints about peace with Мира Людей, but it is also true that there is no hope of getting rich land someday left.... That is why goblins, orks and human youth are flowing into Obsidia...... They think here is fine, they say, they will be able to find a better life. However, no matter how much those hunkys are impatient, there is no infinite work appearing. Perhaps if you are a human being, you might be hired by a knights’ order.... but both bro and sis are a bit too weak, so ..."
+"...If the war continued as rumors say, this time the God of the Тёмной Территории may have perished for good. So, there are no complaints about peace with Мира Людей, but it is also true that there is no hope of getting rich land someday left.... That is why goblins, orks and human youth are flowing into Обсидия...... They think here is fine, they say, they will be able to find a better life. However, no matter how much those hunkys are impatient, there is no infinite work appearing. Perhaps if you are a human being, you might be hired by a knights’ order.... but both bro and sis are a bit too weak, so ..."
 
 Looking at the fist fighter sleepy winking drunken eyes directed towards two people, Кирито who seemed to be thinking once again, dropped his head down.
 
-"Thank you for everything, uncle. Obsidia boil, it was delicious ...... Someday, we’ll treat you."
+"Thank you for everything, uncle. Обсидия boil, it was delicious ...... Someday, we’ll treat you."
 
 "Oh...... Good luck, both of you……"
 
 Finally, they got up carefully as not to wake up a fist fighter who had fallen asleep earnestly.
 
-Overlooking the plaza, it seemed a group of goblins and orks had left unnoticed, and only a few drunk groups of fist fighters remained. Most of the counters are also starting to close, and only the shopkeeper who cooked Obsidia boil kept stirring the pot. It seemed like their chat of staying over there was becoming reality.
+Overlooking the plaza, it seemed a group of goblins and orks had left unnoticed, and only a few drunk groups of fist fighters remained. Most of the counters are also starting to close, and only the shopkeeper who cooked Обсидия boil kept stirring the pot. It seemed like their chat of staying over there was becoming reality.
 
 "... Well, aren’t we supposed to be looking for an inn?"
 
@@ -648,7 +651,7 @@ However, after listening to the story of a fighter, the colorful lights reflecte
 
 "This currency, "beck"<sup><a href="#Prim8">8</a></sup>. Is the value of one beck the same as one shear in Мира Людей?"
 
-"Ehm...? Oh, yes, I have such a feeling. The thing is that the cup of Obsidia boil is still quite cheap though..."
+"Ehm...? Oh, yes, I have such a feeling. The thing is that the cup of Обсидия boil is still quite cheap though..."
 
 "Well, I guess you would want to eat it again, сенпай?"
 
@@ -736,7 +739,7 @@ Sitting on the sofa that was standing by the wall, she carefully removed her sho
 
 _What really happens if my сенпай really comes to my house......_ she though and let her imagination to play for a while.
 
-_It would not be that Кирито's family is only his sister known as "green swordsman Leafa". In the real world she returned to, there should be parents, possibly other brothers and sisters, and friends. But until now, Кирито never spoke of his family.  
+_It would not be that Кирито family is only his sister known as "green swordsman Leafa". In the real world she returned to, there should be parents, possibly other brothers and sisters, and friends. But until now, Кирито never spoke of his family.  
 Does he want to go home…… I wonder is he thinks of this._
 
 There was no reason not to. Even Ронье, who had a family house in the same city of Centoria, sometimes wanted to see her parents and brother.
@@ -754,11 +757,11 @@ When she thought that far, the same strange feeling as when she saw the sign of 
 
 ## Примечания:
 
-1. <a name="Prim1"></a>風縫 – Wind Stich or Stiching Wind. 
-2. <a name="Prim2"></a>鄙消, “Rural Neutralizer” per kanji, but just like in case of Himawari (“Sunflower”) here it is probably meant to be a homonym to ひなげし which means “Poppy”.
-3. <a name="Prim3"></a>…which we also know as “overray”. However, here the Underworld term is used. 
-4. <a name="Prim4"></a>Кирито’s favorite Underworld flavor of tea. Comes from Southacroith. Pitch-black quite bitter liquid, normally other people add milk there. Reference from vol.11, ch.2.
-5. <a name="Prim5"></a>Кирито here falls back to Sacred Language (“sharing” and “storage”), probably referring to the Obsidia treasury.
+1. <a name="Prim1"></a>風縫 – Воздушный Стежок или Прошивающий Ветер. 
+2. <a name="Prim2"></a>鄙消, “Сельский Нейтрализатор” по кандзи, но как и в случае с Химавари (“Подсолнух”) здесь, скорее всего, имеется в виду омоним к ひなげし, что означает “Мак”.
+3. <a name="Prim3"></a>…которую мы также знаем под названием “оверрей”. Однако, здесь (в силу точки зрения Ронье) используется термин Подмирья. 
+4. <a name="Prim4"></a>Любимый подмирский сорт чая Кирито. Делается в Саутакройт. Весьма горькая совершенно чёрная жидкость, обычно другие люди добавляют в него молоко. Отсылка к т.11, гл.2.
+5. <a name="Prim5"></a>Кирито here falls back to Sacred Language (“sharing” and “storage”), probably referring to the Обсидия treasury.
 6. <a name="Prim6"></a>No it’s not a translator’s exaggeration, this person is literally presented as 巨漢 — a giant.
 7. <a name="Prim7"></a>Originally “onii-chan” but I don’t feel natural leaving an equivalent of “my dear big brother” coming from the “giant” fist fighter. His following phrases, along with Кирито’s ones when he tries to adjust to his talk, are adapted respectfully.
 8. <a name="Prim8"></a>ベック.

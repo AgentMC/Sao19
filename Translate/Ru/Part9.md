@@ -6,7 +6,7 @@ However, they did not open the doors of all the rooms. Кирито has a mighty
 
 For two hours they continued the search running down from floor to floor occasionally showing the coat of arms plate every time guards seen them.
 
-Finally, at the third basement floor, which was the lowest level of Obsidia castle and contained a large storehouse, Кирито closed the eyelids standing at the center of the passage crossing — and slowly shook his head.
+Finally, at the third basement floor, which was the lowest level of Обсидия castle and contained a large storehouse, Кирито closed the eyelids standing at the center of the passage crossing — and slowly shook his head.
 
 "No, they are not here either."
 
@@ -18,7 +18,7 @@ Looking at Кирито’s worried face, Ронье nervously asked him.
 
 "Ugh......... but that means that a hurt minion flew more than three kilolu in just two minutes..."
 
-"Th-three kilolu......? Do сенпай’s senses reach so far...?"
+"Th-three kilolu......? Do сенпая senses reach so far...?"
 
 "It depends on the target, but it's definitely about that if the opponent is the size of a minion with nothing around it. It’s 1.5 kilolu per minute, so ninety kilolu per hour...... I do not think minions that can fly at such a furious speed exist."
 
@@ -52,9 +52,9 @@ After keeping being silent for a while, Кирито answered, pausing after eac
 
 "Senseless! Whatever a reason is, it does not matter... I can’t even think of never meeting my сенпай again......!"
 
-She pushed her face straight into Кирито's chest. The silver coat of arms plate bit the forehead, but such a pain was nothing compared to the tearing apart aching in the chest.
+She pushed her face straight into Кирито chest. The silver coat of arms plate bit the forehead, but such a pain was nothing compared to the tearing apart aching in the chest.
 
-"For my entire life, to follow and serve my сенпай. I decided to stay at сенпай’s side forever. I do not want anything more than that.... But if сенпай is sacrificed, I will follow you as well. Let us be executed together!"
+"For my entire life, to follow and serve my сенпай. I decided to stay at сенпая side forever. I do not want anything more than that.... But if сенпай is sacrificed, I will follow you as well. Let us be executed together!"
 
 ![Image](/Translate/Img/p235.jpg)
 
@@ -74,7 +74,7 @@ As soon as she heard the words, tears flowed from Ронье’s both eyes. She 
 
 "............ Yes...... Yes......."
 
-Given up trying to say anything, Ронье just squeezed Кирито's body even stronger. Кирито had been stroking her head all the time until Ронье calmed down.
+Given up trying to say anything, Ронье just squeezed Кирито body even stronger. Кирито had been stroking her head all the time until Ронье calmed down.
 
 ***
 
@@ -108,7 +108,7 @@ This time it was Исукан who asked muttering Кирито.
 
 In the silence of the hall, the sound of the castle’s large front door closing sounded gravely.
 
-Not only the door itself but also the hinge around it seemed to have been carved off from obsidian, and the sound of heavy minerals rubbing each other was unique. It felt like she heard this sound reminding of a distant thunder recently, and Ронье traced her memory.
+Not only the door itself but also the hinge around it seemed to have been carved off from Обсидияn, and the sound of heavy minerals rubbing each other was unique. It felt like she heard this sound reminding of a distant thunder recently, and Ронье traced her memory.
 
 _It was that...... yes, at the time of the flight experiment of the machine dragon version 1 by the Центральный Собор. In order to save the dragon which would otherwise collide with the top of Собор, Асуна utilized the power of goddess Stacia and shifted the top of Собор from the 95th floor and up. Giant pieces of marble rubbed against each other, and it was just like that sound. 
 Rock and rock...... Sound of rubbing. Just like a stone mill._
@@ -117,9 +117,9 @@ Rock and rock...... Sound of rubbing. Just like a stone mill._
 
 Ронье ran over and stood in the front of the senior Integrity Knight and spoke excitedly.
 
-"Is there a large obsidian door, like that big door, near Шейта-сама and Исукан-сама's bedroom?"
+"Is there a large Обсидияn door, like that big door, near Шейта-сама and Исукан-сама's bedroom?"
 
-"Obsidian doors......? ── No, all the doors in the vicinity are made of wood and the exterior window bars are made of iron."
+"Обсидияn doors......? ── No, all the doors in the vicinity are made of wood and the exterior window bars are made of iron."
 
 "Well, then is there any mechanism involving a rock rubbing against rock...?"
 
@@ -127,7 +127,7 @@ Rock and rock...... Sound of rubbing. Just like a stone mill._
 
 "The sounds of stone mill drums heard by the guards....... If there is something like a hidden door on the outer wall of the castle, it would sound this way... but......."
 
-"If it's just a hidden door, they couldn’t cheat Кирито's nose... right?"
+"If it's just a hidden door, they couldn’t cheat Кирито nose... right?"
 
 Исукан groaned this with arms folded.
 
@@ -227,7 +227,7 @@ With a bitter smile, he went back and stood by the side of his wife.
 
 Looking at the sword pulled out with a sharp, clear sound, Исукан and Шейта faintly sighed.
 
-The sacred treasure-class equipment "Sword of the Night Sky" was not made of metal, rather of a jet black slightly transparent material. It looked a lot like obsidian forming Obsidia castle, but it’s blade radiating clearly felt tremendous weight, was once a branch of the huge cedar tree rising in one of the forests of Norlangarth empire. Master Садоре, currently appointed as a head of engineering in Центральный Собор, polished the branch to become a long sword spending the time of an entire year and six grinding stones; with this sword Кирито had defeated numerous Integrity Knights, banished Chief Elder Chudelkin and the Highest Priest Administrator, and eventually slashed Emperor Vector of the Тёмной Территории. Indeed, the legendary sword that saved the world.
+The sacred treasure-class equipment "Sword of the Night Sky" was not made of metal, rather of a jet black slightly transparent material. It looked a lot like Обсидияn forming Обсидия castle, but it’s blade radiating clearly felt tremendous weight, was once a branch of the huge cedar tree rising in one of the forests of Norlangarth empire. Master Садоре, currently appointed as a head of engineering in Центральный Собор, polished the branch to become a long sword spending the time of an entire year and six grinding stones; with this sword Кирито had defeated numerous Integrity Knights, banished Chief Elder Chudelkin and the Highest Priest Administrator, and eventually slashed Emperor Vector of the Тёмной Территории. Indeed, the legendary sword that saved the world.
 
 But probably, no matter how high is sword's priority, it alone cannot cut the sealing chain.
 
@@ -239,13 +239,13 @@ It was not sword skills or sword priority that could cut the chain, but the mira
 
 Кирито’s body who took a stance not of a traditional school was covered in red light. A tornado-like wind blew up from his feet, and Ронье was almost blown away, but stomped hard and kept on her feet.
 
-Eventually the red light gathered in the sword he held in the right hand and made the jet-black material shine brightly. Newborn vibrating sound of a dry timbre, gradually increasing the volume, eventually became a booming metallic sound reminiscent of the dragon’s roar. The air trembled, obsidian floor and even walls shook a bit.
+Eventually the red light gathered in the sword he held in the right hand and made the jet-black material shine brightly. Newborn vibrating sound of a dry timbre, gradually increasing the volume, eventually became a booming metallic sound reminiscent of the dragon’s roar. The air trembled, Обсидияn floor and even walls shook a bit.
 
 "Un...Unbelivab...le"
 
 Moaned Исукан.
 
-"This is... Кирито's incarnation..."
+"This is... Кирито incarnation..."
 
 Even Шейта leaked a surprised voice.
 
@@ -277,7 +277,7 @@ To the voice of Исукан, Кирито lifted the left hand and answered.
 
 "Yeah!"
 
-Шейта nodded, ran up to the big door and pressed both hands against obsidian panel that covered in sinister carvings. **Gogon**, the door trembled and slightly moved to the inside.
+Шейта nodded, ran up to the big door and pressed both hands against Обсидияn panel that covered in sinister carvings. **Gogon**, the door trembled and slightly moved to the inside.
 
 "……opened."
 
@@ -401,7 +401,7 @@ A storm of thoughts formed in her head, and in that moment, Ронье pulled ou
 
 On the other side, kidnapper was rushing towards the wall with his black robe flipping. In his chest, a large jewel shined brightly in a red color.
 
-The light of the same color ran through a part of the wall. A square separated from the obsidian wall and lifted resounding...... like an enigmatic stone mill drum, such as heavy rocks rubbing together.
+The light of the same color ran through a part of the wall. A square separated from the Обсидияn wall and lifted resounding...... like an enigmatic stone mill drum, such as heavy rocks rubbing together.
 
 The kidnapper holding Лизетта dashed towards the window that should have not existed.
 
@@ -421,7 +421,7 @@ Aincrad style high speed rush technique, "Sonic Leap".
 
 A secret sword move, which Кирито said to mean in sacred words "jumping with a speed of sound", cut the kidnapper’s left arm from the body.
 
-Shortly after, Кирито's mental barrier disappeared, and Лизетта was thrown into the air.
+Shortly after, Кирито mental barrier disappeared, and Лизетта was thrown into the air.
 
 The man in the black robe who lost both arms, even without stopping his feet and spilling a lot of blood, jumped on him window.
 
