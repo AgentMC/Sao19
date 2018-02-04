@@ -536,7 +536,7 @@ When Ronye asked with a loud voice, Kirito who ate a bite as well, was muttering
 
 Finally noticing that Ronye turned to him, Kirito shook his head.
 
-"Oh no, not quite....... There is a shop that serves similar dishes in the city I used to live. The shop owner resembles him either, but still it is...... The "boil" I know is something I was hardly able to eat because one had to fight though it’s spicy and sour and bitter and sweet tastes. But this Obsidia boil is orders or rather wraps tastes, making it indescribably mellow and......"
+"Oh no, not quite....... There is a shop that serves similar dishes in the city I used to live. The shop owner resembles him either, but still it is...... The "boil" I know is something I was hardly able to eat because one had to fight though it’s spicy and sour and bitter and sweet tastes. But this Obsidia boil orders or rather wraps tastes, making it indescribably mellow and......"
 
 "Oh, so I see you tasted it, bro!"
 
@@ -582,9 +582,9 @@ He stretched his spine and lowered his head deeply to a fist fighter sitting opp
 
 The fist fighter who had finished eating a long ago nodded with his smiling face.
 
-"When you find a nice job here and a day comes when you can eat Obsidia boil as much as you want, please give one to me... as they say..."
+"When you find a nice job here and a day comes when you can eat Obsidia boil as much as you want, please give one to me... speaking of which..."
 
-Rubbing the face gently with a thick palm, he kept on smiling.
+Rubbing the face thoughtfully with a thick palm, he kept on smiling.
 
 "...... It might be a bit difficult for you to find work for both brother and sister in Obsidia now, bro."
 

@@ -390,258 +390,257 @@ _Когда вернёмся в Центорию, надо будет попро
 
 ***
 
-### Продолжение завтра...
+После того как они какое-то время шли ночной дорогой, вокруг постепенно светлело, и в то же время увеличивалось количество людей и суб-людей, проходящих мимо, так что Ронье чувствовала одновременно облегчение и напряжение.
 
+В городе при замке Обсидия, который она видела впервые, большинство зданий были построены из тёмного камня, в нём было меньше деревьев и водоёмов, да и в целом по сравнению с Центорией он чувтсовался более людным. Однако, светильники, прикреплённые к стенам домов и дорожным столбам, не смотря на позднее время, светили красным, жёлтым и пурпурным, создавая ощущение праздничной атмосферы.
 
-After they had walked for a while in the late-night road, the surroundings gradually became bright, and at the same time the number of people and the sub-people passing by increased, so Ронье felt relief and tension at the same time.
+"А что горит в этих светильниках?"
 
-The Обсидия Castle Town which she saw for the first time, had most buildings made of dark stone, there were fewer trees and waterside, and it generally had a crowded feeling compared to Centoria. However, lanterns attached to the walls of the houses and pillars along the road had red, yellow and purple lights in spite of late night, so there was something like a festival atmosphere.
+Кирито тут же ответил на вопрос Ронье.
 
-"What is burning in those lanterns?"
+"Руда, которую можно найти в близлежащих горах, кусок размером с кулак, вроде как, горит целых десять дней."
 
-Кирито immediately answered Ронье's question.
+"Оу, удобно, не так ли?"
 
-"It's an ore that can be found in nearby mountains, it seems that a piece of a fist size will keep burning for ten days."
+"На первый взгляд, если кто-то привезёт такое в Мир Людей, то можно будет продать по высокой цене, однако с этой рудой сложно обращаться поскольку она начинает грреть естественным путём если её не поместить в воду, так что её довольно проблематично перевозить на большие расстояния..."
 
-"Well, that's useful, is not it?"
+Так они шли впереёд, переговариваясь, и вот впереди показалось оживлённое метсто. Это была небольшая площадь, вокруг которой стояло несколько палаток, и множество людей пили в центре, где были выстроены несколько столов.
 
-"You would think that it could be sold at a high price if anyone brings it to Мира Людей, but handling it is troublesome because it starts to burn naturally unless it is submerged in water, so it is quite difficult to transport long distances..."
+Примерно половина из них была людьми с тёмной кожей, кроме того было немало орков и гоблинов, но они сидели за отдельным столом. _Даже после заключения в Тёмной Территории "Мирного Договора Пяти Народов", конфронтация между племенами ещё не исчезла..._, подумала Ронье выглядывая из-за Кирито но тот сказал.
 
-They walked ahead having such a conversation and eventually a place of a lively atmosphere appeared in the front. There was a small square, with numerous tents around, and many people were drinking having surrounded tables lined in the center.
+"Хей, даже то что они спокойно пьют вместе — уже значительное изменение. Смотри, вон кулачный боец и группа орков общаются друг с другом за соседними столами, не так ли?"
 
-About half of them were humans with the dark skin, and there were not a few orks and goblins, but they occupied another table. _Even after the "Мирный Договор Пяти Народов" was supposed to have been concluded in Тёмной Территории, the confrontation between tribes has not yet disappeared..._, thought Ронье peeking from behind of Кирито’s head, but he told her.
+"Ой, и правда, вроде даже тост произносят......."
 
-"Hey, just being drinking in the same place is a big change already. Look, that fist-fighter and a group of orks are talking to each other at neighboring tables, aren’t they?"
+Когда кулачный боец, который, несмотря на то что стоял Фкевраль, едва прикрыл свой суровый торс, вскинул деревянную кружку, что-то выкрикнув, сидащий с ним рядом орк с воодушевлением стукнул её своей. Наблюдая за этой ситуацией из центрального входа на площадь, Ронье пробормотала, словно продолжая свой мысленный монололг.
 
-"Oh, that’s true, it seems they are toasting......."
+"Во время Войны с Внешним Миром, орочьи войска пришли на помощь практически уничтоженной группе кулачных бойцов....... Ведущая их "зелёная мечница" — орки поклоняются ей, словно богине."
 
-When a fist fighter who barely covered his sturdy upper body, even though it was February, protruded a wooden jug screaming something, an ork sitting next to him vigorously hit his mug. Watching this situation from the square entrance, Ронье muttered as if continue her monologue of thoughts.
+Ронье никогда её не встречала, но она знала, что "зелёная мечница Лифа", исчезнувшая в конце войны, была сестрой Кирито из реального мира. Раскрашенное чёрным лицо Кирито дёрнулось, как будто он какой-то миг подумывал прервать её, но затем он всё же ответил, вернув лицу спокойствие.
 
-"During the Foreign World War, the orc forces came to rescue an almost wiped out fist fighter group....... The "green swordsman" who led it, orcs are exalting her like a goddess."
+"Да...... и это стало причиной, почему нам удалось заключить мирный договор с Тёмной Территорией так быстро, без преувеличений всё благодаря Лифе. Вот почему мы должны любой ценой защитить этот мир."
 
-Ронье never met her, but she knew that the "green swordsman Leafa" who disappeared with the finish of the war was Кирито sister from real world. Кирито’s painted dark face distorted as if he considered to cut it off for a moment but soon he returned to his usual expression and nodded.
+"……Да"
 
-"Yes...... It was the reason why we were able to get that treaty with Тёмной Территории so quickly, all thanks to Leafa without any exaggeration. That's why, we must protect this peace at all costs."
+Ответила Ронье, понимая, что всякий раз, как тот пытался забыть, эта непроходящая тревожность раз за разом пробуждала его подобно неотступным волнам прибоя.
 
-"……Yes"
+Но Кирито скоро продолжил своим обычным тоном.
 
-Ронье answered realizing that each time he tried to forget, that fundamental anxiety was waking him up like everlasting waves.
+"Ладно, уже поздновато, но и нам стоит чего-то перекусить. Уличная еда просто не может надоесть."
 
-It didn’t take long though before Кирито continued in a normal way.
+"О... мы будем есть здесь?"
 
-"Well, it's a bit late but let us have some too. I’m never tired of street food."
+"Да, чувствуещшь, какой вкусный аромат от этих палаток.....? Выносит его будет так же сложно как ежедневный гнев Фанатио-сан и Дюсольберт-сана."
 
-"Oh... are we going to eat here?"
+Сказав нечто, что похоже было не только теорией, Кирито схватил сумки и шагнул на площадь.
 
-"Look, it is such a delicious smell from all the tents...... Enduring it would be as hard as an everyday anger of both Фанатио-сан and Дюсольберт-сан."
+Она, естественно, последовала за ним, и ароматный запах немодленно пощекотал её нос, напоминая о голоде. Вокруг площади стояло шесть палаток, но с одного взглядоа было трудно понять какая из них что продаёт.
 
-Кирито grabbed the bag and stepped in to the square after saying something that did feel like a theory.
+В подобных ситуациях, когда Ронье было трудно сделать выбор, она полагалась на решительную Тейзу...... но сейчас её рыжей подруги рядом не было. В равной степени не могла она довериться и вкусу Премьер-Мечника, который бормоча себе под нос "Тут гриль на вертеле, это вкусно......но уже так поздно, может взять тот суп с лапшой, что готовят вон там......нет, нет, булочки на той стороне очень даже..." перезодя от одной палатки к другой.
 
-Unavoidably she followed him, and the fragrant smell immediately tickled her nose reminding her of hunger. There were six tents over the outer row, but from the first glance it wasn’t clear which one is selling what.
+_Кстати, это ведь обычно Юдзио-сенпай решал за Кирито-сенпая, так что неудивительно, что он растерялся......_ После того, как она поняла, Ронье рассмеялась и потянула Кирито за край плаща.
 
-At times like this one, when Ронье was hard to make a choice, she relied on Тейза who quickly decided...... normally, but there was no her redhead friend next to her. Neither could she trust the taste of Премьер-Мечник who was muttering "That’s skewer grill, it's tasty......but it's such a time already, maybe to take that noodle soup they prepare over there......no, no, the buns on the other side are quite..." going from one tent to another.
-
-_By the way, it was Yujio-сенпай who usually decided for Кирито-сенпай so no surprise he got lost......_ After she noticed that and smiled a little, Ронье pulled the cloak of Кирито.
-
-"Oh, сенпай... Before we eat, do you have local money in the first place?"
+"Ой, сенпай... Прежде, чем мы приступим к еде, а местные деньги-то у вас есть?"
 
 "............"
 
-The face of Кирито looking at Ронье was gradually changing from startle to despair.
+Лицо смотрящего на Ронье Кирито постепенно сменилось с испуга на отчаяние.
 
-There were four kinds of money circulating in Мира Людей: thousand shear golden coins, hundred shear silver coins, ten shear copper coins and one shear iron coins. Strictly speaking there were also ten thousand shear white gold coins, but they were not spread among general people and lower aristocrats because they were only used for transactions between the government and biggest merchants.
+В Мире Людей циркулировали четыре типа валют: золотые монеты в тысячу широв, серебряные монеты в сотню широв, медные монеты по десять широв и железные по одному. Строго говоря, существовали ещё и монеты из бюелого золота по десяьь тысяч широв, но они не были распространены среди обычного населения и низшей аристократии поскольку использовались только при оплате между правительством и крупнейшими торговцами.
 
-For Ронье, it had always been shear coins all the time she could remember, but since it bore the profile of goddess Stacia and an emblem of Axiom Church, it could not be used in Тёмной Территории. Of course, separate money should exist here.
+Для Ронье, сколько она себя помнила, единственной валютой были ширы, но поскольку они несли на себе профиль богини Стасии и эмблему Церкви Аксиом, ими не могли пользоваться в Тёмной Территории. Конечно, там должны были существовать свои деньги.
 
-Кирито seemed to have finally realized the situation because he dropped his shoulders and said.
+Кирито, судя по всему, наконец осознал ситуацию, потому что его руки опустились, и он сказал.
 
-"......You know, in the Собор we don’t use money, so I completely forgot......."
+"......Знаешь, в Соборе мы деньгами-то особо не польщзовались, так что я совершенно забыл......."
 
-"Are...... are you saying that you have not brought a single shear with you... or ...?"
+"Вы...... вы говорите что ни единого шира с собой не привезли... или...?"
 
-Looking like a child scolded by a teacher, Кирито nodded.
+Выглядя как ребёнок, когорого отчитывает преподаватель, Кирито кивнул.
 
-Ронье had no idea what to say, and she could only look at the face of Премьер-Мечник for several moments.
+Ронье понятия не имела что на это сказать, и несколько секунд просто смотрела в лицо Премьер-Мечника.
 
-In the back of the sword belt that Ронье always wore, there was a thousand shear golden coin sewn for a case of a need but there was no use to it in this town anyway. She realized there was a further problem and asked Кирито again.
+В задней части мечевого пояса, который Ронье всегда носила, была вшита золотая монета в тысячу широв на случай острой необходимости, но в этом месте использовать её бы не получилось. Она поняла, что это ведёт к следующей проблеме, и спросила Кирито вновь.
 
-"Well, does it mean we cannot stay in the inn...?"
+"Так это что — значит мы и в гостинице остановиться не сможем...?"
 
-"Umm, well, looks like that."
+"Умм, ну, похоже на то."
 
-Ронье deeply sighed closely to being for unknown reason gravely positive Премьер-Мечник.
+Ронье глубоко вздохнула, стоя напротив по непонятной причине неестественно повеселевшего Премьер-Мечника.
 
-"And if we have got stayed penniless, how were we going to pay exactly?"
+"И если бы мы остановились на ночлег без гроша, как вы именно собирались расплачиваться утром?"
 
-"Well, you know, sharing automatically from the storage......."<sup><a href="#Prim5">5</a></sup>
+"А, ну, знаешь, автоматически бы пошарил со стореджа......."<sup><a href="#Prim5">5</a></sup>
 
-Кирито stared at tents with a such face as if he had not given up even in these circumstances, and finally looked up at the gigantic castle piercing through the night sky.
+Кирито уставился на палатки с таким лицом, как будто он ещё не отказался от идеи перекусить даже при таких обстоятельствах, а затем перевёл взгляд на ночной замок, пронзавший ночное небо.
 
-"It cannot be helped, let’s pray that Исукан is still awake and sneak into Обсидия castle......"
+"Эх, делать нечего, давай молиться чтобы Исукан всё ещё не лёг спать и проскользнём в замок Обсидия......"
 
-── said her сенпай who mentioned a moment earlier that it would be tough if they got treated as assassins!
+── сказал её сенпай, минуту назад говоривший, что если их примут за убийц, придётся туго!
 
-Ронье breathed in heavily to express in words all she was thinking about this idea, and that time.
+Ронье глубоко вдохнула, собираясь высказать напрямую всё, что она думала про эту идею, и тут.
 
-Above two whispering heads in the corner of the square that came so close that almost touched each other, a big human figure emerged.
+Над двумя шепчущимися в углу площади головами, сблизившимися настолько, что практически касались друг друга, возникла большая человеческая фигура.
 
 "...... !?"
 
-Ронье raised her face, restraining her hands from stretching to the sword on the left hip. It was a giant standing in front of them, as tall as one mel and ninety cen<sup><a href="#Prim6">6</a></sup>.
+Ронье скользнула взглядом вверх, отчаянно удерживая руки, тянущиеся к мечу на левом бедре. Перед ними стоял гигант, высотой аж целых один мел девяносто ценов<sup><a href="#Prim6">6</a></sup>.
 
-Rugged muscles covered the naked upper body crossed with leather bands and countless old wounds running across red copper skin proved him being a fist fighter. The pale light of a lantern was not enough to understand whether he is drunk that much, or is it his face beneath stiff hair simply naturally red enough.
+Крепкие мускулы покрывали оголённый торс, покрытый лишь двумя скрещенными полосками кожи да бесчисленными шрамами, разбросанными по медно-красной коже, завершавшие его образ кулачного бойца. Бледный свет от горящей руды не давал понять, это он настолько пьян, или же это его лицо ниже рядов жёстких волос от природы было настолько красным.
 
-"Hey bro<sup><a href="#Prim7">7</a></sup>, got no money to eat?"
+"Чё, братишка<sup><a href="#Prim7">7</a></sup>, деньжат на еду нет?"
 
-At least hostility was not felt in his voice, so Ронье ceased the alertness a little. On the other hand, Кирито nodding with a miserable look, with a voice that seemed to be very hungry ─ he might not be acting but behaving as he was though ─ answered.
+По крайней мере угрозы в его голосе не чувствовалось, и Ронье приуменьшила бдительность. С другой стороны, Кирито кивнул с весьма несчастным видом, и голосом, который казался очень голодным ─ он вполне мог и не прикидываться в тот момент, а вести себя обычно ─ ответил.
 
-"Well...... Yes, that's right. I came to find a job with my sister from Faldera, but ran out of it on the way."
+"Ну...... да, всё так. Мы с сестрой пришли из Фальдеры в поисках работы, но они закончились в пути."
 
-"Huh, Faldera is big, my old man is still over there."
+"Хех, Фальдера большая, мой старик до сих пор там."
 
-Listening to the word of the giant, Ронье chilled to the liver as it would be quite hard to start talking about memories of the city only known by name, but fortunately it did not develop that way. Fist fighter slammed Кирито shoulder with a thick and heavy right hand as if fitted with leather gloves, and said generous thing.
+Услышав слова гиганта, Ронье похолодела, представив как нелегко будет говорить о мнимых воспоминаниях о городе, о котором она не знала ничего кроме названия, но к счастью, разговор пошёл не в том русле. Кулачный боец хлопнул плечо Кирито правой рукой, тяжёлой и толстой словно бы он носил кожаные перчатки, и произнёс щедрые слова.
 
-"Yeah, lemme give a treat to fellow countryman."
+"Лады, давай-ка угощу земляка."
 
-"I, no, ...I'm kind of going…"
+"Я, не, ...я уже собирался…"
 
-Already regretting his acting, Кирито tried to refuse, but fist fighter pushed his back to the corner of the square. Кирито moved his legs reluctantly, and Ронье followed.
+Уже сожалея о своём поведении, Кирито попытался было отказаться, но кулачный боец толкнул его в спину в угол площади. Кирито неуверенно двинул ногами, и Ронье последовала за ним.
 
-It was the smallest and the most dimly-lit place among the six houses that the fist fighter led them to. The only thing that can be said for sure about the shopkeeper stirring a large pan of seasoning with a long ladle, with the majority of his face hidden with growing forelock, was that he is a human. The faded cloth hanging from the counter’s eaves’ corner bore the writing "Обсидия boil" with wry small letters, apparently it was the name of a dish.
+Кулачный боец привёл их в  самую маленькую и наиболее тускло освещённую палатку. Единственное, что можно было сказать о продавце, помешивающем в большой кастрюле с приправами длинным половником, большую часть лица которого скрывала отросшая чёлка,— что он был человеком. Выцветшая тряпка, свисавшая с угла карниза над стойкой, несла написанное маленькими кривыми буковками "Варёное по-Обсидийски", что видимо было и названием блюда.
 
-"This place is the best in this square. Well, even though nobody of my friends agree!"
+"Это место лучшее на всей площади. Ну, хоть никто из моих друзей и не согласится!"
 
-The drunk fist fighter laughed “**ga-ha-ha**”, and Кирито attempted to retract with a face full of horror.
+Пьяный кулачный боец расхохотался “**га-ха-ха**”, и Кирито с лицом, полным ужаса, отступил на шаг назад.
 
-"Ah, that, uncle, I have a kinda bad feeling......."
+"А, это, дядька, у меня нехорошее предчувствие......."
 
-"All of them said so at first. Well, I dare you to try and don’t think you have been fooled. Hey, father, gimme three cups."
+"Да все они так говорили в начале. Давай, рискни попробовать, что бы не думал что тебя одурачили. Эй, отец, плесни-ка три чашки."
 
-He picked out three coppers from the pouch hung by the fist fighter’s belt and dropped them with a “**cha~linn**” sound a on dark long board. If the value of the coin is the same as that in Мира Людей, the mysterious “Обсидия boil” will be worth of ten shears, which was way too cheap as for a light street food.
+Он выудил три медяка из кармана, висевшего у кулачного бойца на поясе, и со звуком “**ча~линь**” бросил их на длинную тёмную доску. Если ценность монеты такая же как в Мире Людей, таинственное “Варёное по-Обсидийски” стоило десять широв, что было ну очень уж дёшево, даже для лёгкой уличной еды.
 
-The shopkeeper without any reply arranged three wooden bowls on the long board, poured with the sound of “**dobobo**” the contents of the pan with a long ladle, and accompanied the spoon of the same wood. Again, without saying a word, he collected coins and returning to his stirring work.
+Продавец, не вымолвив ни слова, выстроил три деревянные миски на доинной доске, со звуком “**до-бо-бо**” разлил содержимое из кастрюли длинным половником и добавил ложку из такого же дерева. И вновь не сказав ни слова, он забрал монеты и вернулся к своему помешиванию.
 
-Whether was accustomed to that or simply being drunk, but fist fighter took bowls one by one in both hands without any concern of the shop owner's correspondence which was extremely frustrating, and presented them to Кирито and Ронье. There was no option to refuse left any more once this is done, so they accepted it saying "Thank you very much" at the same time.
+Привычно ли ему было такое отношение, или же он был просто пьян, но кулачный боец одну за другой взял миски обеими руками, никак не реагируя на невероятно раздражающее поведение продавца, и поставил их перед Кирито и Ронье. После того как это произошло, возможности отказываться больше не было, так что они приняли его доброту, сказав "Большое вам спасибо".
 
-There was something inside the bowl that could only be described as a thick brown soup. It seemed that various items were contained in it, but since the liquid was almost opaque, what was being boiled could not be determined by looking down.
+В чашке было нечто, что можно было описать лишт как густой коричневый суп. Похоже, в нём содержалось множество ингридиентов, но поскольку жидкость была практически непрозрачной, одним лишьт зглядом определить, что именно варилось, было невозможно.
 
-Ронье sat down with Кирито at a vacant table, urged by a fist fighter with his bowl, and prepared her spirits.
+Ронье уселась возле Кирито за свободным столиком, поторапливаемая кулачным бойцом, уже взявшем свою тарелку, и морально приготовилась.
 
-She scooped up some liquid concentrated like stew cooked for three consecutive days, blew it and put in the mouth. _Spicy!_ she thought at first, but at once felt sourness, and after that the taste brought complicated richness with a shade of bitterness, and ended with a faint sweet aftertaste.
+Она зачерпнула немного жидкости, концентрированной словно жаркое, которое готовили три дня подряд, подула на него и положила в рот. _Остро!_ была первая её мысль, но тут же пришла кислота, а после этого вкус развернулся сложным букетом оттенков горечи, оставив после себя лёгкое сладкое послевкусие.
 
-"............ Кирито-сенпай, what a strange taste is this.......?"
+"............ Кирито-сенпай, что это а странный вкус такой.......?"
 
-When Ронье asked with a loud voice, Кирито who ate a bite as well, was muttering staring at the wooden spoon with a complex expression.
+Когда Ронье спросила в голос, Кирито, кто уже тоже попробовал немного, шептал, уставившись на деревянную ложку со сложным выраждением на лице.
 
-"There is no doubt ...... It is the taste of "boil", both marvelous and disgusting, or rather it seems like a horribly subtle......."
+"Никаких сомнений...... Это точно вкус "варёного", одновременно прекрасный и отвратительный, или даже скорее словно ужасно слабый......."
 
-"Oh...... Had сенпай eaten this before, then?"
+"Ой...... так сенпай уже ел это раньше?"
 
-Finally noticing that Ронье turned to him, Кирито shook his head.
+Наконец заметив, что Ронье повернулась к нему, Кирито покачал головой.
 
-"Oh no, not quite....... There is a shop that serves similar dishes in the city I used to live. The shop owner resembles him either, but still it is...... The "boil" I know is something I was hardly able to eat because one had to fight though it’s spicy and sour and bitter and sweet tastes. But this Обсидия boil is orders or rather wraps tastes, making it indescribably mellow and......"
+"О, нет, не совсем....... В городе, где я жил, есть магазин, подающий подобное. И продавец напоминает того, но всё же это...... "Варёное", которое я знаю было чем-то, что вообще с трудом можно есть, потому что приходилось пробиваться через его острый, кислый, горький и сладкий вкусы. Но это Варёное по-Обсидийски упорядочивает или даже оборачивает вкусы, делая их невероятно мягкими и......"
 
-"Oh, so I see you tasted it, bro!"
+"Ох, я смотрю ты попробовал, братишка!"
 
-A fighter who reduced the contents of the bowl to as much as 30% already he hit the Кирито’s back vigorously. 
+Боец, у которого в миске уже оставалось не больше 30%, радостно хлопнул Кирито по спине. 
 
-"They say, from since the Imperial City of Обсидия was built, this Koitsu guy continues to add ingredients and simmer the soup for more than two hundred years every day. I guess this is not a Мира Людей cuisine, **ga-ha-ha**!"
+"Говорят, с того дня, как основали имперскую столицу Обсидию, этот парень, Коицу, продолжает добавлять ингридиенты и перемешивать суп каждый день вот уже более двух сотен лет. Однозначно не кухня Мира Людей, **га-ха-ха**!"
 
-"Tha… that's right......."
+"Эт…то и впрямь так......."
 
-Next to Кирито nodding with delicate face, Ронье unexpectedly shouted in surprise.
+Рядом с осторожно кивнувшим Кирито, Ронье неожиданно выкрикнула от удивления.
 
-"Two… two hundred years......!? How, how does cooking's life last for so long? Soup and stew will be damaged usually after 5 days even in the midwinter..."
+"Две… две сотни лет......!? Как, как может жизнь пищи не иссякать так долго? Суп и жаркое повреждается после 5 дней даже в середине зимы..."
 
-"That is where that fella’s spiffy."
+"Вот в этом-то этот парень и крут."
 
-And as if he was some kind of relative of the shopkeeper, the fist fighter proudly hit his thick chest.
+И словно он был в каком-то родстве с владельцем магазина, кулачный боец гордо стукнул себя в широкую грудь.
 
-"This fella is not going a step away from the counter every day, he keeps on adjusting the fire so the pot does not become empty or burnt. If you do keep doing it constantly, it seems that the content of the pot will not lose life. Naturally I eat here three meals a day......I am thinking that this is only this fella not only in Тёмной Территории, but in entire Underworld, that can cook such a thing."
+"Этот парень ни шагу не отходит от кастрюли целый день, он продолжает удерживать пламя, не позволяя кастрюле стать слишком горячей или же остыть. Если прододжать это делать постоянно, содержимое кастрюли не начнёт терять жизнь. Ну а я, конечно, ем здесь трижды в день......Думаю, этот парень один такой не только в Тёмной Территории, но и во всём Подмирье, кто может так готовить."
 
-"Well, every day, that is......."
+"Н-да, каждый день, это......."
 
-She stared on the counter in question. An unfriendly shopkeeper kept stirring the pot with his face down, and his face could not be seen again.
+Она вопросительно уставилась на стойку. Нелюдимый продавец продолжал помешивать варево в кастрюле, опустив голову, так что его лицо было по-прежнему невидимо.
 
-"....... So, has his life been frozen if he is alive for more than two hundred years...?"
+"....... Так а его жизнь заморозили что-ли, раз он жив уже две сотни лет...?"
 
-To Ронье's question, the fist fighter, who apparently came up with such a possibility for the first time, looked at the bowl and counter a number of times with a serious look and then shook his head from side to side.
+На вопрос Ронье, кулачный боец, которому поджобное пришло в голову, судя по всему, впервые, с серьёзным выражением лица несколько раз перевёл взгляд между миской и стойкой, а затем покачал головой.
 
-"No way, I heard rumors that it is the highest priest of Мира Людей only who can do it. I guess here it has surely been generation to generation inherited."
+"Быть не может, говорят, только первосвященник Мира Людей может такое делать. Тут, полагаю, наследует поколение за поколением."
 
-"Well, that's probably right."
+"Ну, наверное, так оно и есть."
 
-Ронье nodded and scooped up some larger lump settled in the middle of the bowl and fearfully put it in her mouth. _It is probably a meat of a bird that gives this extremely light crunchy feeling when it collapses with every bite overflowing with rich flavor. Also, complicated strange flavor, if you get used to it — there is nothing you’ll like more._
+Ронье кивнула и зачерпнув побольше из самого центра миски, с опаской положила в рот. _Это наверное мясо птицы даёт такое невероятно лёгкое хрустящий эффект и когда с каждым укусом оно разламывается, рот переполняет богатый вкус. А ещё, странный сложный аромат, еслит привыкнуть — ничего не сможешь полюбить сильнее._
 
-Кирито who emptied the bowl with considerable momentum probably got used to it faster than Ронье, exhaled contentedly.
+Кирито, который очистил миску с завидной скоростью, видимо, привык ко вкусу быстрее Ронье, удовлетворённо выдохнул.
 
-"Haha, it was horrible...... it may not be an overstatement......."
+"Ха-ха, это было ужасно...... и это не преувеличение......."
 
-He stretched his spine and lowered his head deeply to a fist fighter sitting opposite.
+Он потянулся а затем низко склонил голову перед сидящим напротив кулачным бойцом.
 
-"Thank you for the meal, a kind man. I will never forget this kindness."
+"Спасибо за еду, добрый человек. Я никогда не забуду твою щедрость."
 
-"Nothing, that’s for good."
+"Забудь, всё на благо."
 
-The fist fighter who had finished eating a long ago nodded with his smiling face.
+Кулачный боец, давным-давно закончивший есть, кивнул с улыбкой на лице.
 
-"When you find a nice job here and a day comes when you can eat Обсидия boil as much as you want, please give one to me... as they say..."
+"Когда найдёшь аботу и если настанет такой день, когда сможешь есть Варёное по-Обсидийски вдоволь, угостишь меня... и кстати об этом..."
 
-Rubbing the face gently with a thick palm, he kept on smiling.
+Продолжая улыбаться, он задумчиво потёр лицо широкой ладонью.
 
-"...... It might be a bit difficult for you to find work for both brother and sister in Обсидия now, bro."
+"...... Сейчас в Обсидии может быть сложновато найти работу обоим и брату, и сестре, братишка."
 
-"Oh ... is that so? It is lively in the streets even at such time and it seems to be nice..."
+"О... правда? А на улицах людно, и даже в поздний час всё выглядит хорошо..."
 
-"It looks like it looks, but that's because the number of residents is increasing ... and I do not think it will last for long..."
+"Выглядит как выглядит, но только потому что количество жителей лишь возрастает... и я не думаю что так может продолжаться ещё долго..."
 
-The fighter who told them so with a sigh bought a dubious vial from the goblin that passed nearby. He squeezed it and gulped, then held it out, frowning.
+Сказавший им это со вздохом боец купил сомнительный бурдюк у проходящего мимо гоблина. Он сжал его и глотнул, затем, хмурясь передал напротив.
 
-Although Кирито seemed to be dealing fine with it for a moment, he immediately coughed violently as soon as exhaled. The fist fighter to whom the bottle has been returned, smiled and continued the explanation.
+Хотя Кирито секунду выглядел так, будто справляется с содержимым, стоило ему выдохнуть, он сильно раскашлялся. Кулачный боец, к которому вернулась бутылка, улыбнулся и продолжил объяснять.
 
-"This hooch is made by the flat goblin tribe that settled near the city recently. It is tasty, and because it is cheap like nothing at all, it sells great. The town liquor store is shabby and sales are falling, and the commercial guilds seem to be crisp. If it is before the war, the guard soldiers would attack the goblin village and kill them all, but now there is a Мирный Договор Пяти Народов......."
+"Этот шмурдяк гонят в племени равнинных гоблинов, которые недавно осели около города. Он вкусный, и к тому же дешёвый как я не знаю что, продаётся на ура. А в городском трактире товар убогий и продажи падают, так что в гильдии торговцев кусают локти. Будь это до войны, солдаты бы просто напали на гоблинскую деревню и перерезали бы их всех, но теперь же у нас Мирный Договор Пяти Народов......."
 
-"...... That is, as long as sub-humans move to Обсидия, humans will be robbed of work...?"
+"...... То есть, пока суб-люди прибывают в Обсидию, людям будет не хватать работы...?"
 
-"It's not just fault of sub-humans, the number of people is increasing considerably......That's what bro should see."
+"Не только в суб-людях дело, народ растёт как на дрожжах......Вот что братишка должен увидеть."
 
-In response to Кирито question, the fighter shrugged his shoulders and answered, looking up at the dark sky.
+В ответ на вопрос Кирито, боец пожал плечами и ответил, глядя в тёмное небо.
 
-"If you came from Faldera I don’t need to tell you...... the land is just killing everything in this dark world. Humans and subhumans have always been suffering from hunger and thirst. Even the big war that ended the "era of iron and blood" began with a fight for a lake of some tribe’s origin..."
+"Раз ты пришёл из Фальдеры, не мне тебе говорить...... в этом тёмном мире земля просто всё убивает. Люди и су-любди всегда страдали от глода и жажды. Даже та жуткая война, что положила конец "эпохе железа и крови", началась из-за битвы за озеро, жизненно необходимым для какого-то племени..."
 
-Ронье and Кирито, who were not familiar with the history of the Тёмной Территории, must only silently nod. Fist fighter drank another gulp and kept on talking diligently.
+Ронье и Кирито, не знакомые с историей Тёмной Территории, только молча кивнули. Кулачный боец ещё глотнул из бурдюка и прододжил размеренно говорить.
 
-"......Our ancestors managed to survive in this Тёмной Территории because there was a legend we believed. Someday the Мира Людей gate will open and we will move to a promised rich land."
+"......Наши предки смогли выжить в этой Тёмной Территории благодаря легенде, в которую они верили. Однажды врата Мира Людей откроются и мы получим свою обетованную землю."
 
-As soon as she heard the words, Ронье unintentionally strengthened her body, but the fist fighter did not seem to notice.
+Услышав эти слова, Ронье инстинктивно напряглась, но кулачный боец не заметил.
 
-"...Neither my small brother nor sister would not have survived till that age, but as Emperor Vector recovered a little over than a year ago, it was awesome excitement when I was attacking the Мира Людей. Finally, the time of legend came, we thought... ── But, Мира Людей Integrity Knights, rumors say, were worse than any monster...... Besides, then suddenly an army of a different world emerged. I did not understand anything, but the emperor was kidnapped by some swordsman of the Мира Людей, and the war was over......"
+"...Ни мой мелкий брат, ни сестрёнка не дожили до того дня, когда чуть больше года назад воскрес Император Вектор, но мы все были так рады, нападая на Мир Людей. Наконец, пришло время сбыться легенде, мы думали... ── Но Рыцари Целостности Мира Людей, по слухам, были хуже любого чудища...... А потом внезапно появилась армия из другого мира. Я ничего не понимал что происходит, а императора утащил какой-то чёртов мечник из Мира Людей, и вдруг война закончилась......"
 
-Ронье looked at "some swordsman" next to her who had already cold sweat spreading over his forehead with a face more delicate than when he tasted Обсидия boil. A fist fighter who hopefully had no way of knowing the true identity of the young man sitting in front of him opened his mouth again slamming a spoon on the table.
+Ронье посмотрела на "чётова мечника" рядом с ней, по лицу которого уже катился холодный пот, а выражение было ещё более напряжённым, чем когда он пробовал Варёное по-Обсидийски. Кулачный боец, который, к счастью, не представлял, кто сидит перед ним, снова открыл рот, хлопнув ложкой по столу.
 
-"...If the war continued as rumors say, this time the God of the Тёмной Территории may have perished for good. So, there are no complaints about peace with Мира Людей, but it is also true that there is no hope of getting rich land someday left.... That is why goblins, orks and human youth are flowing into Обсидия...... They think here is fine, they say, they will be able to find a better life. However, no matter how much those hunkys are impatient, there is no infinite work appearing. Perhaps if you are a human being, you might be hired by a knights’ order.... but both bro and sis are a bit too weak, so ..."
+"...Если война шла так как говорили, то на этот раз бог Тёмной Территории ушёл на благо. В общем, никто не жалуется на мир с Миром Людей, но и то, что надежды на богатые земли, которые однажды станут нашими, больше нет — тоже правда.... Поэтому молодые гоблины, орки и люди стягиваются в Обсидию...... Они думают, что тут лучше, говорят, смогут найти лучшую жизнь. Однако, неважно насколько эти работяги жаждут работы, бесконечных новых рабочих мест что-то не появляется. Раз ты человек, тебя мог бы нанять рыцарский орден.... но и братишка, и сестрёнка оба какие-то хлипкие, так что..."
 
-Looking at the fist fighter sleepy winking drunken eyes directed towards two people, Кирито who seemed to be thinking once again, dropped his head down.
+Видя как кулачный боец сонно моргает пьяными глазами, направленными на них двоих, глубоко задумавшийся Кирито снова низко склонил голову.
 
-"Thank you for everything, uncle. Обсидия boil, it was delicious ...... Someday, we’ll treat you."
+"Спасибо за всё, дядька. Варёное по-Обсидийски было вкусным...... Когда-нибудь мы тебя угостим."
 
-"Oh...... Good luck, both of you……"
+"Оу...... удачи вам двоим……"
 
-Finally, they got up carefully as not to wake up a fist fighter who had fallen asleep earnestly.
+Наконец, они аккуратно встали из-за стола, стараясь не разбудить кулачного бойца, всерьёз решившего заснуть прямо там.
 
-Overlooking the plaza, it seemed a group of goblins and orks had left unnoticed, and only a few drunk groups of fist fighters remained. Most of the counters are also starting to close, and only the shopkeeper who cooked Обсидия boil kept stirring the pot. It seemed like their chat of staying over there was becoming reality.
+Осмотрев площадь, они увидели, что группа орков и гоблинов уже незаметно ушла, и оставались только несколько групп пьянух кулачных бойцов. Большинство лавок уже закрывались, и только продавец, готовивший Варёное по-Обсидийски, продолжал помешивать кастрюлю. Походоло на то, что их предыдущая беседа о ночёвке под открытым небом становилась реальностью.
 
-"... Well, aren’t we supposed to be looking for an inn?"
+"... Так, нам вроде-как таверну надо бы найти?"
 
-Кирито, who made a big yawn, murmured such a thing in a confused tone.
+Кирито, широко зевнув, сконфуженно пробормотал это.
 
-"But what do you do for paying rent? Indeed, I think those who will pay will not appear."
+"Но чем вы собираетесь платить за аренду? Мне правда кажется, что те, на кого вы рассчитывали, не объявятся сами по себе."
 
-"Well, I’ll manage somehow."
+"А, что-нибудь придумаем."
 
-Finally, Кирито laughed and started to walk to the east exit of the square; Ронье inevitably chased him.
+Кирито засмеялся и направился к восточному выходу с площади; Ронье неизбежно последовала за ним.
 
 ***
+
+### Продолжение завтра
 
 The number of ore lanterns increased and the bustle became louder as they got closer to the center of the city.
 
@@ -761,9 +760,9 @@ When she thought that far, the same strange feeling as when she saw the sign of 
 2. <a name="Prim2"></a>鄙消, “Сельский Нейтрализатор” по кандзи, но как и в случае с Химавари (“Подсолнух”) здесь, скорее всего, имеется в виду омоним к ひなげし, что означает “Мак”.
 3. <a name="Prim3"></a>…которую мы также знаем под названием “оверрей”. Однако, здесь (в силу точки зрения Ронье) используется термин Подмирья. 
 4. <a name="Prim4"></a>Любимый подмирский сорт чая Кирито. Делается в Саутакройт. Весьма горькая совершенно чёрная жидкость, обычно другие люди добавляют в него молоко. Отсылка к т.11, гл.2.
-5. <a name="Prim5"></a>Кирито here falls back to Sacred Language (“sharing” and “storage”), probably referring to the Обсидия treasury.
-6. <a name="Prim6"></a>No it’s not a translator’s exaggeration, this person is literally presented as 巨漢 — a giant.
-7. <a name="Prim7"></a>Originally “onii-chan” but I don’t feel natural leaving an equivalent of “my dear big brother” coming from the “giant” fist fighter. His following phrases, along with Кирито’s ones when he tries to adjust to his talk, are adapted respectfully.
+5. <a name="Prim5"></a>Кирито здесь использует священный язык (“sharing” и “storage”), вероятно намекая на оплату из сокровищницы Обсидии.
+6. <a name="Prim6"></a>Нет, это не преувеличение переводчика, этот человек буквально представлен как 巨漢 — гигант.
+7. <a name="Prim7"></a>В оригинале “онии-тян”, но мне показалось противоестественным оставлять эквивалент “моего дорогого старшего братца” исходивший из уст “гигантского” кулачного бойца. Его следующие фразы, вместе с ответами Кирито когда тот пытается подстроиться под его речь, адаптированы соответствующим образом.
 8. <a name="Prim8"></a>ベック.
 <!--9. <a name="Prim9"></a>.-->
 <!--10. <a name="Prim10"></a>.-->
