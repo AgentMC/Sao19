@@ -74,7 +74,7 @@ Kirito began collecting his luggage when he replied to Ronye's point with a misc
 
 After painting the faces with brown ointment again and paying the rent the left, and morning sun dyed red greeted them with a light similar to that of ore lanterns.
 
-There was a distance of more than 5 kilometers from the inn to Obsidia castle, they walked enjoying the scenery of a foreign country feeling great impatience.
+There was a distance of more than 5 kilolu from the inn to Obsidia castle, they walked enjoying the scenery of a foreign country feeling great impatience.
 
 As they got closer to the castle the road became wider and the buildings on both sides also became fine. However, the number of passers-by decreased rapidly, in particular the sub-humans are completely absent.
 
@@ -126,7 +126,7 @@ Although being astonished and surprised to a great extent by the blade of incarn
 
 As Kirito lifted his right hand again, she looked up to where he pointed. Then, she saw a small figure emerging from the terrace struck by Kirito's "blade of mind". As expected the distance was too far to see the face, but a slender body belonged to a human. Noticing the scratch of the handrail, the person looked below bending the upper body over the terrace’s border.
 
-Even though it was more than one kilometer away, there is no place to hide in the open riverside where Kirito and Ronye were standing. The shadow of the terrace kept her eyes on the two of them... and that moment.
+Even though it was more than half a kilolu away, there is no place to hide in the open riverside where Kirito and Ronye were standing. The shadow of the terrace kept her eyes on the two of them... and that moment.
 
 The figure suddenly put a right hand to its mouth.
 

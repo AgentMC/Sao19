@@ -1,176 +1,178 @@
-# Part 7
+# Часть 7
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-When she awoke to the heavy sound of a bell, the bright light was already falling through the thin window curtain.
+Когда она проснулась от громкого колокольного звона, яркий свет ужа падал сквозь занавеску на окне.
 
-After blinking several times, she scratched the eyes and set in the sofa. With the cloak wrapped instead of a blanket around the body, she looked around the room with drowsy eyes.
+Поморгав, она потёрла глаза и села на диване. Всё ещё завернувшаяся в плащ вместо одеяла, она сонными глазами оглядела комнату.
 
-First thing she saw was the figure of a black-haired swordsman sleeping deeply in the bed in front of the sofa. Eight hours passed, and the effect of the ointment had gone out, so the sleeping face that regained whiteness was surprisingly inconvenient, and Ронье smiled a little.
+Первое, что она увидела, было фигурой черноволосого мечника, крепко спавшего в кровати перед диваном. Восемь часов миновало, и эффект мази исчез, так что светлый цвет, вернувшийся к его лицу оказался на удивление неудобен, и Ронье улыбнулась.
 
-Finally, she realized that she had stayed overnight in the same room with Кирито ─ even though, of course, the beds were separate ─ and all the drowsiness immediately faded away, the face got hot. She put her cold hands, which were out of the cloak, on her head and took a deep breath to somehow regain calmness, then got up vigorously.
+Тогда она осознала, наконец, что провела ночь в одной комнате с Кирито ─ хоть и в разных постелях, конечно,─ и всю сонливость тут же как рукой сняло, а лицо зарделось. Она приложила свои холодные руки, высунувшиеся за ночь из-под плаща, к голове и глубоко вдохнула чтобы восстановить спокойствие, затем энергично поднялась.
 
-Moved to the side of the bed, gently shook the shoulders of sleeping Кирито.
+Подойдя к кровати сбоку, она мягко тряхнула плечо спящего Кирито.
 
-"сенпай, please get up, it's eight o'clock."
+"Сенпай, просыпайтесь, уже восемь часов."
 
-When Ронье heard it last night, she noticed that the melody of the bell was exactly the same as that of Центральный Собор’s ones.
+Когда прошлым вечером Ронье её услышала, она заметила, что мелодия колоколов такая же, как и у тех, что были в Центральном Соборе.
 
-_Why do the bells installed in the Мира Людей Axiom Church and the bells of the Тёмной Территории capital far away from each other playing the same sound..?_ At the time of such thoughts, Кирито revealed ambiguous mumbling and tried to get in under the blanket.
+_Почему колокола, установленные в Церкви Аксиом Мира Людей и колокола в столице Тёмной Территории, находящиеся далеко друг от друга, играют ону мелодию..?_ Пока она над этим раздумывала, Кирито что-то невнятно пробурчал и постарался забраться обратно под одеяло.
 
-"Ugh...... a bit more ............"
+"Уф...... ещё немного............"
 
-"Ah, sleeping is waste!"
+"Ах, кто рано встаёт..!"
 
-In a hurry she tried to pull off the blanket, but Кирито did not let it go, firmly holding the edge with both hands like a child.
+Она попыталась резко стащить одеяло, но Кирито не пустил, крепко держа его край обеими руками, как ребёнок.
 
-"Five minutes more...... No, let me sleep for just three minutes, Yujio..."
+"Ещё пять минут...... Нет, дай мне поспать ещё три минуты, Юдзио..."
 
-When she heard that name, Ронье inhaled a small breath. Pulling a hand away from the blanket, she walked one step away.
+Услышав это имя, Ронье тихо ахнула. Медленно убрав руку от одеяла, она отступила на шаг назад.
 
-About two years have elapsed since Elite Swordsman-in-Training Yujio, who was a close friend of Кирито, lost his life in battle with the Highest Priest Administrator. For Кирито, however, the days spent with Yujio have not been left in the past. Just like for Тейза.
+Около двух лет прошло с тех пор как элитный ученик мечника Юдзио,бывший близким другом Кирито, лишился жизни в битве с Первосвященником Администратором. Для Кирито, однако, дни проведённые с Юдзио, не исчезли в прошлом. Так же как и для Тейзы.
 
-On her tiptoes, she returned to the sofa and sat again.
+На цыпочках она вернулась обратно к дивану и снова села на него.
 
-_Асуна, a Vice-Премьер-Мечник who is waking up in the same room as Кирито, knows Кирито heart... Does she know the existence of deep sorrow that he is hiding? And if she does, I wonder how does she keeps her gentle, kind smile standing by Кирито......._
+_Асуна, Вице-Премьер-Мечник, просыпающаяся в одной с Кирито комнате, знает сердце Кирито... Знает ли она об этой глубокой печали, что он скрывает? И если так, мне интересно, как она способна стоять рядом с Кирито с этой доброй, мягкой улыбкой......._
 
-She decided to talk to Асуна properly upon the return to Centoria. Of course, not about the feeling kept secretly in Ронье’s mind, but because both of them feel they want to be the power of Кирито.
+Она решила как следует поговорить с Асуной по возвращении в Центорию. Конечно, не о тех тайных чувствах в глубине сердца Ронье, но о том, что они обе одинаково желали стать силой Кирито.
 
-While she was thinking about such things, surprisingly Кирито woke up in about three minutes as declared asleep, and looked the room around with both eyes closed more than half.
+Пока она раздумывала о подобном, Кирито на удивление проснулся ровно через три минуты, как и пообещал во сне, и огляделся вокруг с более чем наполовину закрытыми глазами.
 
-When noticing Ронье, he had a great yawn “**Fuwa\~~**” and called out "Good morning Ронье".
+Заметив Ронье, он широко зевнул, издав “**фу-а\~~**” и поприветствовал её "Доброе утро, Ронье".
 
-"...... Yes, good morning, Кирито-сенпай."
+"...... Да, добро утро, Кирито-сенпай."
 
-"Bad, I overslept... What time is it now?"
+"Плохо, я проспал... Который там час?"
 
-"The eight o'clock bell has just rung."
+"Только что пробил восьмичасовой колокол."
 
-"Oh, so for checkou... ehm, it looks like we will be on time to leave the inn."
+"О, значит на чекаут... эм, похоже, на то чтобы покинуть таверну времени нам хватит."
 
-Once again, he gave a short yawn and then got up from the bed. Moved to the window and drew a gray curtain vigorously.
+Он ещё раз зевнул и поднялся с кровати. Подойдя к окну, он энергично откинул занавеску.
 
-"Oh, Ронье, come here, you can see the castle."
+"Ой, Ронье, иди сюда, отсюда замок видно."
 
-"Really?"
+"Правда?"
 
-As she moved away from the sofa and stood by the side of Кирито, to the slightly right side of the front of the window and beyond the cluttered cityscape, she could clearly see the big black castle towering up against the sky.
+Встав с дивана, она встала рядом с Кирито, и за окном, немного справа и позади беспорядочного горогдского пейзажа, она чётко увидела большущий чёрнй замок, громоздившийся в небо.
 
-Its appearance piercing the morning glow of the Тёмной Территории, which was much redder than one of the Мира Людей, although it is built from mostly natural rocks, was far more violent than Центральный Собор, which in reverse created a kind of beauty. Кирито, who should have been visiting for the second time, also exhaled a long breath as if admiring.
+Вид его, пронзающего утреннюю дымку Тёмной Территории, бывшую намного краснее утреннего тумана Мира Людей, хоть он и был построен в основном из простого камня, был много более жестоким, чем у Центрального Собора, наоборот, создающего ощущение величественной красоты. Кирито, кто уже был здесь раньше, тоже выпустил долгий вздох восхищения.
 
-"... Unlike Центральный Собор built by Higher Priest Administrator’s sacred art, that castle was carved out of a rocky mountain with human hands."
+"... В отличие от Центрального Собора, сзданного священным искусством Первосвященника Администратор, этот замок был выдолблен в скадле руками людей."
 
-Having heard the words of Кирито, Ронье also sighed unwillingly.
+Услышав, как Кирито сказал это, Ронье тоже удивлённо вздохнула.
 
-"How many months... years did it take?"
+"Сколько же месяцев... лет это заняло?"
 
-"It took more than a hundred years. ── Now, let's leave soon. We don’t have time to rest till lunch."
+"Более сотни. ── Ладно, пора бы и уходить. До обеда времени прохлаждаться у нас нет."
 
-"Hey, the one who overslept was сенпай!"
+"Эй, это ведь сенпай проспал!"
 
-Кирито began collecting his luggage when he replied to Ронье's point with a mischievous smile.
+Кирито начал собирать свои вещи, ответив Ронье только зловредной ухмылкой.
 
 ***
 
-After painting the faces with brown ointment again and paying the rent the left, and morning sun dyed red greeted them with a light similar to that of ore lanterns.
+Снова раскрасив лица коричневой мазью и заплатив за ночлег, они ушли, и отдающее красным утреннее солнце поприветствовало их светом, напоминавшем свет рудных факелов.
 
-There was a distance of more than 5 kilometers from the inn to Обсидия castle, they walked enjoying the scenery of a foreign country feeling great impatience.
+Расстояние в более чем 5 килолу от таверны до замка Обсидия они прошли, в нетерпении рассматривая непривычные виды чужой страны.
 
-As they got closer to the castle the road became wider and the buildings on both sides also became fine. However, the number of passers-by decreased rapidly, in particular the sub-humans are completely absent.
+При приближении к замку дорога стала шире, а строения по обеитм сторонам дороги — богаче. Однако, число пешеходов значительно сократилось, в частности суб-люди полностью исчезли.
 
-Eventually, a river rich in water, black as everything else in this dark world, and a fine stone bridge appeared. After it, there was a big gate, and the way ran gradually uphill, to a sharp Обсидияn mountain ─ to the imperial castle of Обсидия.
+Наконец появилась полноводная река, чёрная, как и всё в этом тёмном мире, через которую был переброшен красивый мост. За ним были большие ворота, а дорога постепенно поднималась в гору, к острой обсидиановой горе ─ имперскому замку Обсидия.
 
-Ронье asked Кирито who stopped at the beginning of the bridge.
+Ронье спросила Кирито, остановившегося у начала моста.
 
-"...... So, сенпай, have you come up with an idea on how to enter the castle?"
+"...... Так, сенпай, вы придумали как нам попасть в замок?"
 
-Then Премьер-Мечник tilted his painted dark head lightly.
+Тогда Премьер-Мечник слегка наклонил свою раскрашенную чёрным голову.
 
-"Hmmm...... Even if we pretend to be Тёмной Территории dwellers, that alone will not open the way into the castle... or if we fly to the top of the castle, it seems, guards will find us..."
+"Хммм...... Хоть мы и притворились обитателями Тёмной Территории, одно это нам двери в замок не откроет... а если полететь на вершину, стража заметит, хлопот не оберёшься..."
 
-"In other words, you have no idea ...."
+"Иначе говоря, идей нет...."
 
-Кирито rushed to deny Ронье's words.
+Кирито ринулся отрицать слова Ронье.
 
-"No, no. I still have a last resort!"
+"Не-не-не. Есть одно средство!"
 
-Shouting so, he pulled Ронье's hand, and they went along the left bank of the river. _As the bridge that leads directly to the castle keeps getting away more and more, he surely wants to swim across this river which seems to be not easy at all, climb up the hill full of rocks and intrude into the castle._
+Выкрикнув это, он потянул Ронье за руку, и они двинулись вдоль левого берега реки. _Поскольку от моста, который ведёт прямо в замок, мы удаляемся всё дальше, он точно хочет переплыть реку, что вообще не выглядит лёгким, потом взобраться по каменистому склону и пробраться в замок._
 
-Кирито stopped at a place where the river got a little wider, put two bags on the ground and looked up again at Обсидия castle.
+Кирито остановилдся в месте, где река была шире обычного, положил сумки на землю и снова взглянул на замок Обсидия.
 
-Обсидияn-black rocky mountain looked like a tower rather than a mountain because its base was about 300 mel in diameter, while its height was about two times that. Most of the side facing the town was presented as a castle, with magnificent columns and large windows glittering in the morning sun, but the back side was almost a rocky mountain, only a large terrace was hanging high above which was probably the dragon departure ground.
+Обсидианово-чёрная скалистая гора больше походила на башню, потому что в основании она была около 300 мелов в диаметре, а её высота была в два раза больше. Большая часть стены, обращённой к городу, выглядела как замок, с величественными колоннами и широкими окнами, блестящими в лучах поднимающегося солнца, но задняя сторона оставалась просто скалой, и только где-то высоко нависала большая терраса, бывшая по всей видимости посадочной площадкой для драконов.
 
-Unexpectedly Кирито lifted his right hand and drew it straight towards the top of the castle. Moved five stretched fingers as if looking for something small.
+Внезапно Кирито поднял правую руку и протянул её к вершине замка. Подвигал пятью вытянутыми пальцами, как будто что-то искал.
 
-"That, сенпай...... what on earth...?"
+"Это, сенпай...... что, во имя богов, вы...?"
 
-A feeling of disturbing little by little came up, and Ронье said so. However, Кирито did not answer, after continuing to hold his right hand for about five seconds, he nodded as if he suddenly got something.
+Чувствуя, как беспокойство всё нарастает, Ронье не выдержала. Однако, Кирито не ответил, но продержав так руку ещё около пяти секунд, он кивнул, словно что-то нащупал.
 
-He aligned the fingers of the right hand as if his hand was holding a sword. Held it up, stretched the left leg and lowered his waist.
+Пальцы правой руки он сложил так, словно держал меч. Поднял её, вытянул левую ногу, чуть присел.
 
-Ронье opened her eyes wide watching as in his right hand appeared something like a sword, wrapped in weak white light and emitting a faint vibration sound.
+Ронье распахнула глаза, наблюдая за тем, как в его руке появилось что-то типа меча, окутанного слабым белым свечением и излучавшего тихий вибрирующий звук.
 
-_Кирито did not cast any sacred art. So, this is a secret mystery of Integrity Knights who directly interact with "the matter of the world", a technique of incarnation. But, usually invisible, it shines with light and emits sound, how much will is concentrated here?_
+_Кирито не читал никакого священного искусства. Значит, это секретное оружие Рыцарей Целостности, что напрямую воздействуют на "саму сущность мира", инкарнационная техника. Но она как правило невидима, а тут излучает свет и звук, сколько де силы воли он влил в неё?_
 
-"**............\~~Fu**!!"
+"**............\~~Фу**!!"
 
-With a short shout, Кирито swept his right hand with tremendous momentum.
+Коротко выкрикнув, Кирито с огромной скоростью махнул рукой.
 
-A white light flickered as if it was one of knight Renri's “Twin Edged Wings” and instantly flew a distance of half a kilolu, hitting the handrail of a small terrace near the top of Обсидия castle. Ронье's trained eyes clearly recognized that a small Обсидияn fragment spilled from the handrail struck by the blade.
+Белый свет моргнул, и словно это был один из “Вострокрылых Близнецов” Ренри, мгновенно пролетев пол-километра, стукнул в перила маленькой терраски у самого верха замка Обсидия. Тренированный взгляд Ронье чётко увидел, как от удара световым клинком маленький кусочек Обсидиана откололся от чёрных перил.
 
-"What a......., se-se-se-se-se-сенпай, what are you doing?! You scratched the castle!"
+"Что......., се-се-се-се-се-сенпай, что вы творите?! Вы замок поцарапали!"
 
-Although being astonished and surprised to a great extent by the blade of incarnation, she pulled a black cloak a bit more turning to Кирито who straightened body and answered with his usual relaxed tone.
+Всё ещё сильно поражённая и удивлённая инкарнационным клинком, она потянула Кирито за плащ повернулась к нему, выпрямившемуся и ответившему своим обычным голосом.
 
-"Don’t worry of that damage, it will disappear if they smear a piece of a charcoal with glue and stick there…I think. Now, look there."
+"Да что там той царапины, никто и не заметит если взять кусочек угля и на клей посадить… наверное. Так, смотри туда."
 
-As Кирито lifted his right hand again, she looked up to where he pointed. Then, she saw a small figure emerging from the terrace struck by Кирито "blade of mind". As expected the distance was too far to see the face, but a slender body belonged to a human. Noticing the scratch of the handrail, the person looked below bending the upper body over the terrace’s border.
+И Кирито снова поднял правую руку, а она посмотрела в том направлении, куда он показал. На террасе, которую ударил "клинок разума" Кирито, появилась маленькая фигурка. Естественно, расстояние было слишком велико, чтобы узнать лицо, но стройная фигура определённо принадлежала человеку. Заметив царапину на перилах, человек перегнулся через перила и посмотрел вниз.
 
-Even though it was more than one kilometer away, there is no place to hide in the open riverside where Кирито and Ронье were standing. The shadow of the terrace kept her eyes on the two of them... and that moment.
+Пусть он и был в более чем пол-килолу от них, на открытом берегу реки, где стояли Кирито и Ронье, не было места, чтобы спрятаться. Человек на террасе сфокусировался на них... и тут.
 
-The figure suddenly put a right hand to its mouth.
+Фигура внезапно приложила правую руку ко рту.
 
-Ронье noticed that a gray dragon appeared on a large landing block protruding from the back of the castle, spread its wings and took off.
+Ронье заметила, что на широкой посадочной площадке, выступающей из задней стены замка, появился серый дракон и расправив крылья, взлетел.
 
-The dragon flew around the side of the castle and stopped near the mentioned terrace. A shadow quickly jumped on its back and pointed straight to the riverside where Ронье was standing.
+Дракон полетел вдоль стены замка и завис возле упомянутой террасы. Тень быстро запрыгнула на его спину и указала прямо на берег, где стояла  Ронье.
 
-"…ba-ba-ba-ba-bad, сенпай! They have found us already!"
+"…пло-пло-пло-пло-плохо, сенпай! Нас уже нашли!"
 
-"That was fast, as expected."
+"Быстро, как и ожидалось."
 
-"You can’t say such things carelessly! We have to get away quick......!"
+"Как можно говорить такое столь беззаботно! Надо быстрее спасаться......!"
 
-But Кирито pulled Ронье’s cloak, and stood in front of her. As he did this, the dragon suddenly descended next to two people.
+Но Кирито потянул Ронье за плащ, закрыв её собой. Когда он это сделал, дракон внезапно ринулся вниз к этим двоим.
 
-_If that is the case, I have to fulfill the role of escort!_ And Ронье grasped the handle of the long sword just granted, but three seconds later...
+_В таком случае мне нужно выполнить свою роль эскорта!_ И Ронье сжала рукоять только что дарованного длинного меча, но тремя секундами позже...
 
-A swooping down gray dragon beat wings violently and suddenly braked, and the rider flew from the back like a hurricane. The vision of the slender figure landing on a stony riverbank making no sound at all was quite spectacular. Like Ронье, the person wore a cloak with hood so the face could not be seen.
+Несущийся вниз серый дракон вдруг резко хлопнув крыльями, затормозил, и наездник, полобно урагану, взлетел со своего места. Вид стройной фигуры, совершенно беззвучно приземляющейся на каменистый берег реки, был потрясающим. Как и Ронье, на человеке был плащ с капюшоном, скрывающим лицо.
 
-It seemed that the sword was not pulled out, but it should be a senior dark knight in order to be able to control the dragon. Standing in front of Кирито, Ронье felt the tension ready to pull out her sword as soon as the opponent’s sword appears.
+Меч оставался в ножнах, но чтобы командовать драконом это должен был быть старший тёмный рыцарь. Стоя перед Кирито, Ронье напряглась, готовая вытащить меч, как только оппонент обнажит свой.
 
-── However.
+── Однако.
 
-A little later than a rider, a gray dragon landed with a big earthy sound, it stretched the long neck, first smelled Ронье, then Кирито. Afterwards..., with the sound of “**furururu**” it rubbed the side of a horned stout against Кирито’s head.
+Чуть позже всадника, с громким гулким звуком приземлился и дракон; вытянув длинную шею, он сперва обнюхал Ронье, затем Кирито. Потом..., издав радостное “**фу-ру-ру-ру**” он начал тереться стороной своей рогатой морды об голову Кирито.
 
-"Er…………?"
+"Эээ…………?"
 
-Ронье looked at the impossible scene. _The dragons of the Тёмной Территории are also very proud, like Мира Людей dragons, I heard that they are from a related genus. It is impossible that it treats a first-time seen human like this..._ At that time, on the body of the dragon covered in gray scales, she noticed countless spear marks are left.
+Ронье смотрела на невозможную картину. _Драконы Тёмной Территории тоже очень гордые, как и драконы Мира Людей, я слышала что они из родственных видов. Не может быть, чтобы такой дракон обходился со впервые встреченным человеком подобным образом..._ И тогда она заметила бессчётные шрамы от мечей и копий на покрытом серыми чешуйками боку.
 
-"Ah ... may… maybe......."
+"А... воз… можно......."
 
-Faster than Ронье put the words together, Кирито spoke himself rubbing under the chin of the dragon with both hands.
+Быстрее, чем Ронье смогла выдавить из себя слова, Кирито заговорил сам, обеими руками почёсывая под подбородком дракона.
 
-"There, there, long time no see, Yoiyobi<sup><a href="#Prim1">1</a></sup>. Were you doing well?"
+"Ну-ну, давненько не виделись, Ёиёби<sup><a href="#Prim1">1</a></sup>. У тебя всё хорошо?"
 
-Ронье could not forget this name. It is the name of a legendary dragon who fought hard without rest against a red knights’ army during the Foreign World War. It was not a dark knight in front of her, but a Мира Людей Integrity Knight. The rider, also known as a legendary "silent" knight ──
+Ронье никогда бы не забыла это имя. Имя легендарного дракона, без устали тяжко сражавшегося против армии красных рыцарей во время Войны с Внешним Миром. Перед ней был не тёмный рыцарь, а Рыцарь Целостности Мира Людей. Наездник, также известный как легендарный рыцарь "молчунья" ──
 
-"...... perhaps, is this… Шейта-сама?"
+"...... возможно, это… Шейта-сама?"
 
-When terrified Ронье asked this question turning her gaze to the rider’s hood, the rider answered removing it with both hands.
+Когда напуганная до смерти Ронье спросила это вглядываясь в капюшон всадницы, последняя ответила, убирая его обеими руками.
 
-"Кирито...... Ронье. What are you doing in such a place?"
+"Кирито...... Ронье. Что вы делаете в таком месте?"
 
 ***
+
+### Продолжение завтра...
 
 Шейта Synthesis Twelve.
 
@@ -620,7 +622,7 @@ Seeing that the story was over, Шейта went down one step.
 
 ## Примечания:
 
-1. <a name="Prim1"></a>宵呼, “Evening Call”. 
+1. <a name="Prim1"></a>宵呼, “Вечерний зов”. 
 2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).
 3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
 4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “miruku” (ミルク). The explanation for this will be given below.

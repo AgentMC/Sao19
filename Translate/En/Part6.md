@@ -728,7 +728,7 @@ _It would be my youngest brother that would be pleased the most_, but when she d
 
 Relieved that Kirito quietly slept in the bed, Ronye took off her cloak and after a bit of struggle with an ore lantern ─ turned out she had to pour water into it ─ turned it off.
 
-Sitting on the sofa that was standing by the wall, she carefully removed her shoes and put them on the floor, and lied down. Although her toes protruded as expected, she didn’t mind the cold covering with a coat made of a cotton cloth and a good western region wool instead of a blanket.
+Sitting on the sofa that was standing by the wall, she carefully removed her shoes and put them on the floor, and lied down. Although her toes protruded as expected, she didn’t mind the cold covering with a cloak made of a cotton cloth and a good western region wool instead of a blanket.
 
 ![Image](/Translate/Img/p175.jpg)
 
