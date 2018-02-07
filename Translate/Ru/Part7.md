@@ -172,167 +172,167 @@ _В таком случае мне нужно выполнить свою рол
 
 ***
 
-### Продолжение завтра...
+Шейта Синтезис Твелв.
 
-Шейта Synthesis Twelve.
+Среди остававшихся Рыцарей Целостности, она была  старшим рыцарем, следующим за Фанатио и Дюсольберт по иерархии, а сила её меча была столь велика, что слухи приравнивали её к бывшему главе ордена Беркули Синтезис Уан.
 
-Among current integrity knights, she was a senior knight following Фанатио and Дюсольберт in the hierarchy, and her sword power was so strong that rumors lined her up with the former headmaster Bercouli Synthesis One.
+Говорили, что не было ничего, что не мог бы разрезать её божественный инструмент "Меч Чёрной Лилии", дарованный Первосвященником, а во время Войны с Внешним Миром она сначала вступила в схватку с основными силами кулачных бойцов, а затем храбро<sup><a href="#Prim2">2</a></sup> бросилась в отчаянную битву  против армии красных рыцарей.
 
-They said there is nothing that cannot be cut by her sacred treasure "Black Lily Sword" given by the Highest Priest, and in a Foreign World War, first she countered the main force of fist fighters, and then bravely<sup><a href="#Prim2">2</a></sup> fought a fierce battle against the large army of red knights.
+Однако, после завершения битвы, она оставила Центральный Собор и осталась в замке Обсидия в роли полномочного посла Объединённого Совета Мира Людей.
 
-However, by the end of the battle, she left Центральный Собор and stayed at Обсидия castle as a full authority representative for the Объединённого Совета Мира Людей.
+Иначе говоря, она была лучшим кандидатом на первую встречу в замке для Кирито и Ронье — но вопрос как именно Кирито удалось привлечь именно её, оставался неотвеченным. Кирито ударил клинком разума по замку, а Шейта, оказавшаяся единственной, кто это заметил, прилетела к ним — создавалось впечатление, что лишь невероятно удачное стечение обстоятельств помогло этой наобум придуманной стратегии осуществиться.
 
-In other words, she was the best person for Кирито and Ронье to contact first — but, the question, how did Кирито bring her here, remained unanswered. Кирито swung the blade of mind against the castle, and Шейта was the single person who noticed it and flew to them — it seems to be only a result of a lucky coincidence that this haphazard strategy happened to be successful.
+Сдерживая желание спросить об этом Кирито, Ронье продолжала следить за разговором тех двоих.
 
-Holding back the desire to question Кирито, Ронье kept watching the interaction between the two of them.
+"Извините за внезапный сюрприз, Шейта-сан. Но это единственный способ позвать вас, который я придумал......."
 
-"Sorry for bad surprise, Шейта-сан. But I only came up with this way of calling you......."
+Когда Кирито, тоже снявший капюшон, нерешительно извинился, Шейта кивнула с невесёлой улыбкой на холодном красивом лице.
 
-When Кирито who also removed the hood scruplingly apologized, Шейта nodded with a bitter smile on a cool beautiful face.
+"Да уж поверь, я удивилась, когда поняла, что с этого берега реки кто-то клинок разума кинул, подумала было, что командир Беркули воскрес."
 
-"Be sure, I was surprised, when I realized that someone had delivered a blade of mind from the other side of the river, I thought that commander Bercouli had resurrected."
+Её речь была простой и прямолинейной, как и раньше, но казалось, что в её голосе появилось много слов и ноток, смягчившихся по сравнению с прежними временами.
 
-The way she spoke was simple and straightforward as before, but it seems that there were a lot of words and notes in her speech that softened a little since before.
+"……но, почему именно в ту комнату, где была я?"
 
-"……but, why in that same room where I was?"
+На вопрос Шейты, Кирито пожал плечами.
 
-To Шейта question, Кирито shrugged his shoulders.
+"Потому что там чувствовалась наиболее… тяжёлая атмосфера."
 
-"Because from there I felt the most… uneasy feeling."
+Та вернула ему жест со слегка недовольным лицом.
 
-She repeated the same gesture with a slightly unsatisfied face.
+"......Я думала, что во время тренировок больше не потею, а ты всё равно почувствовал, да ещё и с такого расстояния."
 
-"......I thought I was stopped to sweat, but my training is still noticeable from such a long distance."
+Из этого разговора Ронье поняла, наконец, что Кирито не кинул клинок разума наудачу. Тем жестом с растопыренной пятернёй, что предшествовал удару, он искал присутствие Шейты. Для Ронье эта техника была совершенно недостижимой загадкой, но ──
 
-By that conversation, Ронье finally realized that Кирито was not releasing a blade of mind by a lucky chance. With the gesture of spreading five fingers of the right hand that preceded it, he searched for the presence of Шейта. For Ронье it was a mystery that could not be reached at all, but ──
+"Ой, сенпай. Даже обладая такими потрясающими навыками, всё, что вы придумали — это изобразить ребёнка, кидающего камушек в окно друга......"
 
-"Oh, сенпай. Even though you own such amazing skills, all you could come up with is to imitate a child throwing a pebble in a friend's room window......"
+Она сказала это неожиданно для себя самой, но захихикала, повернувшись к Кирито, который тоже развернулся к ней.
 
-She released these words unintentionally, then turned to laugh at Кирито who also turned to her.
+"Так, а Ронье-то опытная, это тебе мальчики в окно стучались?"
 
-"Well, did Ронье experience such a call from a boy?"
+"К-кто сказал, что со мной такое случалось!"
 
-"I, I did not say it's my story!"
+"А, ну значит, это ты его так звала......."
 
-"Well, so then maybe it was you calling him......."
+"Д-да речь вообще не обо мне!"
 
-"It’s, it is not about me at all!"
+Отчаянно отнекивающаяся Ронье увидела, как по бледному лицу Шейты растягивается улыбка.
 
-Ронье who desperately denied it, saw a small smile appearing on Шейта’s pale face.
+"Полагаю, путь был долог и труден, Ронье. Почему бы вам не передохнуть в замке."
 
-"It might have been a long and hard trip, Ронье. You better take a break at the castle."
+Она подала знак рукой, и Ёиёби лёг на землю. Седла не было, но благодаря этому, все трое смогли усесться вместе. Они сидели верхом, спереди Ронье, Кирито сзади, и Шейта в середине, на драконе, который легко взлетел после короткой пробежки по берегу реки, не испугавшись всей тяжести двух длинных мечей класса Божественное Орудие, и трёх людей.
 
-She signaled with her right hand, and Yoiyobi laid down. There was no saddle, but thanks to that, all three of them could get on packed together. With Ронье in front, Кирито behind, and Шейта in the middle they rode the dragon which easily took off after running a bit on the riverbank, not frightened at all by the weight of the two of sacred treasure class long swords and three human beings.
+Мощно хлопая крыльями, он быстро поднимался, нацелившись на верхнюю часть замка Обсидия. Стража их заметила, но они знали, что это дракон полномочного посла, так что шумиха не поднялась.
 
-Powerfully flapping wings, it quickly raised, aiming at the upper part of Обсидия castle. The guards noticed them, but it was known that it was a dragon of full authority ambassador, so there was no appearance of a fuss.
+За пару минут Ёиёби долетел до уже знакомой нам террасы, и когда трое людей сошли, он пропел им на прощанье<sup><a href="#Prim3">3</a></sup> и полетел обратно на точку взлёта. Драконья туша исчезла, и Ронье подошла к обсидиановым перилам посмотреть на то место, которое Кирито ударил клинком разума. Как она и боялась, там чётко виднелись царапины глубиной более сантиметра.
 
-Yoiyobi flew to the mentioned terrace in about two minutes, and when three people descended, it sang them good-bye<sup><a href="#Prim3">3</a></sup> and flew back to the departure point again. When the dragon's large body disappeared, Ронье walked over to Обсидияn handrails and looked at the place where Кирито hit it with the blade of mind. As she had feared, scratches that are likely to be more than a centimeter deep were engraved clearly.
+_Точно разгневаются, это же не..._ и тут Ронье подняла глаза на открывшийся перед ней вид и неожиданно воскликнула, совершенно забыв, о чём она беспокоилась мгновенье назад.
 
-_They will certainly be angry, this is no..._ then Ронье raised her eyes towards the view in front of her and unexpectedly shouted completely forgetting what she was worrying about one second ago.
+"Ух ты...... потрясающе......!"
 
-"Wow...... it’s amazing......!"
+Она могла видеть весь город Обсидию как на ладони. Городской ландшафт был скученным и беспорядочным, не имевший ничего общего с Центорией, радиально разделённой на четыре равных сегмента, но то, что она видела перед собой буквально сверкало силой жизни.
 
-She could see the entire city of Обсидия in front of her eyes. It was a cluttered and disorganized townscape, completely different from the Centoria city separated radially in four equal fragments, but what she saw almost shined with the power of life.
+"Хей, а та часть города, где как будто земля сложена множеством слоёв...а-ах, это что, стадион? Какой он большой, сенпай!"
 
-"Hey that area of the city, where it seems the ground itself is stacked in numerous layers...a-ah, is that a stadium? It is big, сенпай!"
+Поражённая Ронье услышала позади голос Шейты.
 
-Astonished Ронье heard Шейта's voice from behind.
+"Я знаю много других мест, которые можно посмотреть, так что могу предложить тур по окрестностям, если будет время......."
 
-"I know plenty of other places to see, so I'd like to suggest a sightseeing if there is time......."
+Переведя взгляд с Ронье и обернувшись, Шейта упёрлась глазами в Кирито.
 
-Having removed her eyes from Ронье and turned around, Шейта pointed her sharp gaze towards Кирито.
+"Сдаётся мне, вы тут инкогнито, так? Что-то в Центории случилось?"
 
-"It feels like you came incognito, right? Had something happen in Centoria?"
+"Точно."
 
-"That's right."
+Кивнув, Кирито выпрямился.
 
-Nodding, Кирито straightened the spine.
-
-"I'd like to ask an urgent consultation with both Шейта and Dark Army commander Исукан."
+"Мне требуется срочная консультация обоих Шейты и командира Тёмной Армии Исукана."
 
 ***
 
-The room behind the terrace was full of soft colors, too bright for the Тёмной Территории. Walls and ceiling were painted light pink, curtains were pale yellow, carpet had the color of young grass. It was not wood but ore that burnt red in a big fireplace heating the room so much that one would sweat wearing a coat.
+Комната за террасой была наполнена мягкими цветами, слишком уж яркими для Тёмной Территории. Стены и потолок были выкрашены светло-розовым, занавески были бледно-жёлтыми, а пол покрывал ковёр цвета молодой травы. В большом камине красным вместо дерева горела руда, согревая комнату настолько, что надев плащ уже можно было покрыться потом.
 
-_If this is the Шейта's private room, it is a bit of a surprising that she has such taste......_ thought Ронье, but immediately realized that the room was existing not for her.
+_Если это личная комната Шейты, меня несколько удивляет её вкус......_ подумала Ронье, но сразу же поняла, что комната предназначалась не для той.
 
-There was a small bed about 1 mel long on the other side of the fireplace, and as Шейта walked up there, her profile was brightener by a gently emerged smile.
+по другую сторону камина располагалась небольшая, около мела длиной, кроватка, и когда Шейта туда подошла, её профиль озарился мягко появившейся улыбкой.
 
-Шейта silently beckoned Ронье and Кирито standing still at the entrance. They approached, tiptoeing, and looked into the bed, where a baby wrapped in a white cloth was fast asleep.
+Шейта молча поманила Ронье и Кирито, стоящих у входа. Они на цыпочках подошли и заглянули в кроватку, где дремал ребёнок, завёрнутый в белую ткань.
 
-It was about three months after birth, dark red hair looked soft like fluff, nose, mouth and both hands gently held on both sides of the head are incredibly small.
+Ему было около трёх месяцев после рождения, тёмно-красные волосы выглядели мягкими как пух, а нос, рот и обе ручки, прижатые с обеих сторон к голове, были невероятно маленькими.
 
-_I have heard rumors, then this baby is a child of Integrity Knight Шейта and fist fighter Исукан. That would have certainly been a girl……_ thinking this way, Ронье was asked the mother in a very, very quiet whispering.
+_Я слышала слухи, что этот ребёнок — дитя Рыцаря Целостности Шейты и кулачного бойца Исукана. Это должна быть девочка……_ подумав так, Ронье спросила её мать тихим-претихими шёпотом.
 
-"... What is her name?"
+"... Как её зовут?"
 
 "Лизетта."
 
-Шейта replied quietly and proudly added, throwing a short gaze at Кирито.
+Тихо ответила Шейта и гордо добавила, коротко взглянув на Кирито.
 
-"We took the first sound from a green swordsman Leafa."
+"Первый звук был взят от имени зелёной мечницы Лифы."
 
-"Was it so? ...I did not know."
+"Правда? ...Не знал."
 
-Murmured Кирито smiling while looking at the sleeping baby.
+Пробормотал Кирито, с улыбкой смотря на спящего ребёнка.
 
-What broke the gentle silence that lasted for about 20 seconds was the sound of the door on the corridor side opening and in addition a soft voice slowly singing:
+Комфортную тишину, длившуюся около 20 секунд, нарушил звук открывающейся двери в коридор и доброго голоса, нараспев произносящего:
 
-"Lisa-chan, it's time for milk<sup><a href="#Prim4">4</a></sup>..."
+"Лиза-тян, время для милка<sup><a href="#Prim4">4</a></sup>..."
 
-Who entered the room was a young man holding a tray with both hands. A simple silvery headband ran around burning-red curly short hair; although it was winter, his upper body was covered only with a thin hemp shirt. Underneath short trousers he wore sandals, strong muscles and countless scars ran through exposed shoulders and arms, his right eye was missing as if it was taken out; his look overall showed that he is a mighty warrior.
+В комнату вошёл молодой человек, обеими руками держащий поднос. Простой серебристый обруч поддерживал огненно-красные короткие кудрявые волосы; хотя была зима, его торс был прикрыт только тонкой конопляной рубашкой. Под короткими штанами он носил сандалии, его плечи и руки состояли сплошь из сильных мышц и бесчисленных шрамов, а правого глаза не было, как будто его извлекли; его внешний вид недвусмысленно указывал на то, что он могучий воин.
 
-But on the other hand, a happy loose smile floated on his young face, very much as one of Кирито when he eats a honey pie; Ронье opened her mouth quietly to such a vision.
+Но с другой стороны, на его молодом лице играла довольная улыбка, весьма напоминающая Кирито, когда он ел медовый пирог; Ронье от удивления от такой картины аж рот открыла.
 
-Immediately afterwards, the man with one eye also noticed Ронье and Кирито standing near the bed and the smile gradually left his face. His thick eyebrows faintly knited, and the line of sight began to jump back and forth between Шейта and two others.
+Одноглазый тут же заметил Ронье и Кирито, стоящих возле кроватки, и улыбка постепенно сошла с его лица. Он немного нахмурил брови, а взгляд бегал между Шейтой и двумя другими.
 
-Before the man tried to say something, Кирито raised his right hand and greeted him.
+Прежде, чем человек успел что-то сказать, Кирито поднял правую руку и поприветствовал его.
 
-"Hi there Исукан, it’s been a while!"
+"Привет Исукан, давненько не виделись!"
 
-Then, the commander of the Dark Army and fist fighter group leader Исукан opened the left eye so wide it almost jumped out.
+Тогда, командир Тёмной Армии и лидер кулачных бойцов Исукан распахнул левый глаз так широко, что тот почти выскочил из орбиты.
 
-"Thee.. ees is, Ki-ki-Кирито? What happened to the color of your face…. No, rather, what are you doing in this place? The next meeting had been scheduled in March!"
+"Ээээ..то же Ки-ки-кирито? Что случилось с твоим лицом…. Нет, даже, что ты здесь делаешь вообще? Следующая встреча же запланирована на Март!"
 
-"Well, I have a slightly urgent business. Sorry for intruding."
+"Ну, у меня довольно срочное дело. Простите за вторжение."
 
-"Yeah, it's okay, but... no, wait, wait a moment."
+"Это ничего, но... нет, погоди, погоди-ка секундочку."
 
-A deep valley engraved between frowned eyebrows of Исукан. Шейта moved softly and took away the tray from her husband's hands.
+Глубокая морщина порезалась меж сдвинутых бровей Исукана. Шейта мягким шагом подошла и забрала поднос из рук мужа.
 
-Not reacting to this, fist fighter lowered his gloomy head.
+Никак на это не отреагировав, кулачный боец опустил хмурую голову.
 
-"Кирито, okay, have you heard anything a little while ago...?"
+"Кирито, так, ты что-то слышал только что...?"
 
-"A little while ago....... Ah, yeah, the milk thing... Heh... Well, Исукан is totally daddy now, ha-ha-ha!"
+"Только что....... А, да, про милк... Хех... Что же, Исукан прям весь такой папочка, ха-ха-ха!"
 
-"Ha-ha-ha... well, if you heard that, you cannot return home unharmed. With this blow, I will punch off your memories from your head!"
+"Ха-ха-ха... ну, раз слышал, невредимым тебе не остаться. Этим ударом я вышибу эти воспоминания из твоей головы!"
 
-Shouted Исукан clenching his right hand. A light like a semi-transparent red flame wrapped his powerful fist.
+Прокричал Исукан, сжав правую руку в кулак. Свет, напоминающий полупрозрачное красное пламя, окутал его до запястья.
 
-"Wha…, se-se-se-сенпай......!"
+"Чт…, се-се-се-сенпай......!"
 
 ![Image](/Translate/Img/p194.jpg)
 
-Кирито moved Ронье, who didn’t know what to do as an escort in such a case, away with right hand. Standing in front of Исукан, he thrusted the left palm ahead.
+Кирито правой рукой отодвинул Ронье, которая не знала, как эскорту поступить в таком случае, в сторону. Стоя перед Исуканом, он вытянул вперёд ладонь левой.
 
-"There, come on!"
+"Давай, нападай!"
 
-"**U~ra-ra-ra…!!**"
+"**У~ра-ра-ра…!!**"
 
-Along with this shout, Исукан kicked off the floor. Drawing a burning red trace in the air, his fist was thrown out at a speed that could not be caught by Ронье's eyes, and hit Кирито’s palm.
+Вместе с этим выкриком, Исукан оттолкнулся от пола. Оставляя в воздухе горящий красный след, его кулак был выброшен вперёд на такой скорости, что Ронье его вовсе и не увидела, и стукнул ладонь Кирито.
 
-Explosive blasting sound roared, the shock violently threw asides curtains and decorative cloth. It was obviously a blow of a terrible power, but Кирито standing firmly on the spot bent his upper body a bit, and handled the fist of Исукан with one palm.
+Прогремел взрывной звук, ударная волна тряхнула занавески и декоративную ткань. Это очевидно был удар ужасной силы, но Кирито твёрдо стоя на земле, лишь немного изогнул своё тело, и справился с ударом Исукана одной ладонью.
 
-The Fist Fighters’ Leader and the Мира Людей Премьер-Мечник kept quiet for a while keeping the right hand and the left palm in contact, when Исукан soon lifted his face and laughed.
+Лидер кулачных бойцов и Премьер-Мечник Мира Людей какое-то время молчали, пока их кулак и ладонь соприкасались, затем Исукан поднял лицо и рассмеялся.
 
-"It looks to me, you’re getting weaker, Кирито."
+"Сдаётся мне, слабеешь ты, Кирито."
 
-"In your dreams, Исукан."
+"Держи карман шире, Исукан."
 
-Besides two smiling men, who shook her head in amazement was Шейта, still holding a tray. Ронье approached the bed and looked into it to check if the baby woke up, but Лизетта, the child of the strongest knight and the strongest fist fighter, kept happily sleeping without noticing the big fuss.
+Поражённо качая головой, подле двух смеющихся мужчин стояла Шейта, всё ещё держа поднос. Ронье подошла к кроватке и заглянула в неё, чтобы проверить, не проснулся ли ребёнок, но Лизетта, дочь сильнейшего рыцаря и сильнейшего кулачного бойца, продолжала счастливо спать, ничего не заметив.
 
 ***
+
+## Продолжение завтра...
 
 Исукан pushed out the guards who ran inside through the door after hearing the roar and blocked it with two legs from a chair, then lined up some other chairs by the window.
 
@@ -623,9 +623,9 @@ Seeing that the story was over, Шейта went down one step.
 ## Примечания:
 
 1. <a name="Prim1"></a>宵呼, “Вечерний зов”. 
-2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).
-3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
-4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “miruku” (ミルク). The explanation for this will be given below.
+2. <a name="Prim2"></a>В оригинале: “…а затем буквально одна против тысячи сражалась…” используется термин 一騎当千 (иккитоусен) означающий “храбрый воин” и буквально “один, стоящий тысячи”.
+3. <a name="Prim3"></a>В оригинале: ひと声鳴いてから, что буквально означает “пропев им человеческим голосом”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
+4. <a name="Prim4"></a>Здесь и далее, если не указан явно подвид (напр. "коровье молоко"), они называют молоко на Священном Языке, “милк” (ミルク). Объяснение этого будет дано ниже.
 5. <a name="Prim5"></a>It is ”katen” (カーテン) and “teburu” (テーブル) respectfully.
 6. <a name="Prim6"></a>Originally: 無音 (no-sound; silent) and 無手 (no-arm; empty-handed).
 7. <a name="Prim7"></a>This sounds “fūn” in Japanese, so Кирито might as well say sacred word _fun_.

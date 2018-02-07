@@ -621,7 +621,7 @@ Kirito, who waved his hands to the parents, immediately looked up the stairs to 
 ## Footnotes:
 
 1. <a name="Prim1"></a>宵呼, “Evening Call”. 
-2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”).
+2. <a name="Prim2"></a>Original says: “…and then literally one against thousand fought…” using the term 一騎当千 (ikkitousen) meaning “brave warrior” and “one worth of a thousand”.
 3. <a name="Prim3"></a>Original: ひと声鳴いてから, which literally means “after singing them with a human voice”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
 4. <a name="Prim4"></a>Here and onward, unless it's origin specified (e.g. "cow milk"), they name milk in sacred language, “miruku” (ミルク). The explanation for this will be given below.
 5. <a name="Prim5"></a>It is ”katen” (カーテン) and “teburu” (テーブル) respectfully.
