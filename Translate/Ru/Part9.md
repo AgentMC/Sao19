@@ -78,7 +78,7 @@ Given up trying to say anything, Ронье just squeezed Кирито body even
 
 ***
 
-Soon after that, listening to the six o'clock morning bells they ascended to the hall of the first floor above the ground, to meet Шейта and Исукан coming back from the dark arts masters’ guild headquarters.
+Soon after that, listening to the six o'clock morning bells they ascended to the hall of the first floor above the ground, to meet Шейта and Исукан coming back from the гильдия мастеров тёмных искусств headquarters.
 
 They got together and shared stories but unfortunately it seems that it wasn’t possible to get any information directly related to kidnappers.
 

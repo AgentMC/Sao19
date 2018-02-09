@@ -68,7 +68,7 @@ Saying so with a tough face, Кирито turned his gaze to the window.
 
 Кирито leaned forward to Исукан who declared this.
 
-"In such a case, should you not ask for a cooperation from the dark arts masters’ guild? We all well-remember the deeds of D.I.L., and the obvious inhospitality of dark arts masters can’t be helped, but... it is better for them to protect the castle as much as possible. Only guards are unreliable for defending against arts."
+"In such a case, should you not ask for a cooperation from the гильдия мастеров тёмных искусств? We all well-remember the deeds of D.I.L., and the obvious inhospitality of dark arts masters can’t be helped, but... it is better for them to protect the castle as much as possible. Only guards are unreliable for defending against arts."
 
 "I wonder if the ear pain pays off."
 

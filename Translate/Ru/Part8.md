@@ -342,7 +342,7 @@ She could not put all the fears and thoughts swirling like a storm into words, b
 
 Шейта, who noticed the gesture, relaxed her mouth a little. She nodded to Ронье as if she could feel slightly relieved and said in a low voice.
 
-"First, I will go to the dark arts masters’ guild headquarters in the northern district to get the information. First of all, the who broke into this room is surely a stray master who does not belong to the current guild, but if minion was improved, I might be able to trace from that fact."
+"First, I will go to the гильдия мастеров тёмных искусств headquarters in the northern district to get the information. First of all, the who broke into this room is surely a stray master who does not belong to the current guild, but if minion was improved, I might be able to trace from that fact."
 
 "I understood... that, I will go with you. If Шейта is alone there, the arts masters may try to mislead."
 

@@ -396,7 +396,7 @@ She instinctively rounded eyes hearing the description from Kirito.
 
 Isukan sighed and added.
 
-"The problem is that human being killed... It would be impossible......For everyone who are going on sightseeing in Human World, I have letters in writing saying that fighting and killing is prohibited by the name of Dark Territory tribe leaders and the commander of the Dark Territory himself. One by one, I have signed all of them... As long as there is a "the law of the strongest", only one person can ignore that order in the dark world."
+"The problem is that human being killed... It would be impossible......For everyone who are going on sightseeing in Human World, I have letters in writing saying that fighting and killing is prohibited by the name of Dark Territory tribe leaders and the commander of the Dark Territory himself. One by one, I have signed all of them... As long as there is a "the law of the strongest", only one person can ignore that order in the Dark Territory."
 
 The moment Ronye thought it was, of course, that Isukan himself, Scheta added:
 
