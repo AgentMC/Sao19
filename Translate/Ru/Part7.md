@@ -524,101 +524,99 @@ _Нет, этот парень так просто тебе сбежать не 
 
 ***
 
-### Продолжение завтра
+Кирито и Ронье одолжили личную ванную комнату Шейты и Исукана чтобы смыть с лица краску, а также пыль долгого пути, после чего их проводили в гостевую комнату на том же этаже.
 
-Кирито and Ронье who borrowed a personal bathtub of Шейта and Исукан and washed off the face paint and dirt of the long journey, were introduced to the guest room on the same floor.
+Судя по всему, двое внезапных посетителей были представлены внутри замка как курьеры Мира Людей.
 
-It seemed that the two sudden visitors were made known inside the castle as couriers from Мира Людей.
+Поскольку Кирито всё ещё скрывал, что он на самом деле Премьер-Мечник Мира Людей, охранники сперва с подозрением косились на его лёгкую одежду, необычную для посланника, но после изменили своё отношение, заметив свисающие с поясов этих двоих мечи. В конце концов, в Тёмной Территории оружие класса Божественный Инструмент было ещё более редким, чем в Мире Людей.
 
-Because it was hidden that Кирито was the Мира Людей Премьер-Мечник himself, the guards were looking suspiciously at the light clothing that would not be normal for a messenger, but they changed attitude after noticing swords hanging from the waists of the two people. After all, in Тёмной Территории, weapons of the Sacred Treasure class seem to be rarer than in Мира Людей.
+Они недолго передохнули в своих апартаментах на две комнаты, затем в полночь пообедали с Исуканом и Шейтой. Во второй половине дня они отправились в запряжённой лошадьми карете посетить штаб-квартиру Ордена Тёмных Рыцарей и тренировочный центр клана кулачных бойцов в центре города; Кирито, казалось, без особых проблем мог победить помощника тренера кулачных бойцов, которого звали "Однорукий гигант", но поскольку "Мы же тут инкогнито!", он с успехом имитировал, что сражается не на жизнь а на сметь и уклонялся от ударов в самый последний  момент.
 
-They did a short break in this two-rooms apartment, then had lunch with the couple of Исукан and Шейта at noon. In the afternoon they were taken by a horse-drawn carriage to see the Dark Knights Order Headquarters and the training center of the Fist Fighter group in the center of the city; Кирито seemed to be able to really make a game with the fist fighter headmaster assistant called one-handed giant, but "Because we’re incognito!" made an appearance of fighting for his life and avoiding his blows in the last moment.
+После этого они увидели центральный рынок и большой стадион, но конечно, это не просто была приятная прогулка от начала и до конца. Кирито с Исуканом использовали каждую выпадающую возможность чтобы продолжать беседу об инциденте, и Ронье оставалось лишь следить за окружением, выполняя свою роль эскорта. Однако, поскольку она была в паре с Шейтой, высокоранговым Рыцарем Целостности, называемой "Молчунья", случись какое бы то ни было нападение, шанса защитить их Ронье не должно было бы представиться, но —
 
-After that, they saw the central market and the big stadium, but of course, it wasn’t just going on a pleasure jaunt from beginning to an end. Кирито and Исукан used every opportunity they saw to exchange opinions on the incident and Ронье continued paying attention to the surroundings to fulfill the role of escort. However, since she was accompanied by Шейта, a high-ranking Integrity Knight, called "Silent", there would have been no opportunity for Ронье to act should any attack happen, but —
+Если так подумать, уж слишком поздно она это заметила. Шейта, и когда оседлала Ёиёби, и во время тура по городу, не несла с собой меча на поясе.
 
-Now that she considered, she had noticed it way too late. Шейта, both when she was riding Yoiyobi and during the city tour, did not carry a sword at her waist.
+Трясясь в запряжённой лошадьми карете на обратном пути в замок, Ронье немного сдвинулась на сидении ближе к Шейте и позвала её.
 
-While being shaken by a horse-drawn carriage on the way back to the castle, Ронье shifted her body a little towards Шейта on the couch, and called.
+"Оу, Шейта-сама. Вижу вашего меча нет при вас, не могу не спросить.......?"
 
-"Oh, Шейта-сама. Your sword seems to be missing, can’t help asking.......?"
+Рыцарь кивнула и сузила глаза, словно бы припоминая что-то ностальгическое.
 
-The knight nodded and narrowed both eyes as if remembering something nostalgic for a moment.
-
-"Yeah... For me, the "Black Lily Sword" is the first and last loved sword."
+"Да... Для меня "Меч Чёрной Лилии" будет первым и последним любимым мечом."
 
 "............"
 
-Ронье still could not infer the way of how the Integrity Knight could lose the beloved sacred treasure. Шейта faintly smiled slightly touching with her fingertips the hands of Ронье, who was in the loss of words.
+Ронье всё ещё не могла понять, как Рыцарь Целостности ухитрилась потерять свой любимый Божественный Инструмент. Шейта легко улыбнулась, слегка касаясь кончиками пальцев руки Ронье, которая не знала что и сказать.
 
-"I am now not a "silent" but rather "unarmed" knight<sup><a href="#Prim6">6</a></sup>. But I am pleased with what I have accomplished....... Sometimes, I remember my Black Lily, and then I feel lonely."
+"Я теперь не "молчаливый" а скорее "безоружный" рыцарь<sup><a href="#Prim6">6</a></sup>. Но я довольна тем, чего смогла достичь....... Иногда я вспоминаю свою Чёрную Лилию, и тогда мне становится одиноко."
 
-"So… it is……"
+"Так… это тогда……"
 
-_── This person is totally unreachable and incomprehensible to me._
+_── Нет, этот человек для меня совершенно недостижим и непостижим._
 
-Yet again, she felt how deepens and widens the abyss of difference between the her being a knight trainee and the high-ranked knight, and that moment it was the turn of Шейта to ask an unexpected question.
+И снова она почувствовала сколь широка и глубока пропасть различий между ней как учеником рыцаря и высокоранговым рыцарем, но в тот миг уже Шейта неожиданно спросила у неё.
 
-"Had this sword just been given to you?"
+"Тебе этот меч недавно даровали?"
 
-"Y-yes, I have not decided on its name."
+"Д-да, я ещё не придумала имя."
 
-Nodding, she gently stroked the silvery guard.
+Кивнув, она мягко погладила серебристую гарду.
 
-"Right, your connection to this sword is still very weak, but it is a very good sword. Be careful...... Although the war is over, the battle of the knight never ends."
+"Точно, твоя связь с этим мечом ещё очень слаба, но это очень хороший меч. Будь бдительна...... Война окончена, но битва рыцарей никогда не заканчивается."
 
-"── Yes!"
+"── Да!"
 
-When Ронье responded with a clear voice, Кирито and Исукан sitting in front looked back in surprise.
+Когда Ронье в голос ответила, Кирито и Исукан, сидевшие впереди, удивлённо на них посмотрели.
 
-Eventually the carriage passed through the city area and returned to the Обсидия Castle in the normal way of passing through the gates across the bridge.
+Наконец, карета покинула городскую территорию и вернулась в замок Обсидия обычным путём,проехав сквозь ворота по ту сторону большого моста.
 
-Although Обсидия Castle with its height of 500 mel and fifty floors was only slightly below the Центральный Собор, there was no automatic elevator as in Собор. In other words, it is only a matter of going up the stairs to reach to the upper level, which was also a countermeasure against the raiders.
+Хотя замок Обсидия с его высотой в 500 мел и пятьюдесятью этажами был лишь немногим ниже Центрального Собора, такого лифта, как в Соборе, здесь не было. Иначе говоря, чтобы попасть наверх, оставалось только идти по ступеням, что, впрочем, служило дополнительным средством защиты от нападения.
 
-To the 49th floor where the Исукан lived, four people climbed up without a single stop. The couple and Кирито did not seem to lost breathe, but Ронье said after having several “**\~ha…\~ha…**” after arrival, that even in such a place she realizes the lack of training.
+На 49й этаж, где жил Исукан, четверо людей вобрались без единой передышки. Парочка и Кирито не потеряли дыхание, но Ронье подумалось, пока она выдавала несколько тяжёлых “**\~ха…\~ха…**”, что даже в таком месте она ощущает недостаток тренировки.
 
-Ронье, still panting, thanked the three who waited and that moment she noticed that the big stairs were still on and tilted her neck.
+Ронье, всё ещё не отдышавшись до конца, поблагодарила троицу, что подождали её, и в тот момент она заметила, что широкая лестница продолжалась дальше, и наклонила голову.
 
-"Hmm...... Шейта-сама, what is up there?"
+"Хмм...... Шейта-сама, а что там сверху?"
 
-It was not the full-authority ambassador but the commander who answered the question.
+На вопрос ответил не полномочный посол, а главнокомандующий.
 
-"There is a throne seat on the fiftieth floor. I only entered once or twice, though."
+"На пятидесятом этаже тронный зал. Но я там был только раз или два."
 
-"Oh...... is that the emperor's throne?"
+"О...... так там императорский трон?"
 
-Now when Кирито asked, Исукан nodded, frowning.
+Теперь, когда Кирито это уточнил, Исукан кивнул и нахмурился.
 
-"It is, it is exactly what the Emperor Vector came down a year and few months ago."
+"Он самый, именно там Император Вектор сошёл год и несколько месяцев назад."
 
-"Would you mind me taking a quick...?"
+"Вы не будете против, если я ненадолго...?"
 
-Исукан jumped ahead and spread both hands in front of Кирито whose face became dangerously curious.
+Исукан выпрыгнул вперёд и расставил руки в стороны перед Кирито, на лице которого загорелась опасное любопытство.
 
-"Of course...... of course, the door on the fiftieth floor was closed again with the "sealing chain" the moment Vector was killed, and it cannot be sliced with anything anyway. From the fiftieth floor, there is a legend, one can see the Mountain Range at the Edge and the Great Eastern Gate, so I tried to get in myself again, but...."
+"Конечно...... конечно, стоило Вектору погибнуть, и дверь на пятидесятый этаж снова заперла "запечатывающая цепь", которую ничем невозможно рассечь. Есть легенда, что с пятидесятого этажа можно увидеть Горную Гряду-на-Грани и Великие Восточные Врата, так что я сам пытался туда  попасть, но...."
 
-Listening to the fist fighter explanation, when he said “it cannot be sliced”, the Integrity Knight nodded once and added.
+Слушавшая объяснения кулачного бойца Рыцарь Целостности кивнула на его слова “невозможно рассечь”и добавила.
 
-"I borrowed a sword from the treasury and tried it, but the chain could not be sliced. If it was a Black Lily Sword I could probably slice it though."
+"Я позаимствовала меч из сокровищницы и попыталась им, но цепь не поддаётся разрезу. Хотя, будь это Меч Чёрной Лилии, я бы, пожалуй, смогла."
 
-"...... Bad luck<sup><a href="#Prim7">7</a></sup>............"
+"...... Не повезло<sup><a href="#Prim7">7</a></sup>............"
 
-Ронье who felt that "I want to challenge it with the Sword of the Night Sky!" said with the voice of Кирито will be the next phrase to sound, quickly pulled his right sleeve twice. It seems that Кирито also felt Ронье's "Absolutely unacceptable!", and after he looked up at the stairs once, he nodded again.
+Ронье почувствовавшая, что "Хочу испытать её Мечом Ночного Неба!" сказанное голосом Кирито будет следующей прозвучавшей фразой, быстро два раза дёрнула того за правый рукав. Похоже, что Кирито также почувствовал Роньино "Совершенно неприемлемо!", и просто кивнул, снова посмотрев вверх по лестнице.
 
-"Okay, then I’d say the tour is over."
+"Ладно, тогда, походе, наш тур окончен."
 
-"Sort of, this dinner some rare things<sup><a href="#Prim8">8</a></sup> will be cooked so I have high expectations."
+"Типа того, на ужин будут приготовлены разные редкие штуки<sup><a href="#Prim8">8</a></sup> так что у меня высокие ожидания."
 
-"Looking forward to it."
+"С нетерпением жду."
 
-Seeing that the story was over, Шейта went down one step.
+Поняв, что прогулка закончена, Шейта спустилась на ступеньку вниз.
 
-"I will give milk to Лизетта. See you at the dinner."
+"Пойду дам Лизетте милк. Увидимся за ужином."
 
-"Oops, I will also go. I still have seen her face only once today."
+"Ой, я с тобой. А то её только раз за сегодня видел."
 
-Кирито, who waved his hands to the parents, immediately looked up the stairs to the top floor again. When Ронье silently shook her head, he said with a bitter smile.
+Кирито, помахав рукой родителям, тут же снова посмотрел на лестницу, ведущую на верхний этаж. Ронье молча покачала головой, и он сказал с горькой улыбкой.
 
-"I understand. ......Well, shall we go back to the room?"
+"Да понял я. ......Ладно, вернёмся в комнату?"
 
 ## Примечания:
 
@@ -627,6 +625,6 @@ Seeing that the story was over, Шейта went down one step.
 3. <a name="Prim3"></a>В оригинале: ひと声鳴いてから, что буквально означает “пропев им человеческим голосом”, <nobr>¯ \ _ (ツ) _ / ¯</nobr>.
 4. <a name="Prim4"></a>Здесь и далее, если не указан явно подвид (напр. "коровье молоко"), они называют молоко на Священном Языке, “милк” (ミルク). Объяснение этого будет дано ниже.
 5. <a name="Prim5"></a>Это, соответственно, ”занавеска” (カーテン, curtain) и “стол” (テーブル, table).
-6. <a name="Prim6"></a>Originally: 無音 (no-sound; silent) and 無手 (no-arm; empty-handed).
-7. <a name="Prim7"></a>This sounds “fūn” in Japanese, so Кирито might as well say sacred word _fun_.
-9. <a name="Prim8"></a>(this footnote was altered post the chapter had been translated) モン, "thing" is a specific of Исукан's speech. He uses it to refer to dishes, people, artifacts and even events.
+6. <a name="Prim6"></a>В оригинале: 無音 (без-звука; молчунья) и 無手 (без-оружия; безоружная). Вполне можно было использовать и "Бессловесная", но во-первых, у этого слова какой-то нехороший оттенок, а во-вторых, есть уже типа как канон.
+7. <a name="Prim7"></a>Это звучит как “фун” на японском, так что Кирито вполне мог иметь в виду и священное слово _fun_ (здесь: "занятно").
+9. <a name="Prim8"></a>モン, "штука" в этом переводе — особенность речи Исукана. Он использует это слово ссылаясь на еду, людей, предметы и даже события. На удивление, я не нашёл подобного в предыдущих книгах. Либо я плохо искал, либо это особенность "лунной" арки.
