@@ -1,23 +1,21 @@
-# Afterword
+# Послесловие
 
-Afterword
+Спасибо за то, что прочитали том 19 Сворд Арт Онлайн "Мун Крейдл".
 
-Thank you for reading Sword Art Online volumes 19 "Moon Cradle".
+Эта история считается продолжением арки Алисизации, законченной в 18м томе, но поскольку в тексте повествования нам несколько раз встречается слово "позже", позвольте мне пояснить эти места. (Однако не забывайте, что это спойлер!)
 
-This story is treated as a follow-up to an Alicization ark completed in volume 18, but since there are couple of times we have met word "later" throughout a story, let me explain them in the first place. (Please keep in mind that it’s a spoiler!)
+В середине 18го тома, Подмирье вошло в "фазу предельного ускорения", в котором время течёт примерно в 5 миллионов раз быстрее, чем в реально мире. Кирито и Асуна в тот момент остались внутри и разлогинились, проведя в Подмирье две сотни лет, но действие "Лунной Колыбели" разворачивается в самом начале этого двухсотлетнего промежутка. Иначе говоря, в 19м томе проходит менее 5 дней, но в реальном мире прошла только одна пятимиллионная от этого, около 0,08 секунды.
 
-In the middle of volume 18, Underworld has entered the "critical acceleration phase" where time flows about 5 million times faster than the speed of the real world. Кирито и Асуна were left behind at that time и logged out after spending two hundred years in the Underworld, but this "Moon Cradle" is a very early episode of that two hundred years span. In other words, in the volume 19, less than 5 days are passing, but in the real world it is only about one five-millionth of that, about 0,08 seconds.
+Прошу прощения, что история так быстро закончилась, но она сразу же продолжится! В следующем томе действие вернётся на сцену Центории, и Кирито, Ронье и Асуне придётся противостоять мастерски спланированному заговору. Я постараюсь опубликовать её как можно быстрее, так что пожалуйста, погодите немного.
 
-Sorry that the story ended so quickly but it will continue at once! In the next volume we will return to the stage of Centoria again, и Кирито, Ронье и Асуна will confront the conspiracy masterpiece. I'd like to publish it as soon as possible, so please wait a bit.
+Небольшое дополнение к содержанию.
 
-A small supplement to contents.
+По сюжету, Ронье представляет, какие номера ей и Тейзе выдадут, когда они станут Рыцарями Целостности, но есть те, кто удивлялся “а разве номер 32 не принадлежит Юдзио?” И правда, рука Администратор очистила его память и даровала ему титул "Рыцарь Целостности Юдзио Синтезис Сёти-Ту", но, восстановив память после сражения с Кирито, он сразу же после погиб в битве против Администратор. Поскольку Кирито — единственный, кому известны эти обстоятельства, во времена "Лунной Колыбели" он никому не рассказал о том, что Юдзио стал Рыцарем Целостности. Поэтому номер 32 не будет пропущен, и его надлежит кому-то получить.
 
-During the story line, Ронье imagines the numbers her и Тейза will get becoming Integrity Knights, but there were also people who wondered “wasn’t the number 32 Yujio’s?” Indeed, the hand of the Administrator cleaned his memory и gave him the title of "Integrity Knight Yujio Synthesis Thirty-Two", but when he regained the memory after the fight with Кирито, he died in the battle against Administrator immediately after. As Кирито is the only human who knows the circumstances, at the time of "Moon Cradle", he did not tell anyone that Yujio has become an Integrity Knight. Therefore, number 32 shall not be skipped, и it is supposed to be taken over by someone.
+Полагаю, в следующем томе до этого не дойдёт, но однажды я с удовольствием напишу о том, как Ронье и Тейза станут Рыцарями Целостности.
 
-I guess, we won’t reach this point in the next volume, but I’d love to write about how Ронье и Тейза become Integrity Knights someday.
+18го февраля 2017 года, примерно через неделю после выхода этой книги, будет, наконец, выпущена театральная версия “Sword Art Online: Ordinal Scale”. Это совершенно другая AR-игра в сравнении с бывшими в серии ранее VRMMO, но она полна потрясающей рисовки, так что ни за что не пропустите её на большом экране! И, abec-сан, Мики-сан, я очень сожалею за всё то беспокойство, что доставил вам в этот раз! И спасибо вам за следующий том!!
 
-On February 18th, 2017, about one week after the release of this book, the theatrical version of “Sword Art Online: Ordinal Scale” will finally be released. It is a totally different AR game compared to the past VRMMOs, but it is packed with amazing graphics, so be sure to take a look at it on a big screen of the theater by all means! и abec-сан и Miki-сан, I’m very sorry for all the disturbance I gave you this time! Thank you also for the next volume!!
+Некий день в январе 2017
 
-A certain day in January 2017
-
-Kawahara Reki
+Кавахара Рэки

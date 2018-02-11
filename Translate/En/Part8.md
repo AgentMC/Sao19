@@ -235,7 +235,7 @@ Kirito with a doubtful face turned his eyes towards the night sky outside the wi
 
 "He got on a wounded minion and disappeared in just two minutes...?"
 
-_According to lectures by librarians of the large library, minions' flight speed is about the same as people run. We are at a height of 500 mils, it seems impossible to completely disappear in just two minutes in any direction, but if the opponent is a highly-ranked dark arts master, a hiding technique or something alike may be used._ However, if Kirito and Scheta weren’t able to find them, Ronye wouldn’t be either.
+_According to lectures by librarians of the large library, minions' flight speed is about the same as people run. We are at a height of 500 mels, it seems impossible to completely disappear in just two minutes in any direction, but if the opponent is a highly-ranked dark arts master, a hiding technique or something alike may be used._ However, if Kirito and Scheta weren’t able to find them, Ronye wouldn’t be either.
 
 Being helpless, Ronye crossed the floor and approached the baby’s bed.
 
@@ -261,7 +261,7 @@ Standing beside Kirito who received the message, Ronye ran her eyes over the bla
 
 "............ Tha-t-t is............"
 
-Leaking such words, Ronye shook her head several times. Today is the 21st day, just like it said. There was only about 13 or 14 more hours until the sunset which was set as the execution time limit.
+Leaking such words, Ronye shook her head several times. _Today is the 21st day, just like it said. There was only about 13 or 14 more hours until the sunset which was set as the execution time limit._
 
 At first, she thought that Isukan and Scheta could not do such a thing.
 
@@ -309,7 +309,7 @@ In the bedroom filled with a heavy silence, the voice of Kirito sounded soon.
 
 He was in such a condition that even standing up was hard, and Isukan set down on the bed again, but still denied Kirito’s words.
 
-"The problem is, in addition to dizzy guards of Lisa, it's me who has been dazzled. Th demon... minion of the dark arts master is supposed to be unable to fly until this height, or at least so I thought. Only the dragons of the Dark Knights Order can fly to this point, but they are prohibited from coming anywhere other than the departure and arrival platform at the back of the castle. So, I was convinced that there were no dangers coming in through the window..."
+"The problem is, in addition to dizzy guards of Lisa, it's me who has been dazzled. The demon... minion of the dark arts master is supposed to be unable to fly until this height, or at least so I thought. Only the dragons of the Dark Knights Order can fly to this point, but they are prohibited from coming anywhere other than the departure and arrival platform at the back of the castle. So, I was convinced that there were no dangers coming in through the window..."
 
 Both hands firmly gripped knees, and creaking added to the groaning. Scheta came to her husband and placed her slender hand on his.
 
@@ -342,7 +342,7 @@ She could not put all the fears and thoughts swirling like a storm into words, b
 
 Scheta, who noticed the gesture, relaxed her mouth a little. She nodded to Ronye as if she could feel slightly relieved and said in a low voice.
 
-"First, I will go to the dark arts masters’ guild headquarters in the northern district to get the information. First of all, the who broke into this room is surely a stray master who does not belong to the current guild, but if minion was improved, I might be able to trace from that fact."
+"First, I will go to the dark arts masters’ guild headquarters in the northern district to get the information. First of all, the one who broke into this room is surely a stray master who does not belong to the current guild, but if minion was improved, I might be able to trace from that fact."
 
 "I understood... that, I will go with you. If Scheta is alone there, the arts masters may try to mislead."
 

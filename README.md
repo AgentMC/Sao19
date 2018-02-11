@@ -1,6 +1,6 @@
 # Sao 19 Translation
 ## Contains English (cleaned out machine) and Russian translation of Sword Art Online, volume 19 (Moon Cradle, part 1)
-## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 19 (Лунная Колыбель, часть 1) 
+## Содержит английский (вычитанный машинный) и русский переводы Sword Art Online том 19 (Мун Крейдл / Лунная Колыбель, часть 1) 
 
 Warning: I almost don't know Japanese (only Chinese a little), so translation is done through Google Translate. Unlike for Volume 18 (translation of which involved OCR), I'll make every effort to produce readable English text. Feel free to enhance English if you wish (accepting pull requests). However, please keep in mind that English version is still used mainly as a placeholder for Russian translation.
 
@@ -23,7 +23,7 @@ Overall progress: done, 14 Jan 2018.
 Внимание: я японского почти совсем не знаю (только немного говорю на китайском), так что перевод выполняется с помощью Гугл Переводчика. С получившегося английского на русский уже перевожу руками. Если я где-то налажал или вы знаете точный перевод (я оцениваю русский перевод как 80% соответствия оригиналу и 90% соответствия фанатскому анлейту... ну, когда он появится) — то пожалуйста кидайте пулреквесты.
 
 Прогресс: `########################################>--------- 81.51%`  
-Окончание ориентировочно: 17.02.2018
+Окончание ориентировочно: 15.02.2018
 
 Содержание:
 
@@ -36,7 +36,7 @@ Overall progress: done, 14 Jan 2018.
 - [Часть 5](Translate/Ru/Part5.md)
 - [Часть 6](Translate/Ru/Part6.md)
 - [Часть 7](Translate/Ru/Part7.md)
-- [Часть 8](Translate/Ru/Part8.md) (40%)
+- [Часть 8](Translate/Ru/Part8.md)
 <!-- [Часть 9](Translate/Ru/Part9.md)  -->
 <!-- [Часть 10](Translate/Ru/Part10.md)-->
 <!-- [Послесловие](Translate/Ru/AW.md) -->

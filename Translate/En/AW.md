@@ -1,8 +1,6 @@
 # Afterword
 
-Afterword
-
-Thank you for reading Sword Art Online volumes 19 "Moon Cradle".
+Thank you for reading Sword Art Online volume 19 "Moon Cradle".
 
 This story is treated as a follow-up to an Alicization ark completed in volume 18, but since there are couple of times we have met word "later" throughout a story, let me explain them in the first place. (Please keep in mind that it’s a spoiler!)
 
