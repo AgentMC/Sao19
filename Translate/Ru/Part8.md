@@ -2,170 +2,172 @@
 
 <!--<sup><a href="#Prim1">1</a></sup>-->
 
-There were only five of them at the dinner: Исукан, Шейта, Кирито, Лизетта and Ронье, but it was warm, lively and as enjoyable as a dinner in latter’s family house in Northern Centoria.
+За ужином присутствовали лишь они пятеро: Исукан, Шейта, Кирито, Лизетта и Ронье, но проходил он живо, тепло и столь же весело как и ужины в семье последней в Северной Центории.
 
-It seemed that Исукан in half-mischievous mind arranged many dubious delicacies such as "Broth lizard on skewers" or "Spark mushroom wrapped in fried bean curd", which Кирито energetically and courageously challenged getting as the result bizarre high voice, so Лизетта laughed “**kya-kya**” each time he spoke afterwards. Looking at their loved daughter, Шейта and Исукан also happily smiled.
+Оказалось, что Исукан, наполовину в шутку, подготовил множество сомнительных деликатесов, таких как "Суповая ящерица на вертеле" или "Искристый гриб с гарниром из жареной фасолевой шелухи", который Кирито энергично и мужественно испытал, получив в результате странный высокий голос, так что Лизетта смеялась “**кья-кья**” всякий раз когда он после этого что-либо говорил. Глядя на свою любимую дочь, Шейта и Исукан также счастливо улыбались.
 
-After finishing the meal that brought her to the feeling of “_a baby, a family, it is all good_”, and bathing the second time today, Ронье returned to the room they were given.
+Закончив с едой, подарившей ей тёплую уверенность в том, что “_ребёнок, семья, это всё так здорово_”, и искупавшись во второй раз за сегодня, Ронье вернулась в выделенную им комнату.
 
-The bathroom was truly small compared to the public baths of Центральный Собор, but considering that this is roughly the top floor of a gigantic castle with a height of 500 mel, fresh hot water available throughout the day seemed to be a miracle. As they did not use sacred art like in Собор, she wondered how the massive amounts of hot water were transferred, but turned out when it was just a rocky mountain in a very beginning, hot water gushed from near the top and the water canals were still used for cooking, bathing and heating even after the mountain became a castle.
+Ванная комната была много меньше в сравнении с общественной ванной Центрального Собора, но принимая во внимание, что это практически верхний этаж гигантского замка высотой в 500 мелов, проточная горячая вода, доступная целый день, казалась каким-то чудом. Здесь не использовали священное искусство, как в Соборе, и она заинтересовалась, каким образом удавалось перемещать немалые объёмы воды, но оказалось, что в самом начале, когда это просто была скалистая гора, практически сверху извергалась горячая вода, и каналы, по которым она бежала всё ещё использовались для готовки, купания и обогрева даже после того как гора стала замком.
 
-Compared to last night's cheap hotel, the room was warm, the bed was soft, and sleepy Ронье changed to prepared sleepwear before hearing the 9 o'clock bell. _I will be coming home to Мира Людей early tomorrow morning so it's better to go to bed early, although somehow it is regrettable that the day is going to an end,_ she though while lying down and staring at the northern wall.
+По сравнению с дешёвой таверной в прошлую ночь, комната была тёплой, кровать — мягкой, и сонная Ронье переоделась в припасённое ночное одеяние ещё до того, как услышала девятичасовой колокол. _Я отправлюсь домой в Мир Людей завтра ранним утром, так что и лечь уж лучше пораньше, хотя и жаль, что день уже заканчивается,_ думала она, пока лёжа разглядывала северную стену.
 
-_Beyond the wall, Кирито is also preparing to sleep soon. Or had he gone to bed already? We were talking to each other for over forty hours since departing from the central capital but I feel that I still haven’t told him anything important yet.  
-Of course, what is the most important is the escort mission, I offered to accompany him not to chat, nevertheless ──_ and Ронье felt the strong urge to get up from the bed and knock the next room door.
+_За этой стеной Кирито тоже скоро ляжет. А может быть он уже в кровати? Мы постоянно общались друг с другом в течение сорока часов с момента вылета из центральной столицы, но у меня такое чувство, что я до сих пор ему ничего важного не сказала.  
+Конечно, моя миссия заключается в роли эскорта, я предложила отправиться с ним не для разговоров, и всё равно ──_ и Ронье почувствовала сильное желание подняться с кровати и постучаться в дверь в соседнюю комнату.
 
-But Кирито had a loved person, and the name of her was Асуна. They were both people from real world, she was as beautiful as goddess Stacia, friendly without discrimination to anyone, stronger than anyone if we’re talking swords. At the time of a Foreign World War, Ронье could only tremble in a horse-drawn carriage, but Асуна, even terribly injured, protected Кирито with her blood and sweat. There was no way she could possibly compete with such a person.
+Но у Кирито была любимая, и имя ей было Асуна. Они оба люди из реального мира, она была прекрасна как богиня Стасия, дружественна к каждому без исключений, сильнее любого если речь пойдёт о мечах. Во времена Войны с Внешним Миром, Ронье могла только дрожать в запряжённой лошадьми повозке, но Асуна, пусть и ужасно раненая, защищала Кирито своим потом и кровью. Она и и близко не могла сравниться с таким человеком.
 
-_Do not let those feelings reach your mouth. No way._
+_Не дай этим чувствам сорваться с языка. Ни в коем случае._
 
-Ронье wrapped her head in a thick blanket and strongly closed the eyes. However, the drowsiness that had left was hardly coming back.
+Ронье обернула голову толстым полотенцем и зажмурилась. Однако спавшая сонливость едва ли возвращалась.
 
 ***
 
-Ронье who finally fell asleep, and due to tiredness of a long journey had even forgot to turn off the ore lantern, was awaked by the feeling that she heard a faint cry.
+Ронье удалось, наконец, заснуть, и из-за усталости от долгого пути она даже забыла потушить один из рудных светильников, но её разбудило чувство, как будто она услышала тихий крик.
 
-Outside of the window was still dark night. It was about 2 o'clock or 3 o'clock by her sensations. She listened carefully while lying on the bed, then closed the eyelids again thinking that it was a dream. But then, this time certainly, a dismayed voice came from behind the door. And multiple busy footsteps sounded.
+За окном всё ещё стояла тёмная ночь. По её ощущениям было около двух или трёх часов. Лёжа на кровати, она какое-то время настороженно прислушивалась, затем закрыла глаза, решив что это был сон. Но затем, на этот раз отчётливо, из-за двери прозвучал отчаянный вскрик. За которым последовало множество шагов.
 
-Remaining in a nightwear, she got up to the floor and pushed an ear against the door. When the footsteps which seemed to be from guards quickly moved in towards the stairway and she slowly opened the door, Кирито’s face shown from the next room.
+Всё ещё в пижаме, она встала на пол и прислонила ухо к двери. Когда шаги, судя по всему, стражников, быстро двинулись к ведущей на нижние этажи лестнице и она медленно приоткрыла дверь, из соседней комнаты показалось лицо Кирито.
 
-Still half asleep, the Премьер-Мечник approached her in small steps.
+Всё ещё полусонный, Премьер-Мечник небольшими шагами приблизился к ней.
 
-"сенпай ... what happened?"
+"Сенпай ... что случилось?"
 
-"Don’t know... but it seems all the guards have gone to the lower floor..."
+"Не знаю... но походе вся стража спустилась на этаж ниже..."
 
-Кирито seemed to have finally awakened after blinking several times, and said while covering Ронье’s shoulders with the cloak he wore.
+Кирито несколько раз поморгал и, похоже окончательно проснувшись, сказал, накрывая плечи Ронье своим плащом.
 
-"Let’s go as well."
+"Пошли с ними."
 
-"Er...eeeer? .... Is it okay?"
+"Э...эээээ? .... А это нормально?"
 
-"We might be able to help with something."
+"Вдруг и наша помощь пригодится."
 
-He lightly tapped her shoulder, so Ронье could only nod.
+Он легонько хлопнул её по плечу, так что Ронье могла только кивнуть.
 
-"But if you continue standing in the doorway, I will have to go back!"
+"Но если ты не уйдёшь с прохода, мне придётся пойти обратно!"
 
-Ронье rushed behind Кирито who began running immediately and followed him.
+Ронье пропустила Кирито, который тут же бросился бежать и последовала за ним.
 
-They ran down the stairs and arrived on the 48th floor, and at the same time, a scream could be clearly heard.
+Они сбежали вниз по лестнице и прибыли на 481 этаж, и в то же время, раздался чётко слышимый крик.
 
-That voice crying "Down there!" definitely belonged to Исукан. They nodded each other and ran through a wide corridor.
+Голо, крикнувший "Вон там!" определённо принадлежал Исукану. Они переглянулись и побежали по широкому коридору.
 
-On the right side at the end of the corridor, they saw a large two-sash door in front. The Обсидияn door decorated with silver, clearly guarding a considerably important area, was opened wide, and the voice of the guards filled with fear and hatred were constantly heard from the inside.
+Впереди, в конце коридора по правую руку они увидели большую двустворчатую дверь. Обсидиановая дверь, украшенная серебром и, очевидно, защищавшая какую-то весьма важную область, была распахнута настежь, и голоса стражников, исполненные страхом и гневом, постоянно долетали изнутри.
 
-Кирито and Ронье quickly passed through a corridor of about 20 meters and jumped into the room.
+Кирито и Ронье пронеслись по коридору длиной с 20 мелов и вбежали в комнату.
 
-Immediately, innumerable bright lights glowing on both sides dazzled the eyes. In light of ore lanterns, the guards of about ten people were standing in the passage, and ahead of them, was a large room filled with a myriad of decorated weapons and armor, all sorts of jewelry and ornaments. It must be an armor store of Обсидия castle, or a treasury.
+Тут же их глаза ослепили бесчисленные блики света со всех сторон. Свет от рудных ламп освещал около десяти стражников, сгрудившихся в проходе, а впереди за ними было большое пространство, заполненное мириадами украшенных доспехов и оружия, разнородных ювелирных изделий и прочих украшательств. Это должна была быть оружейная комната замка Обсидия, или же сокровищница.
 
-"It's monsters......!"
+"Это монстры......!"
 
-From the other side of the guards, the voice of Исукан resounded again. Кирито who had stopped the movement, jumped over the guards and disappeared behind them. Ронье also agreed, and having checked that the cloak covers her pajamas, she made a short run-up and kicked off the floor.
+Голос Исукана раздался вновь по ту сторону охранников. Кирито, на мгновение замерший, перепрыгнул охранников и исчез за ними. Ронье решила последовать за ним и, проверив что плащ надёжно прикрывает пижаму, она немного разбежалась и оттолкнулась от пола.
 
-Aincrad sword style followed by Кирито and Асуна emphasized the importance of running and jumping besides the characteristic continuous sword skill, and Ронье practiced every day. Thanks to that effort she succeeded in jumping over a group of guards and could hear men's surprised voices behind, but didn’t pay attention to that.
+Стиль меча Айнкрад, которому следовали Кирито и Асуна, подчёркивал важность бега и прыжков наравне с характерным навыком непрерывного меча, и Ронье тренировалась каждый день. Благодаря этим тренировкам, ей удалось перепрыгнуть группу стражников и позади неё раздались удивлённые мужские голоса, но она не придала этому значения.
 
-A few mels ahead, there were Исукан and Шейта in night dressing. And beyond them, there were two black things.
+В нескольких мелах от них находились Исукан и Шейта, также в спальной одежде. А за ними стояли две чёрные штуки.
 
-They could only be named monsters. Although the shape in the whole was close to a humans or sub-humans, the neck and arms were profusely long, and in front of a head like of some sort of fish, was a round restlessly shrinking mouth in which countless fangs grew inward. Four eyes were placed on all sides of the conical head, the wings with a thin membrane flapped on the back and the long tail loosely fell from the waist.
+Их только монстрами и можно было назвать. Хотя формой в целом они и походили на людей или суб-людей, шея и руки были неестественно длинными, и и спереди морды, напоминавшей рыбью, был круглый беспокойно дёргающийся рот, полный множеством растущих наружу клыков. На конической голове были расположены четыре глаза, с каждой из сторон по одному, сзади хлопали крылья с тонкими мембранами, а с талии свободно свисал длинный хвост.
 
-"Is that....... minions!?"
+"Это же....... миньоны!?"
 
-When Кирито screamed, Шейта and Исукан glanced back.
+Когда Кирито выкрикнул это, Шейта и Исукан обернулись.
 
-"Ah, have you woken up? However, we cannot involve visitors in our internal problems! Such a monster, I will beat up with one hit!"
+"А, ты тоже проснулся? Но мы не будем вовлекать гостей в наши внутренние проблемы! Такой монстр, да я с одного удара его свалю!"
 
-A fire-like glow wrapped Исукан’s clenched fist. But Шейта standing next to him quickly drew the right hand to stop her husband.
+Огнеподобное сияние окутало сжатый кулак Исукана. Но стоящая рядом Шейта быстро выдвинула в сторону руку, останавливая своего мужа.
 
-"The blood of minions is a poison. Unarmed man cannot attack."
+"Кровь миньонов — яд. Безоружный не может атаковать."
 
-"Even if so, I......."
+"Пусть даже так, я......."
 
-As Исукан groaned, two minions, as if they understood the talk of two people, spew out the air with sound “**fshaaa, fshaaa**”.
+Когда Исукан промычал это, миньоны, словно понимая речь двух людей, выдохнули воздух со звуком “**фшаааа, фшаааа**”.
 
-This was the first time to see with her own eyes, but Ронье had some knowledge about minions. They were artificial creatures used by Тёмной Территории dark arts masters thrown in large quantity into the early stage of the “Battle by the Great Eastern Gate” of the Foreign World War, successfully annihilated by the use of complete armament control of the sacred treasure "Time Piercing Sword" of the knight commander Bercouli. So, human forces soldiers did not suffer any damage at all, just saw the glimpse of slightly oversized bats, but the real thing was far more frightening than that. The length of the body was nearly 2 mel, and the claws blackening at the ends of the long arms were long and sharp like knifes.
+Впервые видя их собственными глазами, Ронье, тем не менее, имела представление о миньонах. Это были искусственные создания, используемые мастерами тёмных искусств Тёмной Территории, в больших количествах брошенные в атаку на раннем этапе “Битвы при Великих Восточных Вратах” Войны с Внешним Миром и успешно уничтоженные искусством полного контроля вооружения Божественного Инструмента "Пронзающий Время Меч" командира рыцарей Беркули. Так что войска людей не понесли от них никакого урона, а только краем глаза увидели великоватых летучих мышей, но в реальности они были намного более пугающими. Длина тел была примерно 2 мела, а когти, чернеющие на концах длинных рук, были вытянутыми и острыми как ножи.
 
-Moreover, it had strong resistance to a sacred art of any attribute, as well as puncturing and crushing damage, and it seemed that the most effective would be to slash with a sharp blade, but Шейта did not have a sword, of course. Ронье and Кирито, regretting to not have brought the sword from the room, both were unarmed.
+Более того, у них было сильное сопротивление священному искусству любого атрибута, также как и пронзающему и крушащему урону, и наиболее эффективным был бы удар острым клинком, но у Шейты, конечно, не было меча. Ронье и Кирито, уже пожалевшие, что не захватили из комнаты мечи, тоже были безоружными.
 
-"Honorable commander, leave it to us!"
+"Уважаемый главнокомандующий, оставьте это нам!"
 
-One of the guards shouted from the back, but Исукан stubbornly did not move.
+Выкрикнул сзади один из стражников, но Исукан упрямо не двигался с места.
 
-Same for minions, apparently, they only received instructions from those who controlled them not to attack but just give out threatening sounds. On both sides of monsters, several shelves collapsed, jewels and accessories were scattered on the floor, but it did not try to steal it.
+Так же как и миньоны, похоже, их хозяева лишь дали ми указания издавать пугающие звуки, но не атаковать. С обеих сторон монстров упало несколько полок, украшения и аксессуары застилали собой пол, но те не пытались ничего украсть.
 
-And Ронье finally noticed that in the first place those two had been able to invade the treasury close to the top floor without being noticed by many guards.... There are huge wings on their back so they did not have to climb up the stairs. They flew in the dark of the night and invaded through the window. Taking a closer look, one could see that windows behind minions were destroyed and only metal frames left.
+И Ронье, наконец, обратила внимание на то, что ваги сумели пробраться в практически верхний этаж огромного замка не замеченные стражниками.... У них сзади были большие крылья, так что по лестнице взбираться им не пришлось. Они летели под покровом ночной тьмы и пробрались через окно. Присмотревшись модно было заметить, что окна позади миньонов были разбиты, и остались только металлические рамы.
 
-_And all these factors, that means...... that means ──_
+_Все эти факторы, это значит...... значит, что ──_
 
-When she thought of it something similar to a sharp spark blasted in the center of Ронье's head, an that moment Кирито sharply inhaled air.
+Когда на подумала об этом, что-то напоминающее яркую искру взорвалось в самом центре головы Ронье, но в тот момент Кирито резко втянул воздух.
 
-"You two, avoid!"
+"Вы двое, уклонение!"
 
-The same time he shouted, he stuck the right hand out. A sparkling bright light spread around the palm, generating as much as thirty instances of cryogenic element at once.
+Вместе с выкриком, но выставил вперёд правую руку. Ладонь окутал искрящийся яркий свет, шедший от не менее тридцати одновременно созданных криогенных элементов.
 
-Шейта and Исукан who saw it quickly jumped aside. Suddenly Кирито released cryogenic elements and burst them all around two minions. Normally, cryogenic element just diffuses its power in a wide range, but since it was controlled by an advanced technique, cold air clung to minions, and black giants were frozen white.
+Шейта и Исукан, увидев это, быстро отпрыгнули в стороны. Внезапно Кирито выпустил криогенные элементы и взорвал их вокруг миньонов. Обычно, криогенные элементы просто рассеиваются в пространстве, но, контролируемый умелой техникой, холодный воздух окутал миньонов, и чёрные гиганты замёрзли.
 
-"**Gshaaaaa**!!"
+"**Гшааааааа**!!"
 
-Minions, shouting their round mouths on conical heads froze immediately and stopped moving. It was terrible freezing power, but minions made from clay had strong resistance to fire and ice. Even if it freezes for a moment, the life is not supposed to be reduced much ──
+Миньоны, крича своими круглыми ртами на конических головах, немедленно заледенели прекратили двигаться. Это была ужасающая мощь заморозки, но миньоны, созданные из глины, обладали высокой сопротивляемостью огню и льду. Даже если их ненадолго заморозить, сильно это их жизнь не уменьшит ──
 
-But, of course, Кирито was thinking about it. Keeping his right hand sticking out, he continued giving instructions.
+Но конечно, Кирито подумал об этом. Продолжая держать свою руку выставленной вперёд, он продолжил отдавать инструкции.
 
-"You two, now!"
+"Вы двое, сейчас!"
 
-"**Yshaaaa**!!"
+"**Йшаааааааа**!!"
 
-Исукан shouted and kicked off the floor. Шейта also followed him.
+Исукан крикнул и оттолкнулся от пола. Шейта последовала за ним.
 
-"**Ura-ra-ra-a-a!**"
+"**Ура-ра-ра-а-а!**"
 
-Исукан's fist wrapped with incarnation punched the trunk of the minion on the right. Immediately afterwards, the Шейта’s hand vertically sliced the minion on the left.
+Кулак Исукана, окутанный инкарнацией, ударил тело правого миньона. Сразу вслед за ним, рука Шейты вертикально разрезала миньона слева.
 
-In a moment, the minion on the right exploded into countless fragments, the left minion was split into two and fell to the left and right. Both were completely frozen, so not a drop of a toxic blood spilled.
+Через мгновение миньона справа разорвало на бессчётные осколки, а левый разделился на две половинки, которые упали в стороны. Оба были полностью заморожены, так что ни капли ядовитой крови не продлилось.
 
-The guards cheered behind, and amazed Исукан turned around and said with a smile of admiration.
+Позади радостно закричали стражники, и поражённый Исукан развернулся и произнёс с улыбкой, полной восхищения.
 
-"You are amazing beyond those rumors, Кирито. I was told, even high-ranked clerics can generate only five elements with one hand, one per finger..."
+"Ты потрясаешь сильнее, чем слухи о тебе, Кирито. Мне говорили, что даже высокоуровневые клерики способны создать только пять элементов одной рукой, по одному на палец..."
 
-"The story will be later, Исукан!"
+"Потом расскажу, Исукан!"
 
-Voice of Кирито, who cut the praise short, was feeling more tense than when he instructed the couple to attack.
+Голос Кирито, резко прервавший похвалу, звучал более напряжённо, чем когда он приказал этой паре атаковать.
 
-"Minions, despite possibly taking some treasure here, did not try to attack us. The purpose of the dark arts master who released them is surely a diversion to hold us off!"
+"Миньоны, хоть возможно и пытались украсть сокровища отсюда, но нас не атаковали. Цель мастеров тёмных искусств, что направили их, очевидно в том, чтобы задержать и отвлечь нас!"
 
-The moment she heard it, the dim guess Ронье got turned into a specific fear, and at the same time Шейта quickly paled.
+В тот момент, когда она это услышала, едва мерцавшая догадка Ронье обратилась в чётко осознанный страх, и в этот самый миг Шейта вдруг побледнела.
 
-"No way......"
+"О нет......"
 
-She muttered so with a faint voice and started to run fiery. Like a wind she rushed between Ронье and Кирито, through the guards, and jumped out of the treasury.
+Пролепетав это слабым голосом, она кинулась бежать. Словно ветер она пронеслась мимо Ронье и Кирито, сквозь стражников, и вылетела прочь из сокровищницы.
 
-"We too!"
+"И мы!"
 
-Кирито shouted pulling Исукан’s pajamas of Мира Людей Eastern Empire style and began running.
+Кирито выкрикнул, потянув Исукана за пижаму в стиле Восточной Империи Мира Людей, и тоже побежал.
 
-"Wha…, what is goi…, going on?"
+"Чт…, что прои…, происходит?"
 
-Кирито blushed and shouted to a fist fighter who leaked bewildered voice while kicking a polished Обсидияn floor barefoot.
+Кирито вспыхнул и выкрикнул кулачному бойцу, издавшему этот шокированный голос, отталкиваясь голыми ступнями от полированного обсидианового пола.
 
-"Perhaps, the real purpose of the arts master is much more important than treasure"
+"Наверное, истинная цель мастеров искусств намного более ценна, чем сокровища."
 
-"More impor..."
+"Более цен..."
 
-Исукан repeating after him suddenly opened the eyes wide. Ронье felt that she heard the sound of red golden hair standing upright.
+Исукан, повторявший за ним, вдруг широко открыл глаза. Ронье показалось, будто она услышала как его красно-золотые волосы встали дыбом.
 
-"Лизетта"
+"Лизетта."
+
+###Продолжение завтра
 
 Immediately after he murmured the name of the baby in a low voice, both feet of fist fighter radiated a light-red glow.
 
-**Gaan**! And the Обсидияn floor where he kicked off cracked like a spider's web. Rushing up skipping four or five steps he quickly separated from them by enormous accelerating and reached the top of the stairs few seconds after dashing ahead Шейта. Just behind him, Кирито glided in an ashihakobi<sup><a href="#Prim1">1</a></sup> style.
+**Gaan**! и the Обсидияn floor where he kicked off cracked like a spider's web. Rushing up skipping four or five steps he quickly separated from them by enormous accelerating и reached the top of the stairs few seconds after dashing ahead Шейта. Just behind him, Кирито glided in an ashihakobi<sup><a href="#Prim1">1</a></sup> style.
 
-Resisting the shiver that tried to make the whole body numb, Ронье ran hard after them. She climbed the stairs and jumped into the corridor of the 49th floor, but there was already no appearance of the three, only footsteps can be heard.
+Resisting the shiver that tried to make the whole body numb, Ронье ran hard after them. She climbed the stairs и jumped into the corridor of the 49th floor, but there was already no appearance of the three, only footsteps can be heard.
 
-Following the sound, she ran further and passed the child room first, then to the room behind it which probably was couple's bedroom.
+Following the sound, she ran further и passed the child room first, then to the room behind it which probably was couple's bedroom.
 
 When she rushed into the open door, an unusual odor struck her nose.
 
-The light of one small ore lantern dimly lit the wide room, but still she clearly saw a big window shattered into pieces, the pool of pitch-black blood that spread before it and the two fallen guards.
+The light of one small ore lantern dimly lit the wide room, but still she clearly saw a big window shattered into pieces, the pool of pitch-black blood that spread before it и the two fallen guards.
 
 Probably the guards touched the blood pool smelling of minions. Both of them seem to still have a breath, is it wasn’t clear whether they were panting because of an injury or was it an action of poison. Apart from the guards, there was only Исукан in the room.
 
@@ -177,31 +179,31 @@ A guard held a hand trying to hold off screaming Исукан from approaching.
 
 Another one reported with more a chagrin on his face, than pain.
 
-"After the two of us went down for a while, when the window cracked...... when we entered, was a black monster…. We managed to fight it off, but unexpectedly a dark arts master appeared in the room, and he used dark art to make Guido and myself dizzy......."
+"After the two of us went down for a while, when the window cracked...... when we entered, was a black monster…. We managed to fight it off, but unexpectedly a dark arts master appeared in the room, и he used dark art to make Guido и myself dizzy......."
 
 Then, as the second guard began breathlessly panting, the first one continued the story.
 
-"We got poisoned by the monster, and couldn’t move anymore. The arts master took Лизетта from the bed, and rode the monster out the window...... I saw it with my own eyes..."
+"We got poisoned by the monster, и couldn’t move anymore. The arts master took Лизетта from the bed, и rode the monster out the window...... I saw it with my own eyes..."
 
 "………… I… see……"
 
 Исукан nodded to their words creaking his teeth.
 
-At the right side of the room, there was a bed for two people at the wall and a small baby bed behind it. Most likely Лизетта spent the day in bright sunshine of the kids’ room and in the night she slept with her parents.
+At the right side of the room, there was a bed for two people at the wall и a small baby bed behind it. Most likely Лизетта spent the day in bright sunshine of the kids’ room и in the night she slept with her parents.
 
-Cute little baby, only three months old, was kidnapped. Unsure how to act in those terrible circumstances, Ронье was just standing still, when Шейта and Кирито came into the room from the terrace behind the destroyed window.
+Cute little baby, only three months old, was kidnapped. Unsure how to act in those terrible circumstances, Ронье was just standing still, when Шейта и Кирито came into the room from the terrace behind the destroyed window.
 
 "...... I couldn’t find them."
 
-Шейта said this loudly, and Кирито gently shook his head.
+Шейта said this loudly, и Кирито gently shook his head.
 
 "I could not perceive them either......."
 
-Still in a bad mood, he glanced at the two guards laing down on the floor. He raised the right hand and generated elements just like previously in the treasury. But this time it was not cryogenic but white sparkling luminous elements. There were about a dozen, they divided further into and flew to the guards’ bodies.
+Still in a bad mood, he glanced at the two guards laing down on the floor. He raised the right hand и generated elements just like previously in the treasury. But this time it was not cryogenic but white sparkling luminous elements. There were about a dozen, they divided further into и flew to the guards’ bodies.
 
-A warm glow wrapped the two of them, and most of the black liquid that had accumulated on the floor disappeared as if it was evaporated by the light. The guards strangely shook their bodies and took a deep breath, then abruptly stood up and drew their heads down towards Шейта and Исукан.
+A warm glow wrapped the two of them, и most of the black liquid that had accumulated on the floor disappeared as if it was evaporated by the light. The guards strangely shook their bodies и took a deep breath, then abruptly stood up и drew their heads down towards Шейта и Исукан.
 
-"Commander, authorized ambassador, we could not fulfill our responsibilities and there’s no excuse for this!"
+"Commander, authorized ambassador, we could not fulfill our responsibilities и there’s no excuse for this!"
 
 "As long as they kidnapped Лизетта whom we should have protected at all costs, with our lives we..."
 
@@ -209,7 +211,7 @@ A warm glow wrapped the two of them, and most of the black liquid that had accum
 
 "This won’t return Лизетта. Better lend me your strength to regain my daughter."
 
-Even though his heart was probably shattered, the fist fighter said so with suppressed voice, and two of them stood straight again.
+Even though his heart was probably shattered, the fist fighter said so with suppressed voice, и two of them stood straight again.
 
 "First of all, we need to hear, what was the appearance of dark arts master that has broken in here. Have you saw that person's face? Heard his voice?"
 
@@ -223,7 +225,7 @@ The first to answer was a tall guard who would be named Guido.
 
 When Исукан bit his lips, Кирито opened his mouth instead.
 
-"How long did it pass since the arts master fled outside the window and until we entered the room?"
+"How long did it pass since the arts master fled outside the window и until we entered the room?"
 
 The question was answered by a wide Gaiol.
 
@@ -233,43 +235,43 @@ The question was answered by a wide Gaiol.
 
 Кирито with a doubtful face turned his eyes towards the night sky outside the window. Шейта also knitted eyebrows, muttering.
 
-"He got on a wounded minion and disappeared in just two minutes...?"
+"He got on a wounded minion и disappeared in just two minutes...?"
 
-_According to lectures by librarians of the large library, minions' flight speed is about the same as people run. We are at a height of 500 mils, it seems impossible to completely disappear in just two minutes in any direction, but if the opponent is a highly-ranked dark arts master, a hiding technique or something alike may be used._ However, if Кирито and Шейта weren’t able to find them, Ронье wouldn’t be either.
+_According to lectures by librarians of the large library, minions' flight speed is about the same as people run. We are at a height of 500 mils, it seems impossible to completely disappear in just two minutes in any direction, but if the opponent is a highly-ranked dark arts master, a hiding technique or something alike may be used._ However, if Кирито и Шейта weren’t able to find them, Ронье wouldn’t be either.
 
-Being helpless, Ронье crossed the floor and approached the baby’s bed.
+Being helpless, Ронье crossed the floor и approached the baby’s bed.
 
-The bed shaped like a box was, of course, empty, except for pretty pacifiers and stuffed bear and dragon toys left behind; she was suddenly attacked by a feeling that her heart is being torn apart.
+The bed shaped like a box was, of course, empty, except for pretty pacifiers и stuffed bear и dragon toys left behind; she was suddenly attacked by a feeling that her heart is being torn apart.
 
-She deflected her eyes, and that moment.
+She deflected her eyes, и that moment.
 
 Noticing that something strange fell on the stuffed dragon's figure, Ронье reached out her hand.
 
-It was a parchment rounded and fastened with a red string. Anyway you look, it was not a baby's toy.
+It was a parchment rounded и fastened with a red string. Anyway you look, it was not a baby's toy.
 
 "Here...... In bed, there is......."
 
 While saying that, she wanted to pick the parchment, but the one who did it was Исукан moving at the speed of a lightning bolt.
 
-He easily cut a string that looked quite strong with fingertips and spread it. The left eye of Исукан opened wide, then he let a crooked groan from his throat, staggered and crushed on the bed.
+He easily cut a string that looked quite strong with fingertips и spread it. The left eye of Исукан opened wide, then he let a crooked groan from his throat, staggered и crushed on the bed.
 
-From his hand, Шейта took the parchment next. The expression of astonishment also spread over the face of the knight, and after gently biting her lips, she handed it over to Кирито.
+From his hand, Шейта took the parchment next. The expression of astonishment also spread over the face of the knight, и after gently biting her lips, she handed it over to Кирито.
 
 Standing beside Кирито who received the message, Ронье ran her eyes over the black characters.
 
-【By the sunset of the 21st day of the 2nd month, publicly execute the Премьер-Мечник of the Объединённого Совета Мира Людей at the Great Stadium due to the attempted assassination of the Dark Army General Commander, and send back the head to Мира Людей. When that is not done, the head of the innocent baby will be delivered to Обсидия castle】
+【By the sunset of the 21st day of the 2nd month, publicly execute the Премьер-Мечник of the Объединённого Совета Мира Людей at the Great Stadium due to the attempted assassination of the Dark Army General Commander, и send back the head to Мира Людей. When that is not done, the head of the innocent baby will be delivered to Обсидия castle】
 
 "............ Tha-t-t is............"
 
 Leaking such words, Ронье shook her head several times. Today is the 21st day, just like it said. There was only about 13 or 14 more hours until the sunset which was set as the execution time limit.
 
-At first, she thought that Исукан and Шейта could not do such a thing.
+At first, she thought that Исукан и Шейта could not do such a thing.
 
 But quickly she understood that it was the life of the daughter of the two that was the price. Was there anything more important for the couple at that time?
 
-Ронье’s left hand slowly moved and touched the left hip. But there was no sword. It remained in the bedroom, just like Кирито’s one.
+Ронье’s left hand slowly moved и touched the left hip. But there was no sword. It remained in the bedroom, just like Кирито’s one.
 
-Besides, even if they had swords...... If there’s a chance that Исукан obeys the threatening of the kidnappers, then what, fight with those two? And if Кирито and Ронье escape, Лизетта will die.
+Besides, even if they had swords...... If there’s a chance that Исукан obeys the threatening of the kidnappers, then what, fight with those two? и if Кирито и Ронье escape, Лизетта will die.
 
 _I definitely do not want to forsake that innocent baby. However, it cannot excuse me from fulfilling my role of Кирито’s escort. No way._
 
@@ -277,29 +279,29 @@ _I definitely do not want to forsake that innocent baby. However, it cannot excu
 
 "That...... Your Excellency..."
 
-One of the guards standing side by side with his colleague by the wall said this in a faint voice. They surely wondered about the content of parchment, but Исукан lifted his gaze and pointed to the door with his right hand.
+One of the guards standing side by side with his colleague by the wall said this in a faint voice. They surely wondered about the content of parchment, but Исукан lifted his gaze и pointed to the door with his right hand.
 
 "Guido, Gaiol, go out in the hall, do not let anyone inside."
 
 "Yes…"
 
-Saluting the Тёмной Территории army commander, two guards headed to the door. However, Gaiol stopped his legs and turned around.
+Saluting the Тёмной Территории army commander, two guards headed to the door. However, Gaiol stopped his legs и turned around.
 
 "There’s… one more thing......"
 
-When four people gazed him quickly, the guard kept shrinking his short neck more and more.
+When four people gazed him quickly, the guard kept shrinking his short neck more и more.
 
-"It's not a big deal... but as soon as the dark arts master and the monster left through the window, I felt like I heard some strange sound."
+"It's not a big deal... but as soon as the dark arts master и the monster left through the window, I felt like I heard some strange sound."
 
 "Sound... what kind of sound?"
 
-To Шейта's question, Gaiol answered after opening and closing the mouth several times as if searching for words.
+To Шейта's question, Gaiol answered after opening и closing the mouth several times as if searching for words.
 
 "It’s like a turning of stone mill drums, kind of “**gorigori**”..."
 
 "Stone mill drums...?"
 
-It seemed that even Исукан familiar with this castle could find nothing to think about. Gaiol saluted again and closed the door behind himself.
+It seemed that even Исукан familiar with this castle could find nothing to think about. Gaiol saluted again и closed the door behind himself.
 
 In the bedroom filled with a heavy silence, the voice of Кирито sounded soon.
 
@@ -307,17 +309,17 @@ In the bedroom filled with a heavy silence, the voice of Кирито sounded so
 
 "...What are you talking about, do not blame yourself?"
 
-He was in such a condition that even standing up was hard, and Исукан set down on the bed again, but still denied Кирито’s words.
+He was in such a condition that even standing up was hard, и Исукан set down on the bed again, but still denied Кирито’s words.
 
-"The problem is, in addition to dizzy guards of Lisa, it's me who has been dazzled. Th demon... minion of the dark arts master is supposed to be unable to fly until this height, or at least so I thought. Only the dragons of the Dark Knights Order can fly to this point, but they are prohibited from coming anywhere other than the departure and arrival platform at the back of the castle. So, I was convinced that there were no dangers coming in through the window..."
+"The problem is, in addition to dizzy guards of Lisa, it's me who has been dazzled. Th demon... minion of the dark arts master is supposed to be unable to fly until this height, or at least so I thought. Only the dragons of the Dark Knights Order can fly to this point, but they are prohibited from coming anywhere other than the departure и arrival platform at the back of the castle. So, I was convinced that there were no dangers coming in through the window..."
 
-Both hands firmly gripped knees, and creaking added to the groaning. Шейта came to her husband and placed her slender hand on his.
+Both hands firmly gripped knees, и creaking added to the groaning. Шейта came to her husband и placed her slender hand on his.
 
 "But after all, I guess I provoked this situation."
 
 Кирито said again with a threatening letter in his right hand.
 
-"Ронье realized the possibility that the murder in Мира Людей is a trap for make me go to Обсидия. But I decided that if I move to Обсидия in a day, no conspiracy could catch up with me. However, the guys who kidnapped Лизетта are good ones... they have a group in both Мира Людей and Тёмной Территории and they have a means to contact each other faster than with machine dragon."
+"Ронье realized the possibility that the murder in Мира Людей is a trap for make me go to Обсидия. But I decided that if I move to Обсидия in a day, no conspiracy could catch up with me. However, the guys who kidnapped Лизетта are good ones... they have a group in both Мира Людей и Тёмной Территории и they have a means to contact each other faster than with machine dragon."
 
 "Machine... dragon? You used it to be able to move from Centoria to Обсидия in a day?<sup><a href="#Prim2">2</a></sup>"
 
@@ -325,58 +327,58 @@ Both hands firmly gripped knees, and creaking added to the groaning. Шейта 
 
 "Yes...... I will show it to you properly later. But now it's about Лизетта..."
 
-He turned his eyes to parchment and continued with a lower voice.
+He turned his eyes to parchment и continued with a lower voice.
 
-"......Their goal is probably to make Мира Людей and Тёмной Территории hostile again, and if you ignore, they will surely carry out their threat. I will do my best to find Лизетта from now on, but...... if I fail to return her, I should be......."
+"......Their goal is probably to make Мира Людей и Тёмной Территории hostile again, и if you ignore, they will surely carry out their threat. I will do my best to find Лизетта from now on, but...... if I fail to return her, I should be......."
 
 "Shut up!!"
 
 Исукан sharply cut Кирито’s words when he was going to say “executed”.
 
-Ронье was aware that Кирито and Асуна moved from the real world to Underworld.
+Ронье was aware that Кирито и Асуна moved from the real world to Underworld.
 
-_They are lying in something called "estiel" that exists in the real world, and they said that only the soul is moved to Underworld. Therefore, even if the whole life is lost in Underworld, the two will not die. It is expected that the soul returns to the real world and they wake up there.  
-Now Кирито is thinking about that. However, once they come back to the real world, they probably won’t be able to return to Underworld anymore —_ and they both said that. For Ронье it was synonymous with Кирито’s death. Of course, same went for all the people who have met Кирито and spent some time together. _…Мира Людей... No, the entire Underworld still needs him._
+_They are lying in something called "estiel" that exists in the real world, и they said that only the soul is moved to Underworld. Therefore, even if the whole life is lost in Underworld, the two will not die. It is expected that the soul returns to the real world и they wake up there.  
+Now Кирито is thinking about that. However, once they come back to the real world, they probably won’t be able to return to Underworld anymore —_ и they both said that. For Ронье it was synonymous with Кирито’s death. Of course, same went for all the people who have met Кирито и spent some time together. _…Мира Людей... No, the entire Underworld still needs him._
 
-She could not put all the fears and thoughts swirling like a storm into words, but Ронье just came closer to Кирито and firmly grasped the hem of the black shirt.
+She could not put all the fears и thoughts swirling like a storm into words, but Ронье just came closer to Кирито и firmly grasped the hem of the black shirt.
 
-Шейта, who noticed the gesture, relaxed her mouth a little. She nodded to Ронье as if she could feel slightly relieved and said in a low voice.
+Шейта, who noticed the gesture, relaxed her mouth a little. She nodded to Ронье as if she could feel slightly relieved и said in a low voice.
 
 "First, I will go to the гильдия мастеров тёмных искусств headquarters in the northern district to get the information. First of all, the who broke into this room is surely a stray master who does not belong to the current guild, but if minion was improved, I might be able to trace from that fact."
 
 "I understood... that, I will go with you. If Шейта is alone there, the arts masters may try to mislead."
 
-Исукан abruptly stood up and lifted the silver ring from the table by the bed and put it on the forehead. Шейта also began to change from her pajamas so Ронье hurriedly adverted her gaze away.
+Исукан abruptly stood up и lifted the silver ring from the table by the bed и put it on the forehead. Шейта also began to change from her pajamas so Ронье hurriedly adverted her gaze away.
 
-Speaking of Кирито, he turned towards the broken window. He seemed to rubbing his lips a little, thinking of something, but as soon as the couple finished changing clothes, he turned around and said.
+Speaking of Кирито, he turned towards the broken window. He seemed to rubbing his lips a little, thinking of something, but as soon as the couple finished changing clothes, he turned around и said.
 
-"Is there any possibility that the arts master and minion who kidnapped Лизетта returned to the castle through another floor?"
+"Is there any possibility that the arts master и minion who kidnapped Лизетта returned to the castle through another floor?"
 
-Исукан frowned and mumbled in a disturbed tone.
+Исукан frowned и mumbled in a disturbed tone.
 
 "Um...... At this time all the windows should be locked, so if they broke in from outside the guards on each floor would have noticed. But...... if there was a stranger in the castle, he might have opened the window from inside..."
 
-Шейта nodded and added in a crisp tone.
+Шейта nodded и added in a crisp tone.
 
 "Make all the guards search all over the castle."
 
-"Can me and Ронье help with that?"
+"Can me и Ронье help with that?"
 
 When Кирито offered, Исукан nodded without hesitation.
 
 "I beg you, I need your power when the minion comes out. Here, take this."
 
-He opened a small drawer in the top of a table, took out a silver necklace and passed it. When Кирито received with one hand, he put the thumb of the right hand to the silver ring of his forehead.
+He opened a small drawer in the top of a table, took out a silver necklace и passed it. When Кирито received with one hand, he put the thumb of the right hand to the silver ring of his forehead.
 
-"This is a testimony of the army commander assistant. Show it and give my name, this will open most of the closed doors."
+"This is a testimony of the army commander assistant. Show it и give my name, this will open most of the closed doors."
 
 "I understand, thank you."
 
-When Кирито hung the chain with a coat of arms engraved on a silver plate on his neck, Исукан came up to him and strongly grasped the shoulders of Премьер-Мечник.
+When Кирито hung the chain with a coat of arms engraved on a silver plate on his neck, Исукан came up to him и strongly grasped the shoulders of Премьер-Мечник.
 
 "──── relying."
 
-With this short word, he quickly left the room together with Шейта. When the door opened and closed, as if waiting for it, the 4 o'clock morning bells quietly rang.
+With this short word, he quickly left the room together with Шейта. When the door opened и closed, as if waiting for it, the 4 o'clock morning bells quietly rang.
 
 ## Примечания:
 

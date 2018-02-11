@@ -135,7 +135,7 @@ Voice of Kirito, who cut the praise short, was feeling more tense than when he i
 
 The moment she heard it, the dim guess Ronye got turned into a specific fear, and at the same time Scheta quickly paled.
 
-"No way......"
+"Oh no......"
 
 She muttered so with a faint voice and started to run fiery. Like a wind she rushed between Ronye and Kirito, through the guards, and jumped out of the treasury.
 
