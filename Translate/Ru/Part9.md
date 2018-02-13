@@ -1,229 +1,230 @@
-# Part 9
+# Часть 9
 
-Кирито и Ронье returned to their apartment, changed from sleeping to regular clothes, equipped swords и began searching first from the forty-ninth floor.
+Кирито и Ронье вернулись в свои апартаменты, переоделись из ночной в обычную одежду, экипировали мечи и начали искать с сорок девятого этажа.
 
-However, they did not open the doors of all the rooms. Кирито has a mighty mind power to find the location of Шейта from the other side of the river, because he could sense the presence of humans и monsters through doors и walls, it was sufficient just to concentrate on the center of each floor for a while.
+Однако, им не нужно было открывать все двери подряд. Кирито, обладая силой разума достаточной, чтобы определить местонахождение Шейты с противоположного берега реки, мог сквозь двери и стены почувствовать присутствие людей и монстров, так что ему было достаточно лишь ненадолго сконцентрироваться на центре каждой двери.
 
-For two hours they continued the search running down from floor to floor occasionally showing the coat of arms plate every time guards seen them.
+Они продолжали поиск в течении двух часов, спускаясь вниз этаж за этажом, время от времени показывая гербовую пластину, если их останавливала стража.
 
-Finally, at the third basement floor, which was the lowest level of Обсидия castle и contained a large storehouse, Кирито closed the eyelids standing at the center of the passage crossing — и slowly shook his head.
+Наконец, стоя на пересечении двух проходов третьего подвального этажа, самого глубокого в замке Обсидия и представлявшего собой громадный склад, Кирито прикрыл веки — и медленно покачал головой.
 
-"No, they are not here either."
+"Нет, тут их тоже нет."
 
-Having deeply sighed, he put his back against the black rock wall. The storehouse was completely unmanned, only the light of ore lantern shook weakly in the silent pathway.
+Глубоко вздохнув, он опёрся спиной о стену из чёрного камня. На складе не было ни души, только неяркий ореол вокруг рудного светильника подрагивал в тиши пустого коридора.
 
-Looking at Кирито’s worried face, Ронье nervously asked him.
+Всматриваясь в обеспокоенное лицо Кирито, Ронье нервно спросила.
 
-"Then, doesn’t it mean that they weren’t still inside the castle but escaped to the outside...?"
+"Тогда, разве это не означает, что они не остались в замке, а сбежали наружу...?"
 
-"Ugh......... but that means that a hurt minion flew more than three kilolu in just two minutes..."
+"Угх......... но это значит, что раненый миньон пролетел больше трёх килолу за две минуты..."
 
-"Th-three kilolu......? Do сенпая senses reach so far...?"
+"Т-три килолу......? Чувствительность сенпая достигает так далеко...?"
 
-"It depends on the target, but it's definitely about that if the opponent is the size of a minion with nothing around it. It’s 1.5 kilolu per minute, so ninety kilolu per hour...... I do not think minions that can fly at such a furious speed exist."
+"Зависит от цели, но примерно так если оппонент размером с миньона и вокруг нет других. Получается 1,5 килолу в минуту, или 90 килолу в час...... Не думаю. что существуют миньоны, способные летать на такой безумной скорости."
 
-"It's almost like a dragon.... After all, maybe a dark knight on a dragon cooperated...?"
+"Почти как дракон.... Может, всё же с ними сотрудничал тёмный рыцарь на драконе...?"
 
-When Ронье asked, whispering, Кирито shook his head again.
+Когда Ронье шёпотом спросила это, Кирито снова покачал головой.
 
-"I can perceive a thing of a dragon size even if it is ten kilolu away<sup><a href="#Prim1">1</a></sup>. It’s not really a dragon that can fly so much in two minutes<sup><a href="#Prim2">2</a></sup>, it is rather a machine dragon..."
+"Я почувствую объект размером с дракона и за десять килолу<sup><a href="#Prim1">1</a></sup>. Да это даже и не дракон, чтобы пролететь столько за две минуты<sup><a href="#Prim2">2</a></sup>, это, скорее, искусственный дракон..."
 
-He cut off the word, и murmured "It can’t be", but immediately denied it.
+Он прервался, выдохнув "Быть не может", но тут же замотал головой.
 
-"No...... If you use machine dragon, you should hear a terrible roaring sound. Not so much of a "stone mill drums" sound.... ── To start with, what sounds like a stone mill drum?"
+"Нет...... При использовании искусственного дракона, должен быть громкий звук. Не столько звук "каменных жерновов".... ── Да и вообще, что издаёт звук каменных жерновов?"
 
-Listening to it, Ронье thought hard, but I could not invent anything.
+Услышав это, Ронье крепко задумалась, но ничего придумать так и не смогла.
 
-Instead she recollected the warmth of Лизетта drinking milk in her arms и laughing at the dinner. When Ронье pressed a hand to her chest, Кирито said it to her.
+Вместо этого, она вспомнила то тёплое чувство, когда Лизетта пила молоко в её руках и смеялась за столом. Ронье прижала руки к груди, и тогда Кирито сказал ей.
 
-"Лизетта is the hope for two worlds, never gonna let this child be killed..."
+"Лизетта — это надежда для обоих миров, не позволю, чтобы этого ребёнка убили..."
 
-In his deeply concerned voice, she felt a clear determination, и Ронье breathed in.
+В его глубоко обеспокоенном голосе звучала твёрдая уверенность, и Ронье втянула воздух.
 
-The face of Кирито who was leaning against the stone wall was down и covered with shadows so she could not see it. However, Ронье feverishly walked to him и grasped both shoulders of Кирито.
+Лицо Кирито, опиравшегося на каменную стену, было обращено вниз и покрыто тенями, так что она не могла его видеть. Однако, Ронье неровной походкой приблизилась к нему и схватила оба плеча Кирито.
 
-"....... unthinkable, сенпай. It is absolutely unthinkable to sacrifice Кирито-сенпай."
+"....... немыслимо, сенпай. Пожертвовать Кирито-сенпаем совершенно немыслимо!"
 
-After keeping being silent for a while, Кирито answered, pausing after each phrase.
+Помолчав какое-то время, Кирито ответил, и между каждой фразой в его ответе висела пауза.
 
-"I said before. If I die in this world, I won’t really die. If Лизетта cannot be secured, I......."
+"Я сказал уже. Умерев здесь, я на самом деле не умру. Если безопасность Лизетты не будет обеспечена, я......."
 
-Ронье cut his words about that he should die by screaming at him.
+Ронье криком прервала его слова о том, что ему предстоит умереть.
 
-"Senseless! Whatever a reason is, it does not matter... I can’t even think of never meeting my сенпай again......!"
+"Чушь! Какая разница, в чём причина, неважно... Я даже и подумать не могу о том, чтобы больше не увидеть сенпая......!"
 
-She pushed her face straight into Кирито chest. The silver coat of arms plate bit the forehead, but such a pain was nothing compared to the tearing apart aching in the chest.
+Она уткнулась лицом в грудь Кирито. Серебряная пластина с гербом врезалась в лоб, но она была ничтожной по сравнению с жаром, раздирающим на части её сердце.
 
-"For my entire life, to follow и serve my сенпай. I decided to stay at сенпая side forever. I do not want anything more than that.... But if сенпай is sacrificed, I will follow you as well. Let us be executed together!"
+"Всю свою жизнь, следовать за сенпаем и служить ему. Я решила навсегда остаться рядом с моим сенпаем. И ничего мне кроме этого не нужно.... Но если сенпай пожертвует собой, я и тогда последую за ним. Пускай нас вместе казнят!"
 
 ![Image](/Translate/Img/p235.jpg)
 
-She was consciously saying it in a way that suggested her becoming a hostage. But at the same time, it was Ронье's true thoughts, without any bargain.
+То, как она это говорила, предполагало, что она сознательно делает себя заложницей. Но в то же время, это были искренние мысли Ронье, без каких-либо условностей.
 
 ".......Ронье..."
 
-Calling the name with anguish, low, hoarse voice, Кирито lifted both hands и put them on Ронье's shoulders.
+Назвав её имя тоскливым, низким, хриплым голосом, Кирито поднял обе руки и положил их на плечи Ронье.
 
-Кирито felt that way because he understood, it was possible to completely detain Ронье or put her to sleep even for two or three days — until everything is over. But such a thing had no meaning. If Кирито was executed when she awoke, she would follow him immediately.
+Кирито чувствовал себя ужасно потому что понял, Ронье можно было отправить под стражу или усыпить на один-два дня — пока всё не закончится. Но это не имело значения. Если Кирито будет уже казнён, когда она проснётся, то она немедленно последует за ним.
 
-However, Кирито moved his right hand to Ронье’s head и gently stroked her hair, whispering.
+Однако, Кирито положил свою руку на голову Ронье и ласково погладил её волосы, шепча.
 
-"...Thank you, Ронье. I will not give up. I’ll certainly save Лизетта... и then, Ронье и I, we’ll return to Собор. To the place of our home..."
+"...Спасибо тебе, Ронье. Я не сдамся. Я обязательно спасу Лизетту... и тогда, Ронье и я, мы вместе вернёмся в Собор. Туда, где наш дом..."
 
-As soon as she heard the words, tears flowed from Ронье’s both eyes. She nodded desperately struggling to speak over the crying.
+Стоило ей услышать эти слова, и слёзы полились из глаз Ронье. Она кивала, отчаянно пытаясь сказать сквозь слёзы.
 
-"............ Yes...... Yes......."
+"............ Да...... Да......."
 
-Given up trying to say anything, Ронье just squeezed Кирито body even stronger. Кирито had been stroking her head all the time until Ронье calmed down.
+Бросив эти бесплодные попытки произнести что-то, Ронье просто обняла Кирито ещё сильнее. Кирито продолжал гладить её по голове пока Ронье не успокоилась.
 
 ***
 
-Soon after that, listening to the six o'clock morning bells they ascended to the hall of the first floor above the ground, to meet Шейта и Исукан coming back from the гильдия мастеров тёмных искусств headquarters.
+Вскоре после этого под звуки шестичасового утреннего колокола они поднялись в холл первого надземного этажа чтобы встретиться с Шейтой и Исуканом, возвратившимися из штаб-квартиры гильдии мастеров тёмных искусств.
 
-They got together и shared stories but unfortunately it seems that it wasn’t possible to get any information directly related to kidnappers.
+Они встретились и обменялись информацией, но оказалось, что тем двоим тоже не удалось получить никаких зацепок относительно похитителей.
 
-"The current guild master has nothing to do with the dark arts masters mysteriously disappeared in a Foreign World War, и she did not run minions improvement experiments. I asked them as the commander, they couldn’t overcome the “Закону Сильнейшего”."
+"Нынешняя глава гильдии никак не связана с мастерами, исчезнувшими во время Войны с Внешним Миром, да и экспериментов по улучшению миньонов они не проводили. Я спрашивал как главнокомандующий, они бы не смогли противиться “Закону Сильнейшего”."
 
-Шейта added to the words of Исукан after nodding with a depressed expression.
+Шейта добавила к тому. что сказал Исукан, кивнув с печальным выражением лица.
 
-"However, there’s one thing...... About one month ago, it seems that from the clay production site managed by the guild, large quantities of the best-quality prepared clay disappeared."
+"Однако, кое-что есть...... Около месяца назад, большое количество высококачественной глины исчезло из глиняной разработки, контролируемой гильдией."
 
-"Large quantities...... how much exactly?"
+"Большое количество...... это сколько именно?"
 
-When Кирито asked, Исукан answered with a bitter face.
+Когда Кирито спросил, Исукан ответил с хмурым лицом.
 
-"Just about of three minions size. They handled the matter internally и did not report to the Five Clans Conference...... well, even if we had heard it in advance, we could not have predicted today's raid...."
+"Хватит на трёх миньонов. Они ограничились внутренним расследованием и не стали докладывать на Конференции Пяти Кланов...... ну, да хоть бы мы и узнали об этом заранее, сегодняшнее нападение мы бы не предугадали...."
 
-"A month ago or so...... after all, it seems that this is linked with the affair in Мира Людей..."
+"Месяц назад или около того...... похоже, это всё-таки связано происшествием в Мире Людей..."
 
-This time it was Исукан who asked muttering Кирито.
+На этот раз уже Исукан спросил бормотавшего Кирито.
 
-"I already received reports from the guards... but how was your search?"
+"От охраны я доклады уже получил... как ваши поиски?"
 
-"Bad...... I searched the entire castle from the top floor to the lowest storage room, but neither minions nor Лизетта were found. If there are hidden rooms that even Исукан does not know about, it did not matter...... They couldn’t avoid my detection unless they hide in a completely disconnected portion of the space."
+"Плохо...... Я обыскал весь замок от верха до самого нижнего склада, но ни миньонов, ни Лизетты не нашёл. Даже если бы были тайные комнаты, о которых и Исукан не знает, это не важно...... Я смог бы их обнаружить, ну разве что они бы находились в совершенно изолированном участке пространства."
 
-"Well if you say so... That means, they already escaped somewhere far..."
+"Раз ты так говоришь... Значит, они уже смылись куда-то далеко..."
 
-Исукан crushed the head with the silver ring on. His hands were gently held by Шейта who wrapped them with both hers.
+Исукан закрыл руками свою понуренную голову. Шейта ласково обняла его руки своими, успокаивая.
 
-In the silence of the hall, the sound of the castle’s large front door closing sounded gravely.
+В тишине холла, с могильным грохотом захлопнулась большая парадная дверь замка.
 
-Not only the door itself but also the hinge around it seemed to have been carved off from Обсидияn, и the sound of heavy minerals rubbing each other was unique. It felt like she heard this sound reminding of a distant thunder recently, и Ронье traced her memory.
+Не только сама дверь, но и её петли были, похоже, вырезаны из обсидиана, и звук трущихся друг о друга тяжёлых минералов было невозможно с чем-то спутать. Почувствовав, что она совсем недавно слышала подобный звук, напоминающий далёкий гром, Ронье начала копаться в памяти.
 
-_It was that...... yes, at the time of the flight experiment of the machine dragon version 1 by the Центральный Собор. In order to save the dragon which would otherwise collide with the top of Собор, Асуна utilized the power of goddess Stacia и shifted the top of Собор from the 95th floor и up. Giant pieces of marble rubbed against each other, и it was just like that sound. 
-Rock и rock...... Sound of rubbing. Just like a stone mill._
+_Это же оно...... да, во время полётного испытания искусственного дракона версии 1 у Центрального Собора. Чтобы уберечь дракона от столкновения с Собором, Асуна использовала силу богини Стасии и передвинула верхушку Собора от 95го этажа и выше. Гигантские куски мрамора тёрлись друг о друга и издавали такой же звук. 
+Камень и камень...... Трущийся звук. Точно как жернова каменной мельницы._
 
-"...... That! Шейта-сама......."
+"...... Это! Шейта-сама......."
 
-Ронье ran over и stood in the front of the senior Integrity Knight и spoke excitedly.
+Ронье подбежала и встала перед старшим Рыцарем Целостности, возбуждённо заговорив.
 
-"Is there a large Обсидияn door, like that big door, near Шейта-сама и Исукан-сама's bedroom?"
+"А есть большая обсидиановая дверь, вот как эта парадная дверь, возле покоев Шейта-самы и Исукана-самы?"
 
-"Обсидияn doors......? ── No, all the doors in the vicinity are made of wood и the exterior window bars are made of iron."
+"Обсидиановая дверь......? ── Нет, все двери поблизости сделаны из дерева, а решётки на окнах снаружи из железа."
 
-"Well, then is there any mechanism involving a rock rubbing against rock...?"
+"Ну, может есть какой-то механизм, в котором камень трётся о камень...?"
 
-Кирито also opened his mouth when he heard this.
+Кирито тоже заговорил, услышав это.
 
-"The sounds of stone mill drums heard by the guards....... If there is something like a hidden door on the outer wall of the castle, it would sound this way... but......."
+"Звук каменных жерновов, который услышали стражники....... Если есть что-то вроде тайной двери во внешней стене замка, то она бы так и звучала... но......."
 
-"If it's just a hidden door, they couldn’t cheat Кирито nose... right?"
+"Но если это просто скрытая дверь, им бы не удалось обмануть нюх Кирито... так?"
 
-Исукан groaned this with arms folded.
+Исукан простонал это, не разжимая рук.
 
-"...Also, I’ve never heard that there is such a thing near our bedroom. Moreover, even if you make a hidden door on the outer side of the wall, no one can use it. Only someone who can fly."
+"...А ещё, я никогда не слышал, чтобы рядом с нашей спальней была такая комната. Более того, даже если сделать скрытую дверь на внешней стороне стены, ей же никто не сможет воспользоваться. Только кто-то, кто сможет летать."
 
-"…hidden door... isn’t it perhaps...?"
+"…тайная дверь... возможно, это...?"
 
-Кирито who mumbled it turned his eyes to the ceiling of the hall.
+Кирито, пробормотав это, обратил свой взор на потолок холла.
 
-"Исукан, you were saying that yourself. On top of this, 49th floor, there is a real top floor."
+"Исукан, ты же сам говорил. Над тем, 49м этажом, есть ещё один, самый верхний этаж."
 
-General commander и authorized ambassador inhaled at the same time.
+Главнокомандующий и полномочный посол одновременно ахнули.
 
-".....Fif.... fiftieth floor you say....? But it's been always sealed, и the guards have confirmed the chain has not been touched."
+".....Пят.... пятидесятый этаж, говоришь....? Но он был всё время запечатан, и стража подтвердила, что цепь невредима."
 
-"How about the outside? Isn’t there no window on the 50th floor?"
+"А что насчёт снаружи? Разве не было окон на 50м этаже?"
 
-"............No ......... no ...... certainly......"
+"............Не......... нет...... определённо......"
 
-Escrow moved the head awkwardly.
+Исукан повернул голову со странным выражением на лице.
 
-"...... When Vector came down и ten clans of Тёмной Территории were gathered at that time, I certainly saw a window in the throne hall. But now, looking from the outside, there are only rocks above the 49th floor, no windows...."
+"...... Когда Вектор снизошёл, и десять кланов Тёмной Территории собрались вместе, я точно видел окно в тронном зале. Но сейчас, если смотреть снаружи, выше 49го этажа только камни, никаких окон...."
 
-"Well, that’s your answer."
+"Ну вот тебе и ответ."
 
-Кирито said this in convinced tone.
+Сказал Кирито уверенным голосом.
 
-"When Vector died и the sealing chain restored, the rocks of the outer wall moved и all the windows were blocked. The space became completely separated. The stone mill's sound heard by the guards was the sound the rock moved again."
+"Когда Вектор погиб и запечатывающая цепь восстановилась, камни внешней стены передвинулись и все окна оказались скрыты. Пространство стало совершенно изолированным. Звук жерновов каменной мельницы, который слышали стражники, это звук вновь передвинувшихся камней."
 
-"But... if that’s the case…"
+"Но... если это так…"
 
-Исукан, whose red copper skin suddenly became pale, continued in a quiet whispering.
+Исукан, чья медно-красная кожа вдруг резко побледнела, продолжил тихим шёпотом.
 
-"It is only Emperor Vector who can break the seal of the fiftieth floor ............... It means that he kidnapped Lisa............"
+"Только Император Вектор мог сломать печать пятидесятого этажа............... Значит он и похитил Лизу............"
 
-But although the face of fist fighter was covered with fear, he creaked his teeth.
+Но пусть лицо кулачного бойца и залил ужас, он скрипнул зубами.
 
-Шейта broke the shivering silence with resolute words.
+Шейта разорвала дрожащую тишину решительными словами.
 
-"Let's go, on the fiftieth floor"
+"Пошли, на пятидесятый этаж."
 
-Immediately, Кирито also nodded.
+Кирито тут же кивнул.
 
-"Yes... we can find out something if we examine the door."
+"Да... может, что-то поймём осмотрев дверь."
 
-Исукан nodded shaking off the fear.
+Исукан кивнул, сбрасывая сковывающий его страх.
 
-Four of them again ran up to the top of the castle without a single stop. Due to the extreme situation, at the second time Ронье was able to keep up without losing breath.
+Их четвёрка снова взбежала на вершину замка без единой остановки. Из-за чрезвычайности ситуации, во второй раз Ронье уже смогла держаться с ними наравне, и её дыхание не сбилось.
+Она остановилась на 49м этаже и посмотрела на продолжавшиеся вверх ступени. То ли горячие источники, отапливающие замок, сюда не достигали, то ли по другим причинам, но ноги Ронье окутали потоки холодного воздуха, сочащиеся с верхних ступеней.
 
-She stopped at the 49th floor и looked up at the continuing stairs. Whether the castle's hot water heating did not reach here or there were other reasons, cold air falling down from the dark staircase wrapped Ронье's legs.
+"……пошли."
 
-"……let's go"
+Мужественно объявивший это Исукан пошёл вверх по ступенькам. Трое последовали за ним.
 
-Исукан who declared this bravely, stepped on the stairs. Three people followed.
+Пусть это и был всего один этаж, каким-то образом это восхождение по ощущениям длилось дольше чем забег с 1го на 49й, но наконец, они увидели перед собой чёрную двустворчатую дверь. Как и говорилось, обе створки связывала внушительная цепь, шириной навскидку более 10 ценов. Она плотно оборачивала створки, без малейшего провисания.
 
-Even though it was only one more floor, going up the stairs felt longer than from the first floor to the forty-ninth floor somehow, but eventually they saw a black double door ahead. As they said, there were huge chains that seemed to have more than ten centimeters in width binding left и right doors. It's tightly wrapped, not hanging at all.
+Исукан, медленно прошедший по короткому коридору перед большущей дверью, прикоснулся к серой цепи правой рукой и прошипев "холодная", отдёрнул её. Но затем снова вытянул руку, на этот раз схватившись за цепь крепко. Ухватившись, он потянул на себя со всей силы, но цепь ничуть не сдвинулась, даже слабого позвякивания не прозвучало.
 
-Исукан, who slowly walked down a short corridor in front of the big door, touched the gray chain with his right hand, и moaned "cold" и pulled it back. But then he reached out again и held the chain tightly this time. He dropped it down и pulled with all his might, but the chain did not move, even a faint metal sound didn’t echo.
+"...... В конечном счёте, я эту цепь сломать не могу......."
 
-"...... After all, I cannot break the seal......."
+Он прикоснулся к чёрной двери правой рукой рядом с цепью, затем положил туда и левую руку, потом прижался к двери правым ухом.
 
-He touched the black door with his right hand close to the chain, then put his left hand there as well, then clung to the door with his right ear.
+"Ничего не слышу...... Но если Лиза в замке, то она может быть только тут..."
 
-"I don’t hear anything...... But, if Lisa is in the castle, she can only be here..."
+Кулачный боец отошёл на несколько шагов и медленно присел, приняв позицию для кулачного удара.
 
-Fist fighter retreated several steps и slowly lowered his waist, taking the stance of a fist shoot.
+Красное пламя окутало его сжатый правый кулак. Холодный воздух задрожал и двинулся, и Ронье неосознанно сделала несколько шагов назад.
 
-A red flame wrapped his clenched right fist. The cold air trembled и shook, so Ронье unconsciously took a few steps back.
+И когда она уже было подумала, что то сейчас разрушит запечатывающую цепь голыми руками...... Кирито шагнул вперёд.
 
-And when she thought he was going to destroy the sealing chain with a naked fist...... Кирито made a step ahead.
+Двигаясь вперёд, словно его совершенно не задевали потоки инкарнации, бушующей вокруг сжатого кулака Исукана, он положил свою ладонь на плечо последнего.
 
-Walking up without any notion of being pushed back by the incarnation swirling around fist fighter's hand, he put his palm on the left shoulder of the latter.
+"Я это сделаю, Исукан."
 
-"I'll do it, Исукан."
+"Нет...... позволь мне."
 
-"No...... let me do it."
+"Нам понадобятся твои кулаки чтобы сразить миньона и похитителя, а это больше по моей части."
 
-"We’ll need your fists when fighting minions и kidnappers, и I am good at this kind of things."
+Услышав слова Кирито, остудившие его пылающий дух, Исукан несколько раз глубоко вдохнул и выдохнул, затем развернулся и отошёл в сторону, говоря.
 
-Hearing the words of Кирито that were calming down his fighting spirit, Исукан deeply breathed several times, then turned back и walked away, saying.
+"Как всегда, самое лучшее оставляешь себе, засранец. Лады... давай уже."
 
-"As usual, leaving the best for yourself, asshole. I understood... go on."
+С горькой улыбкой он пошёл назад и встал возле своей жены.
 
-With a bitter smile, he went back и stood by the side of his wife.
+Кирито встал перед цепью вместо него, осторожно поглаживая тускло поблёскивающую цепь протянутой вперёд правой рукой. Повторив это действие несколько раз, он начал постукивать указательным пальцем по центральной части одного из звеньев.
 
-Кирито stood in front of the chain in his place, carefully stroking the dully shining chain with the spread ahead right hand. After repeating this exercise several times, he tapped a point in the center part of the chain many times with his index finger.
+"Здесь... глазами, конечно, не увидеть, но здесь определённо царапина. Шейта-сан, полагаю?"
 
-"Here... it is too small to be seen with one’s eyes, but there is definitely a scratch. Шейта-сан, isn’t it?"
+Кирито спросил, не оборачиваясь, и Рыцарь Целостности твёрдо кивнула.
 
-Кирито asked the question without turning, и the Integrity Knight firmly nodded.
+"Да, как я и говорила. Будь это Меч Чёрной Лилии, я бы разрезала."
 
-"Yes, I told you before. Should it have been a Black Lily Sword, I’d cut it through."
+"Полагаю, это так...... Эта царапина, я воспользуюсь ей."
 
-"I guess so...... This scratch, I’ll use it."
+Кирито кивнул и отошёл на три шага от цепи, затем, наконец, схватился за рукоять меча на своём левом бедре.
 
-Кирито nodded и stepped three steps away from the chain, then finally grasped the sword at his left hip.
+### Продолжение завтра
 
 Looking at the sword pulled out with a sharp, clear sound, Исукан и Шейта faintly sighed.
 
@@ -441,8 +442,8 @@ Until someone touched her back, Ронье kept holding the baby hard.
 
 ## Примечания:
 
-1. <a name="Prim1"></a>#KawaharaMath In vol.18 Кирито has been revived about 1500 to 2000 kilolu to the north of the World End Alter (see illustration). Not only was he able to locate the “huge heterogenous object” at least 1000 kilolu to the south (Alice would reach Alter in \~6 hours if Кирито flies at \~300 km/h, so Subtilizer who is slightly faster than 120 km/h being dragon’s max speed, let’s say, 150 km/h, would be in about 1100 km from Кирито at the moment of him finishing off Vasago), but also to fly these 1500 to 2000 kilolu with Асуна in hands (and 3 super-high-priority swords!) over even less productive area than “normal” Тёмной Территории where he can “fly in a stable manner” for 10 kilolu only.
-2. <a name="Prim2"></a>#KawaharaMath Nope, it could, remember, 120 km/h max?
+1. <a name="Prim1"></a>#Кавахарифметика В томе 18 Кирито очнулся примерно от 1500 до 2000 килолу на север от Ворлд Энд Олтэр (согласно иллюстрации). При этом он не только смог прекрасно обнаружить “огромный чужеродный объект” на расстоянии как минимум 1000 килолу на юг (Алиса бы достигла Алтаря за \~6 часов, лети Кирито со скоростью \~300 км/ч, так что Сабтилайзер, перемещающийся чуть быстрее, чем максимальная драконья скорость в 120 км/ч, скажем, 150 км/ч, должен был находиться примерно в 1100 км от Кирито в тот момент, когда тот прикончил Вассаго), но и преспокойно пролететь эти от 1500 до 2000 килолу с Асуной на руках (а также с 3 супер-высоко-приоритетными мечами!) по ещё менее благоприятной области, чем “обычная” Тёмная Территория, где он мог “стабильно лететь” всего десять килолу (по версии этой книги).
+2. <a name="Prim2"></a>#Кавахарифметика Ну как же, дракон смог бы, помните, 120 км/ч макс. скорость?
 <!--3. <a name="Prim3"></a>-->
 <!--4. <a name="Prim4"></a>-->
 <!--5. <a name="Prim5"></a>-->

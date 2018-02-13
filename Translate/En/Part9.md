@@ -119,7 +119,7 @@ Ronye ran over and stood in the front of the senior Integrity Knight and spoke e
 
 "Is there a large obsidian door, like that big door, near Scheta-sama and Isukan-sama's bedroom?"
 
-"Obsidian doors......? ── No, all the doors in the vicinity are made of wood and the exterior window bars are made of iron."
+"Obsidian door......? ── No, all the doors in the vicinity are made of wood and the exterior window bars are made of iron."
 
 "Well, then is there any mechanism involving a rock rubbing against rock...?"
 
@@ -137,7 +137,7 @@ Isukan groaned this with arms folded.
 
 Kirito who mumbled it turned his eyes to the ceiling of the hall.
 
-"Isukan, you were saying that yourself. On top of this, 49th floor, there is a real top floor."
+"Isukan, you were saying that yourself. On top of that, 49th floor, there is a real top floor."
 
 General commander and authorized ambassador inhaled at the same time.
 
@@ -147,7 +147,7 @@ General commander and authorized ambassador inhaled at the same time.
 
 "............No ......... no ...... certainly......"
 
-Escrow moved the head awkwardly.
+Isukan turned his head with awkward expression on his face.
 
 "...... When Vector came down and ten clans of Dark Territory were gathered at that time, I certainly saw a window in the throne hall. But now, looking from the outside, there are only rocks above the 49th floor, no windows...."
 
@@ -205,7 +205,7 @@ Walking up without any notion of being pushed back by the incarnation swirling a
 
 "No...... let me do it."
 
-"We’ll need your fists when fighting minions and kidnappers, and I am good at this kind of things."
+"We’ll need your fists when fighting a minion and a kidnapper, and I am good at this kind of things."
 
 Hearing the words of Kirito that were calming down his fighting spirit, Isukan deeply breathed several times, then turned back and walked away, saying.
 
