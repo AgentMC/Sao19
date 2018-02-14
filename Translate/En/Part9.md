@@ -235,7 +235,7 @@ There was no doubt that the chain was given the same "non-destructive attribute"
 
 It was not sword skills or sword priority that could cut the chain, but the miraculous ability to rewrite "the matter of the world" — the power of incarnation.
 
-Kirito went away three more steps, then stretched his left hand forward and pulled the right hand holding the Sword of the Night Sky behind his shoulder. Firmly pressed the floor with both legs spread forward and backward, breathed in heavily, and held it.
+Kirito went away three more steps, then stretched his left hand forward and pulled the right hand holding the Sword of the Night Sky behind his shoulder. Firmly pressed the floor with both legs spread forward and backward, breathed in deeply, and held it.
 
 Kirito’s body who took a stance not of a traditional school was covered in red light. A tornado-like wind blew up from his feet, and Ronye was almost blown away, but stomped hard and kept on her feet.
 
@@ -277,7 +277,7 @@ To the voice of Isukan, Kirito lifted the left hand and answered.
 
 "Yeah!"
 
-Scheta nodded, ran up to the big door and pressed both hands against obsidian panel that covered in sinister carvings. **Gogon**, the door trembled and slightly moved to the inside.
+Scheta nodded, ran up to the big door and pressed both hands against obsidian panel covered in sinister carvings. **Gogon**, the door trembled and slightly moved to the inside.
 
 "……opened."
 
@@ -329,13 +329,13 @@ Black robe kidnapper, have turned his gaze to Ronye and Kirito from the darkness
 
 From that voice, age and race could not be estimated. However, there was something that can be certainly felt.
 
-"You bastard...... man! You’re not a dark arts master!"
+"You bastard...... male! You’re not a dark arts master!"
 
 When Isukan shouted, the kidnapper leaked a strange laughter.
 
 "There are men among the Human World clerics, aren’t they? Then, can’t a man be a dark arts master?"
 
-"...No, that poison sword, it has a familiar look......Bastard, you are that dick from the assassins guild!"
+"...No, that poisonous blade, it has a familiar look......Bastard, you are that dick from the assassins guild!"
 
 "Sword, what about it...... Such a sword, anyone can use it, no? Maybe I’m a fist fighter you threw out of the team......?"
 
@@ -423,7 +423,7 @@ A secret sword move, which Kirito said to mean in sacred words "jumping with a s
 
 Shortly after, Kirito's mental barrier disappeared, and Lisetta was thrown into the air.
 
-The man in the black robe who lost both arms, even without stopping his feet and spilling a lot of blood, jumped on him window.
+The man in the black robe, even after losing both arms, did not stop his feet and spilling a lot of blood, rushed to the window.
 
 It may have been possible to knock the kidnapper down, should she proceed with further sword skill. But Ronye chose to stop moving and catch the Lisetta.
 
