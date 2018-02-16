@@ -54,7 +54,7 @@ Bercouli's body was carried by Alice with the dragon<sup><a href="#Prim2">2</a><
 
 Saying so with a tough face, Kirito turned his gaze to the window.
 
-"...But if the power of a gem opened and closed the window of the fifteenth floor, there is definitely a possibility that it was belonging to Vector, as Isukan says. Although, who would know how to use it... and there is still a question of who that man who had it was in the first place.... ── What is that assassin guild you mentioned in the throne hall?"
+"...But if the power of a gem opened and closed the window of the fiftieth floor, there is definitely a possibility that it was belonging to Vector, as Isukan says. Although, who would know how to use it... and there is still a question of who that man who had it was in the first place.... ── What is that assassin guild you mentioned in the throne hall?"
 
 Kirito asked so and turned around, Isukan replied with a voice full of disregard, after drinking a cup of tea<sup><a href="#Prim4">4</a></sup>.
 
@@ -165,7 +165,7 @@ Under the pale moonlight, the steel dragon continued its run on and on, to the w
 ## Footnotes:
 
 1. <a name="Prim1"></a>口を挟む, also means a specific gesture, confused look while holding a pen or pencil horizontally between a nose and an upper lip, but doesn’t look like they had pencils there.
-2. <a name="Prim2"></a>Vol 18 says she was flying alone. Maybe I messed OCR so hard, or missed a paragraph, let’s wait for Defan to verify, but I’m pretty sure she was trying to reach the Altar ASAP, so additional weight would have been redundant.
+2. <a name="Prim2"></a>Vol 17 says she mounted his body on _some_ dragon to pass it to Fanatio (which means sending it North). Vol 18 says she was flying alone (South). Maybe I messed OCR so hard, or missed a paragraph, let’s wait for Defan to verify, but I’m pretty sure she was trying to reach the Altar ASAP, so additional weight would have been redundant.
 3. <a name="Prim3"></a>I had remark on this in v18, but for English readers who decided not to fight the horrors of v18 enlate: the name Alice used there is not in the sacred language “World End Alter”, but rather translated version, where 果て(ha-te) is the word for utility-style work or operation finalization, mission fulfilment, e.g. the Underworld program success, so the translation should be ignorant and rude to all the Underworld dwellers. However, here Kawahara still uses it for some reason, probably for the same reason as using "sub-humans" term, to highlight the early days of Underworld multi-nation culture development.
 4. <a name="Prim4"></a>Actually his voice is full of disgust, but I adjusted the adjective so it doesn’t read like the tea is awful.
 5. <a name="Prim5"></a>…and now Ronye owns Tsukigaki (dragon) and Tsukikage (sword).

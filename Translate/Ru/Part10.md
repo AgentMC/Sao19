@@ -1,174 +1,174 @@
-# Part 10
+# Часть 10
 
-Despite the fact that hundred guards spent half a day searching, the corpse of the kidnapper wasn’t found.
+Несмотря на то, что сотня стражников потратила полдня на поиски, тело похитителя так и не было обнаружено.
 
-He jumped out with his arms lost from a height of nearly 500 mel. It seemed that there was no chance for him to survive, but Исукан, Шейта, и Кирито seemed not to be optimistic that the incident was over.
+Потеряв обе руки, он выпрыгнул с высоты примерно в 500 мелов. Казалось бы, у него небыло ни малейшего шанса выжить, но Исукан, Шейта и Кирито не были достаточно оптимистичны, чтобы считать, что инцидент исчерпан.
 
-At four o’clock in the afternoon when all the operations inside the castle were finished, four people gathered again in the child's room where the window had been repaired.
+К четырём часам пополудни, когда все поисковые операции были завершены, четвёрка собралась в детской комнате, где уже отремонтировали окна.
 
-In the arms of Шейта, Лизетта was cheerfully drinking milk as if she had completely forgotten about an incident. The castle doctors, together with Шейта, who is herself a high-level cleric, after thoroughly ascertaining the influence of poison и dark arts, fortunately, could not find any problems.
+В руках Шейты, Лизетта довольно пила милк, словно ничего и не произошло. Замковые врачеватели, вместе с Шейтой, которая и сама была высокоуровневым клериком, тщательно исследовав воздействие яда и тёмных искусств, к счастью, не обнаружили никаких проблем.
 
-On the other hand, it was equal to not learning anything about kidnappers as well. The way to open the window of the 50th floor which should not be manipulated by anyone except the emperor Vector remained the greatest mystery.
+С другой стороны, о похитителях, можно сакзать, не удалось выяснить ровным счётом ничего. Да и способ, которым было открыто окно 50го этажа, которым по идее не мог управлять никто кроме Вектора, оставался загадкой.
 
-"...... It may be totally irrelevant, but ..."
+"...... Это может быть никак не связано, но..."
 
-Ронье said, seeping a scented tea that resembled an apple aroma, non-existent in the Мира Людей.
+Сказала Ронье, потягивая отдающий яблоками ароматизированный чай, не существующий в мире людей Мира Людей.
 
-"When the man tried to open the window, a big jewel fixed in his chest glowed red."
+"Когда тот человек пытался выпрыгнуть из окна, у него на груди красным загорелся большой драгоценный камень."
 
-"Red jewel......?"
+"Красный камень......?"
 
-Кирито muttered, tilting his head at the same time as Шейта. There seems to be no idea coming to both of them.
+Пробормотал Кирито, наклонив голову, так же как и Шейта. К ним, по видимому, ни одной идеи в голову не пришло.
 
-However, Исукан, who was trying to chew a large cut of the fruit pie, knitted his eyebrow и muttered.
+Однако, Исукан, пытавшийся прожевать большой ломоть фруктового пирога, нахмурился и произнёс.
 
-"That red gem...... Do you remember what the color was like, Ронье-jochan?"
+"Этот красный камень...... Ты помнишь, что именно напоминал его цвет, Ронье-дзотян?"
 
-Ронье replied, thinking this was the first time when the fist fighter leader called her name.
+Ронье ответила, подумывая о том, что это был первый раз когда кулачный боец называл её по имени.
 
-"Well, it wasn’t too bright... it was dark red, reminiscent of blood, or a sunset."
+"Ну, он был не слишком ярким... тёмно-красный, напоминающий закат или такой ещё может быть кровь."
 
-"Bloody red............... bloody hell......"
+"Какой может быть кровь............... быть того не может......"
 
-"Hey Исукан, it is foul play to stop at just "bloody hell", you know!"
+"Эй Исукан, останавливаться на фразе "быть того не может", это ничерта не правильно!"
 
-Said Кирито resting his chin on hands<sup><a href="#Prim1">1</a></sup>.
+Сказал Кирито, держа подбородок на ладонях<sup><a href="#Prim1">1</a></sup>.
 
-"I’m not playing fool......"
+"Да я ни про какую черту и не......"
 
-Despite having a confused expression, Исукан explained.
+Несмотря на сбитое с толку выражение лица, Исукан объяснил.
 
-"A stone like that was in the crown of the emperor Vector when he descended before the Foreign World War. The jewel he wore was just like that, I remembered somehow."
+"Подобный камень был в короне Императора Вектора, когда он сошёл перед Войной с Внешним Миром. И тот камень выглядел именно так, мне почему-то запомнилось."
 
-"Vector’s crown... It really does not make sense. That person was a thousand kilometers south of this place, killed by the knight chief Bercouli on a rock и died at once. When he later resurrected, he did not wear such a crown anymore. So, everything should have disappeared on a that rock."
+"Корона Вектора... бессмыслица какая-то. Этот человек был за тысячу килолу к югу от этого места повержен командиром рыцарей Беркули и сразу же умер на той самой скале. Когда он позже воскрес, Короны у него больше не было. Так что всё должно было исчезнуть на той скале."
 
-"But you did not see it, did you?"
+"Но ты ведь сам не видел, не так ли?"
 
-To Исукан’s point, Кирито only nodded "Well... ".
+На замечание Исукана, Кирито только кивнул "Ну... ".
 
-At that time, Кирито was in a state of unconsciousness. Integrity Knight Alice was the only one present in the vicinity of the Knight Chief Bercouli и the Emperor Vector, but she was no longer in Underworld.
+В то время Кирито всё ещё был в бессознательном состоянии. Рыцарь Целостности Алиса была единственной, кто находился вблизи от командующего рыцарей Беркули и Императора Вектора, но её в Подмирье больше не было.
 
-Bercouli's body was carried by Alice with the dragon<sup><a href="#Prim2">2</a></sup> almost to the "Altar of the Completion"<sup><a href="#Prim3">3</a></sup>, и Кирито later took him back to Мира Людей. He was resting under a tombstone built in the center of the flower garden spreading in the southeastern part of Центральный Собор.
+Алиса отнесла тело Беркули на драконе<sup><a href="#Prim2">2</a></sup> почти до самого "Алтаря Завершения"<sup><a href="#Prim3">3</a></sup>, и Кирито позже забрал его в Мир Людей. Он обрёл покой под могильным камнем, установленным в центре цветочного сада, раскинувшегося на юго-восток от Центрального Собора.
 
-"...Indeed, there was no search for the place where Bercouli fought against Vector. It would be hard to identify now..."
+"...Действительно, мы не пытались найти то место, где Беркули сражался с Вектором. Сейчас определить его уже будет непросто..."
 
-Saying so with a tough face, Кирито turned his gaze to the window.
+Сказав это со сложным выражением на лице, Кирито обратил свой взгляд к окну.
 
-"...But if the power of a gem opened и closed the window of the fifteenth floor, there is definitely a possibility that it was belonging to Vector, as Исукан says. Although, who would know how to use it... и there is still a question of who that man who had it was in the first place.... ── What is that assassin guild you mentioned in the throne hall?"
+"...Но если сила камня открыла  и закрыла окно на пятидесятом этаже, определённо сохраняется возможность, что он принадлежал Вектору, как Исукан и сказал. Хотя, кто бы догадался как его использовать... и всё ещё остаётся вопрос, кто же был этот человек.... ── Что это за гильдия убийц, о которой ты упоминал в тронном зале?"
 
-Кирито asked so и turned around, Исукан replied with a voice full of disregard, after drinking a cup of tea<sup><a href="#Prim4">4</a></sup>.
+Спросил Кирито и развернулся к Исукану, который, отпив из чашки с чаем, ответил голосом, полным пренебрежения<sup><a href="#Prim4">4</a></sup>.
 
-"That's those guys who commit assassinations for living. Using poisons....... One of former Тёмной Территории Ten Clans, their head Fu Za was hit by the rebellious attack of the dark general Shuster и died. That is why the organization was ultimately weakened, и now they have not even joined the Five Clans Conference. I almost forgot of their existence, but... It is completely unbelievable that the black robe bastard is a guy of the assassin guild, и he managed to control a minion......."
+"Это ребята, что зарабатывают на жизнь убийствами. Используют яды....... Один из бывших Десяти Кланов Тёмной Территории, их глава Фу За попал под удар во время восстания тёмного генерала Шустера и погиб. Поэтому организация была сильно ослаблена, и они до сих пор не присоединились к Конференции Пяти Кланов. Я почти забыл об их существовании, но... Я просто отказываюсь верить, что этот ублюдок в чёрном плаще был из гильдии убийц и смог командовать миньоном......."
 
-"Together with the missing dark arts masters, we’ll investigate them better."
+"Мы проведём серьёзное расследование по ним, вместе с пропавшими мастерами тёмных искусств."
 
-Шейта nodded deeply to his words.
+Уверенно кивнула Шейта на его слова.
 
-"Yes, I will discuss this with the Knights Order и the Commercial Guild. I will not let such a mess occur in Обсидия anymore."
+"Да, я обсужу это с Орденом Рыцарей и гильдией торговцев. Недопущу, чтобы в Обсидии снова произошёл такой бедлам."
 
-Кирито leaned forward to Исукан who declared this.
+Кирито наклонился вперёд к провозгласившему это Исукану.
 
-"In such a case, should you not ask for a cooperation from the гильдия мастеров тёмных искусств? We all well-remember the deeds of D.I.L., и the obvious inhospitality of dark arts masters can’t be helped, but... it is better for them to protect the castle as much as possible. Only guards are unreliable for defending against arts."
+"В таком случае, разве не следует заставить сотрудничать гильдию мастеров тёмных искусств? Мы все хорошо помним свершения Ди.Ай.Эл., и с очевидной недружелюбностью тёмных мастеров вряд ли можно будет что-то поделать, но... лучше уж будет, если и они будут защищать замок. Стражники сами по себе мало что могут противопоставить тёмным искусствам."
 
-"I wonder if the ear pain pays off."
+"Не уверен, стоит ли игра свеч."
 
-Despite the bitter smile, Исукан shrugged и replied.
+Несмотря на кривую ухмылку, Исукан всё же пожал плечами и ответил.
 
-"But yes, certainly that's a way to go. That added to quarrels between humans around Обсидия, the problems of sub-humans trying to settle in shared areas, и problems alike.... ── Кирито, okay, how long can you stay here?"
+"Но да, определённо, это то, что следует сделать. Если это добавить к ссорам между людьми вокруг Обсидии, проблеме суб-людей, пытающихся осесть в смежных областях, и тому подобному.... ── окей Кирито, сколько ты ещё собираешься здесь оставаться?"
 
-This time it was already Исукан who tilted ahead, и Кирито strengthened his upper body.
+На этот раз уже Исукан вопросительно наклонил голову, и Кирито выпрямился.
 
-"Well, of course I want to cooperate to the utmost, but... I will return to Мира Людей tonight, the problem over there has not been solved yet..."
+"Ну, я бы, конечно, с радостью тебе помог всеми силами, но... Я вернусь в Мир Людей этой ночью, ведь ту проблему так и не удалось разрешить..."
 
-"Oh, well, that's right, but... you see, I kinda… did not properly thank you for saving Лизетта, и there is still so much things to eat ..."
+"Ох, да, оно, конечно, так, но... понимаешь, я вроде… так и не отблагодарил вас за спасение Лизетты, да и ещё столько всяких вкусных штук не съедено..."
 
-Looking at Исукан puffing his lips like a child, Кирито just smiled with an expression exposing a little bit of grief yet somewhat nostalgic.
+Видя как Исукан надул губы словно маленький ребёнок, Кирито просто улыбнулся с лицом, в котором виделась печаль и совсем немного — ностальгия.
 
-"...... what is wrong?"
+"...... что-то не так?"
 
-"Nothing...... The talk of Исукан reminded me an old friend. Well, a future meeting is scheduled next month, is not it? That time, I will get in with more people."
+"Ничего...... Слова Исукана напомнили мне о старом друге. Ладно, следующая встреча запланирована через месяц, правильно? На этот раз я прибуду с большим количеством народу."
 
-"All right, then, I’ll at least make arrangements for the last evening delicacy, something like a pile of Meh snake or maybe a living eel....... Anyway, this time I was really taken care of. I will never forget this kindness in my life."
+"Замётано, раз так, я по крайней мере организую последние вечерние деликатесы, что-то типа кучи змеи Мэ или может живого угря....... Так или иначе, в этот раз вы о нас позаботились. В жизни не забуду о вашей доброте."
 
-Кирито firmly grasped the right hand which rising Исукан had stretched. Seeing those two, Лизетта joyfully laughed “**kya, kya**” in Шейта’s arms.
+Кирито крепко схватил правую руку, которую протянул поднимающийся Исукан. Наблюдая за ними двумя, Лизетта в руках Шейты радостно смеялась “**кья, кья**”.
 
 ***
 
-Кирито и Ронье, who took a few hours of nap in their apartment и finished a simple meal, departed from Обсидия Castle at 8 p.m.
+Кирито и Ронье, несколько часов проспавшие в своих апартаментах и покончившие с простой едой, отправились из замка Обсидия в 8 часов вечера.
 
-This time, there was no need to paint the face with ointment, or to fly with incarnation. Шейта sent them to the place where the machine dragon was left by her loved dragon Yoiyobi.
+На этот раз им не пришлось скрывать лица мазью или лететь с помощью инкарнации. Шейта доставила их к тому месту, где был оставлен искусственный дракон, на спине своего любимого дракона Ёиёби.
 
-She seemed to be surprised seeing the steel dragon, but apparently, she realized the possibilities of the machine dragon at once. Saying that if this is mass-produced, the day will come when the travel between Мира Людей и Тёмной Территории is simple и enjoyable, Шейта returned to the castle of Обсидия which was her place of assignment и home as well; Кирито и Ронье also got into the dragon и flew to the western sky.
+Её, конечно, удивил стальной дракон, но судя по всему, она сразу поняла преимущества искусственных драконов. Сказав на прощанье, что если придёт тот день, когда подобное станет массовой продукцией, то путешествия между Миром Людей и Тёмной Территорией будут простыми и приятными, Шейта вернулась в замок Обсидия, бывший её местом службы и ставший ей домом; Кирито и Ронье забрались в дракон и полетели в западное небо.
 
-When the flight stabilized, after exhaling a long breath, Кирито in the front seat said.
+когда полёт стабилизировался, глубоко вздохнув, Кирито, сидящий на переднем сидении, сказал.
 
-"Anyway, that "Sonic Leap" when you secured Лизетта from the kidnapper was awesome, Ронье. When did you raise your skills so much?"
+"Слушай, а тот "Звуковой скачок", которым ты защитила Лизетту от похитителя, был просто класс, Ронье. когда это ты успела так поднять свои навыки?"
 
-"T-that... w-was, like they say, just trance......"
+"Эт-то... было, как говорится, просто в трансе......"
 
-Shortening her neck, she touched gently the silver guard of the loved sword laid in the gap between the chair и the wall.
+Втягивая голову в плечи, она мягко коснулась серебряной гарды своего любимого меча, лежащего в проёме между сиденьем и стеной.
 
-"...At that time, it seems that the sword has lent its power. In your shoes I could not jump that distance, absolutely."
+"...В тот миг, мне показалось, что меч сам одолжил тебе силу. Будь я на твоём месте, я бы на такое расстояние не допрыгнул, уж точно."
 
-"W-well... that's a good sword."
+"Н-ну... это хороший меч."
 
-"Yes."
+"Ага."
 
-He nodded, и Ронье entrusted her body to the back of the seat.
+Он кивнул, и Ронье откинулась на спинку заднего сидения.
 
-As they flew, through the transparent windshield one could see the night sky of the Тёмной Территории. There were fewer stars compared to Мира Людей, but a big crescent moon was shining white in the middle of the sky.
+Пока они летели, через прозрачное стекло кабины можно было налюдать за ночным небом Тёмной Территории. По сравнению с Миром Людей звёзд было меньше, но в середине неба светил белым большой молодой месяц.
 
-_Мира Людей и Тёмной Территории are far apart, but the people living in both worlds are watching the same moon...._
+_Мир Людей и Тёмная Территория так различаются, но люди, живущие в обоих мирах, смотрят на одну луну...._
 
-At the moment when she thought so, the same mysterious sensation came as when she saw a sign of an inn in Обсидия castle town и when she heard the melody of the hour bells, but this time Ронье caught the thought.
+В тот момент, когда она об этом подумала, её посетило то же самое таинственное чувство, как в тот раз когда она видела знак таверны в раскинувшемся вокруг замка Обсидия городе, или когда она слышала мелодию колоколов, но теперь Ронье удалось ухватить мысль.
 
-"Ah... that, Кирито-сенпай."
+"А... это, Кирито-сенпай."
 
-"Hmm? What is it?"
+"Хмм? Что такое?"
 
-"Um...... Why are people using the same words и letters in Мира Людей и Тёмной Территории? Since the birth of Underworld, there were few exchanges between the two worlds, so it would be no wonder even if we use completely different languages..."
+"Умм...... Почему люди в Мире Людей и в Тёмной Территории используют одни и те же буквы и язык? С самого рождения Подмирья, между двумя мирами почти не было контактов, так что было бы естественно, если бы и языки были совсем разные..."
 
-She could have never thought of this before, until she saw the world with her own eyes, so Ронье wanted to know the reason и asked this to Кирито.
+Если бы она не увидела этот мир своими глазами, такая мысль никогда бы не пришла к ней в голову, так что Ронье захотела понять причину, и потому спросила Кирито.
 
-A swordsman born in a real world answered after keeping silent for a while.
+Рождённый в реальном мире мечник ответил не сразу, а какое-то время помолчав.
 
-"Thing is... the real world people who created this world were to bring Мира Людей и Тёмной Территории into conflict, so it was better for them to have two lands speaking completely different languages. If we cannot communicate, we cannot negotiate peace. But they...... or something other than Real World persons intentionally made the language common. I do not understand why. But perhaps it may be because it creates the world able to overcome hostility и conflict............"
+"Дело в том... люди реального мира, создавшие этот мир, имели целью столкнуть Мир Людей и Тёмную Территорию в конфликте, так что для них было бы удобнее создать две страны, разговаривающие на совсем разных языках. Не способные общаться, мы не смогли бы договориться. Но они...... или что-то помимо воли людей реального мира, намеренно сделали зык общим. Я не понимаю почему. Возможно, потому что это создало мир, способный преодолеть многовековую враждебность и вражду............"
 
-The words of Кирито were too difficult for Ронье. However, she did not seek further explanation и kept thinking hard.
+Ронье было сложно осознать слова Кирито. Однако, она не стала искать дальнейщих объяснения, а крепко задумалась.
 
-_Кирито said, Lunaria floating in the night sky is a giant sphere like this planet. That's why it’s waxing и waning in response to the light of Solus.  
-If people live on Lunaria, they should see a crescent Earth just like me living here. If so, maybe they speak the same words. Maybe, like humans of this world, they live their lives making a lot of mistakes, fighting и shedding blood, yet still striving for a better world?_
+_Кирито сказал, парящая в ночном небе Лунария — гигантская сфера, так же как и эта планета. Поэтому она прибывает и убывает в зависимости от света Солуса.  
+Если на Лунарии живут люди, они должны видеть молодой месяц нашей планеты, так же как и мы. И раз так, возможно они говорят на одном снами языке. Может, как и люди этого мира, они проживают свои жизни, совершая множество ошибок, сражаются и проливают кровь, но всё же стремятся к лучшему миру?_
 
-Feeling as if the crescent moon floating quietly in the night sky was a cradle growing many lives, Ронье gently stretched her left hand towards Lunaria.
+Чувствуя, что молодой месяц, плывущий в небе, подобен колыбели взращивающей множество жизней, Ронье медленно протянула свою руку к Лунарии.
 
-Returning her hand to the handle of the loved sword again, Ронье said.
+Вернув её на рукоять своего меча, Ронье сказала.
 
-"Oh, сенпай."
+"Ой, сенпай."
 
-"Hmm……?"
+"Хммм……?"
 
-"I decided on this sword's name, “Sword of the Moon Light”<sup><a href="#Prim5">5</a></sup>, I will name it."
+"Я определилась с именем меча, “Меч Лунного Света”<sup><a href="#Prim5">5</a></sup>, так я назову его."
 
-"Oh, yes, it's a nice name, I'm sure it will protect Ронье."
+"О, да, отличное имя, я уверен, он защитит Ронье."
 
-After smiling и nodding "Yes!" to Кирито’s words, Ронье wiped away the running tear with her fingertip.
+Улыбнувшись и кивнув "Да!" на слова Кирито, Ронье кончиком пальца смахнула набежавшую слезинку.
 
-_I want to see Тейза soon.  
-I want to tell my best friend who is swaying between missing the deceased elite swordsman Yujio и the proposal of the Knight Renri, what I had learned in this trip._
+_Скорее бы Тейзу снова увидеть.  
+Хочу рассказать моей лучшей подруге, колеблющейся между погибшим элитным мечником Юдзио и предложением рыцаря Ренри, что я узнала в этом путешествии._
 
-As if feeling Ронье’s thoughts, Кирито slightly increased the speed of the dragon.
+Как будто услышав мысли Ронье, Кирито немного увеличил скорость дракона.
 
-Under the pale moonlight, the steel dragon continued its run on и on, to the west.
+Освещённый бледным лунным светом, стальной дракон продолжал улетать всё дальше и дальше на запад.
 
-(THE END)
+(КОНЕЦ)
 
 ## Примечания:
 
-1. <a name="Prim1"></a>口を挟む, also means a specific gesture, confused look while holding a pen or pencil horizontally between a nose и an upper lip, but doesn’t look like they had pencils there.
-2. <a name="Prim2"></a>Vol 18 says she was flying alone. Maybe I messed OCR so hard, or missed a paragraph, let’s wait for Defan to verify, but I’m pretty sure she was trying to reach the Altar ASAP, so additional weight would have been redundant.
-3. <a name="Prim3"></a>I had remark on this in v18, but for English readers who decided not to fight the horrors of v18 enlate: the name Alice used there is not in the sacred language “World End Alter”, but rather translated version, where 果て(ha-te) is the word for utility-style work or operation finalization, mission fulfilment, e.g. the Underworld program success, so the translation should be ignorant и rude to all the Underworld dwellers. However, here Kawahara still uses it for some reason, probably for the same reason as using "sub-humans" term, to highlight the early days of Underworld multi-nation culture development.
-4. <a name="Prim4"></a>Actually his voice is full of disgust, but I adjusted the adjective so it doesn’t read like the tea is awful.
-5. <a name="Prim5"></a>…and now Ронье owns Tsukigaki (dragon) и Tsukikage (sword).
+1. <a name="Prim1"></a>口を挟む, также обозначает специфический жест, сконфуженный взгляд, при этом ручка или карандаш удерживаются горизонтально между носом и верхней губой, но вряд ли у них там были карандаши.
+2. <a name="Prim2"></a>Том 17 говорит, что она поместила его тело на _некоего_ дракона, дабы передать Фанатио (что означает отправить тело на север). Том 18 говорит, что она летела в одиночестве (на юг). Может я сильно накосячил с распознаванием или где-то абзац пропустил, подожду Defanовского перевода чтобы уж точно убедиться, но что-то говорит мне, что она старалась достичь Алтаря как можно быстрее, так что дополнительный вес был бы излишним.
+3. <a name="Prim3"></a>У меня уже была ремарка в 18 томе (глава 22, часть 2) о двух названиях Алтаря и почему это второе название некрасивое и даже грубое по отношению к жителям Подмирья. Однако, здесь Кавахара по какой-то причине всё ещё его использует, вероятно по той же, по которой в ходу и термин "суб-люди", чтобы подчеркнуть молодой период развития мультикультурности Подмирья.
+4. <a name="Prim4"></a>Вообще-то по оригиналу его голос полон отвращения, Но я поменял оттенок эмоции, чтобы не казалось, что это ему чай не понравился.
+5. <a name="Prim5"></a>…и теперь у Ронье есть Цукигаки (дракон) и Цукикаге (меч).
 <!--6. <a name="Prim6"></a>-->
 <!--7. <a name="Prim7"></a>-->
 <!--8. <a name="Prim8"></a>-->

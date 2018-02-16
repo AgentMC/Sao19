@@ -67,7 +67,7 @@ Aincrad sword style followed by Kirito and Asuna emphasized the importance of ru
 
 A few mels ahead, there were Isukan and Scheta in night dressing. And beyond them, there were two black things.
 
-They could only be named monsters. Although the shape in the whole was close to a humans or sub-humans, the neck and arms were profusely long, and in front of a head like of some sort of fish, was a round restlessly shrinking mouth in which countless fangs grew inward. Four eyes were placed on all sides of the conical head, the wings with a thin membrane flapped on the back and the long tail loosely fell from the waist.
+They could only be named monsters. Although the shape in the whole was close to a humans or sub-humans, the neck and arms were profusely long, and in front of a head resembling some sort of fish, was a round restlessly shrinking mouth in which countless fangs grew inward. Four eyes were placed on both sides of the conical head, the wings with a thin membrane flapped on the back and the long tail loosely fell from the waist.
 
 "Is that....... minions!?"
 
