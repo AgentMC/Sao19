@@ -319,7 +319,7 @@ Kirito said again with a threatening letter in his right hand.
 
 "Ronye realized the possibility that the murder in Human World is a trap for make me go to Obsidia. But I decided that if I move to Obsidia in a day, no conspiracy could catch up with me. However, the guys who kidnapped Lisetta are good ones... they have a group in both Human World and Dark Territory and they have a means to contact each other faster than with machine dragon."
 
-"Machine... dragon? You used it to be able to move from Centoria to Obsidia in a day?<sup><a href="#Prim2">2</a></sup>"
+"Machine... dragon? You used it to be able to move from Centoria to Obsidia in a day?"
 
 Kirito nodded to Scheta’s question.
 
@@ -381,12 +381,4 @@ With this short word, he quickly left the room together with Scheta. When the do
 ## Footnotes:
 
 1. <a name="Prim1"></a>足運び, characteristic way of moving, keeping the center of gravity low.
-2. <a name="Prim2"></a>I was under impression they discussed it… Given that one of the color illustrations contains the dialog not existing in the book, probably we can speculate that the segment where they talk by the window in part 7 was heavily rewritten or edited in the last moment.
-<!--3. <a name="Prim3"></a>-->
-<!--4. <a name="Prim4"></a>-->
-<!--5. <a name="Prim5"></a>-->
-<!--6. <a name="Prim6"></a>-->
-<!--7. <a name="Prim7"></a>-->
-<!--8. <a name="Prim8"></a>-->
-<!--9. <a name="Prim9"></a>-->
-<!--10. <a name="Prim10"></a>-->
+
