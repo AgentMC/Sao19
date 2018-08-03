@@ -331,7 +331,7 @@ Kirito suddenly shook his head and said quite casually.
 
 When the meeting was over, Solus was already disappearing over the western horizon.
 
-Ronye rushed to the dragon stables to the west of Cathedral and waved cheerfully to Tiese was taking care of Tsukigaki.
+Ronye rushed to the dragon stables to the west of Cathedral and waved cheerfully to Tiese was taking care of Tsukigake.
 
 "I'm sorry, I got late!"
 
@@ -359,7 +359,7 @@ Indeed, during the "Rebellion of Four Empires", Emperors reigning those days iss
 
 Tiese relaxed her arms she unintentionally hugged herself with and told Ronye switching the tone.
 
-"Well, if that is the way things go, I will have to take care of Tsukigaki a little more."
+"Well, if that is the way things go, I will have to take care of Tsukigake a little more."
 
 "Huh? Why?"
 

@@ -147,7 +147,7 @@ Returning her hand to the handle of the loved sword again, Ronye said.
 
 "Hmm……?"
 
-"I decided on this sword's name, “Sword of the Moon Light”<sup><a href="#Prim5">5</a></sup>, I will name it."
+"I decided on this sword's name, “Sword of the Moonlight”<sup><a href="#Prim5">5</a></sup>, I will name it."
 
 "Oh, yes, it's a nice name, I'm sure it will protect Ronye."
 
@@ -168,7 +168,7 @@ Under the pale moonlight, the steel dragon continued its run on and on, to the w
 2. <a name="Prim2"></a>Vol 17 says she mounted his body on _some_ dragon to pass it to Fanatio (which means sending it North). Vol 18 says she was flying alone (South). Maybe I messed OCR so hard, or missed a paragraph, let’s wait for Defan to verify, but I’m pretty sure she was trying to reach the Altar ASAP, so additional weight would have been redundant.
 3. <a name="Prim3"></a>I had remark on this in v18, but for English readers who decided not to fight the horrors of v18 enlate: the name Alice used there is not in the sacred language “World End Alter”, but rather translated version, where 果て(ha-te) is the word for utility-style work or operation finalization, mission fulfilment, e.g. the Underworld program success, so the translation should be ignorant and rude to all the Underworld dwellers. However, here Kawahara still uses it for some reason, probably for the same reason as using "sub-humans" term, to highlight the early days of Underworld multi-nation culture development.
 4. <a name="Prim4"></a>Actually his voice is full of disgust, but I adjusted the adjective so it doesn’t read like the tea is awful.
-5. <a name="Prim5"></a>…and now Ronye owns Tsukigaki (dragon) and Tsukikage (sword).
+5. <a name="Prim5"></a>…and now Ronye owns Tsukigake (dragon) and Tsukikage (sword).
 <!--6. <a name="Prim6"></a>-->
 <!--7. <a name="Prim7"></a>-->
 <!--8. <a name="Prim8"></a>-->

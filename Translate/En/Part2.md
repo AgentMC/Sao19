@@ -56,7 +56,7 @@ Having released both shoulders of Kirito and nodded to the each chair around the
 
 Having answered, the knight chief passed on a sleeping baby to the arms of Ronye. She was surprised by the weight felt by her arm. As an integrity knights apprentice, Ronye could swing with one hand both Human World’s weapon or a large two-mel length sword from the Dark Territory, but the weight of a child seemed quite different from that of a weapon.
 
-One-year-old Berchie firmly hugged to her chest with both arms and let out some murmuring, but immediately returned to restful sleep again. She bowed to Fanatio and returned to the wall. Tsukigaki waiting there stretched its nose to smell Berchie and seemed to be interested.
+One-year-old Berchie firmly hugged to her chest with both arms and let out some murmuring, but immediately returned to restful sleep again. She bowed to Fanatio and returned to the wall. Tsukigake waiting there stretched its nose to smell Berchie and seemed to be interested.
 
 At the round table, Kirito, Asuna, Fanatio, Dusolbert, the head of clerics once used to be a monk and chiefs of various departments of the Cathedral sat around and started a meeting immediately.
 
@@ -68,7 +68,7 @@ Since that day was not a formal meeting, the knight apprentice Ronye was not obl
 
 But there was something Ronye secretly wanted to ask Kirito. When watching the flight experiment in the morning, she suddenly felt the need to confirm or reject the idea that came into her mind. But since Kirito would flew away as soon as Cathedral staff takes their eyes off him — to shopping streets of Centoria or to some city or village somewhere in the Human World as he has already done when things got rough, she intended to catch him quickly at the end of this meeting.
 
-Training the incarnation, one may keep standing for a few hours with one foot on the top of a thin iron pole, but waiting for the end of this meeting with her back by the pillar was causing more impatience. _But as long as there’s Tsukigaki here, who is by its nature much calmer young dragon than Tiese’s Shimosaki, I won’t get tired of propping the pillar._
+Training the incarnation, one may keep standing for a few hours with one foot on the top of a thin iron pole, but waiting for the end of this meeting with her back by the pillar was causing more impatience. _But as long as there’s Tsukigake here, who is by its nature much calmer young dragon than Tiese’s Shimosaki, I won’t get tired of propping the pillar._
 
 While standing still listening to lively discussions, the baby snugly cuddled in her arms suddenly sneezed.
 
@@ -221,7 +221,7 @@ Ronye lowered her head and glanced at Kirito who babbled something unclear while
 
 Without giving Ronye a single chance to pinch his mouth, Kirito disappeared in the northern door leading to the lift shaft.
 
-And already from there, he shouted in a loud voice to Ronye, who let her hands fall down onto the neck of Tsukigaki approaching her.
+And already from there, he shouted in a loud voice to Ronye, who let her hands fall down onto the neck of Tsukigake approaching her.
 
 "...It would be better to take the whole thing."
 
@@ -239,7 +239,7 @@ Kirito stood with a right hand on the young olive tree<sup><a href="#Prim5">5</a
 
 "It’s nothing, because this is also a responsibility of a valet."
 
-Returning a smile, Ronye quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Kirito whose eyes shined like those of a child. She took a slice for herself and for Tsukigaki, poured tea into two cups and said "Here you are".
+Returning a smile, Ronye quickly spread the rug. She took out the dishes from the basket and handed the cake cut into big chunks out to Kirito whose eyes shined like those of a child. She took a slice for herself and for Tsukigake, poured tea into two cups and said "Here you are".
 
 "Enjoy the meals!"
 
@@ -249,7 +249,7 @@ _In times like now, when I can stay with Kirito like this and have this comforti
 
 But of course, there’s no sacred art of time manipulation<sup><a href="#Prim6">6</a></sup>. One can’t go back in time, it can’t be stopped, it keeps constantly flowing towards the future.
 
-Because of the nature of the time, this world has overcome the greatest crisis and thus it was possible to obtain perfect peace. Someday Ronye will be officially appointed to be an Integrity Knight, and the day will come when she rides on the Tsukigaki’s back who grew up and soars the sky. Of course, she was looking forward to that time. But this very moment, another wish has engulfed her. _Stop, time, stop._
+Because of the nature of the time, this world has overcome the greatest crisis and thus it was possible to obtain perfect peace. Someday Ronye will be officially appointed to be an Integrity Knight, and the day will come when she rides on the Tsukigake’s back who grew up and soars the sky. Of course, she was looking forward to that time. But this very moment, another wish has engulfed her. _Stop, time, stop._
 
 "....... nye. Ronye?"
 
@@ -406,7 +406,7 @@ Two years ago it was Kirito sitting in front of her who taught so Ronye being at
 
 _── Even so, I forgot it already... no, it is worse. In truth, I did not consider the goblin tribe as equal. Even though I thought that their circumstances are pitiful, somewhere in my heart, even if they are, I didn’t think of helping it...._
 
-First her vision got blurred and then tears fell into a white dish. Tsukigaki turned to her and purred “**kurururu**” inquiringly but then a hand stretched from the front and combed Ronye’s head.
+First her vision got blurred and then tears fell into a white dish. Tsukigake turned to her and purred “**kurururu**” inquiringly but then a hand stretched from the front and combed Ronye’s head.
 
 "I'm sorry, Ronye. I told you this story though I knew you might get hurt."
 
@@ -470,7 +470,7 @@ Rising up, he held the hand out. Embarrassed, she took that hand, and Kirito pul
 
 "Here, look at that."
 
-The point where his right arm pointed to was the white semicircle floating in the dark blue eastern sky — Lunaria<sup><a href="#Prim8">8</a></sup>. Both Ronye and Tsukigaki as they were told looked up at the big star that was the source of the name of the young dragon.
+The point where his right arm pointed to was the white semicircle floating in the dark blue eastern sky — Lunaria<sup><a href="#Prim8">8</a></sup>. Both Ronye and Tsukigake as they were told looked up at the big star that was the source of the name of the young dragon.
 
 Then Kirito said something obvious.
 
@@ -490,7 +490,7 @@ Kirito surely looked confident, with a wiggly smile.
 
 "Em...... What!? A sphere!?"
 
-She couldn’t help screaming. Suddenly, she felt unwillingly feared and unconsciously stomped on both feet. Next to her Tsukigaki snorted “**fururu**” as if laughing at stupid Kirito.
+She couldn’t help screaming. Suddenly, she felt unwillingly feared and unconsciously stomped on both feet. Next to her Tsukigake snorted “**fururu**” as if laughing at stupid Kirito.
 
 Kirito then spent five minutes and taught her about the global spherical structure — the planet, — as he named it. Of course, it was not so easy to accept, but there was something that could help.
 
@@ -529,4 +529,4 @@ And then two humans and one dragon for quite some time looked up at the semicirc
 5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
 6. <a name="Prim6"></a>…anymore, see Vol.17-18
 7. <a name="Prim7"></a>See [here](https://en.wikipedia.org/wiki/Noblesse_oblige).
-8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigaki” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigaki”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.
+8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigake” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigake”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.

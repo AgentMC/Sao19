@@ -4,7 +4,7 @@
 
 Standing on tip toes and looking at the direction from where the voice came, she saw the burning red hair swaying across the crowd.
 
-She was muttering apologizes “I am sorry, I am sorry” to Central Cathedral's clerics and staff members while pushing her way through. Several people turned around, somewhat frustrated, but after noticing Tsukigaki following Ronye, gave the way.
+She was muttering apologizes “I am sorry, I am sorry” to Central Cathedral's clerics and staff members while pushing her way through. Several people turned around, somewhat frustrated, but after noticing Tsukigake following Ronye, gave the way.
 
 Somehow Ronye made it to the front row and breathed a deep breath.
 
@@ -18,7 +18,7 @@ The redhead girl inflating cheeks was the best friend of Ronye, who turned and a
 
 The name of a surprised girl was Tiese Shtolienen. She was in the same status of Integrity Knight apprentice as Ronye. Autumn-colored eyes similar to her hair were shining vividly, her slim body was wrapped in cute patterned jacket and indigo skirt. She had lowered the red leather sheath on the waist, it even seems to be a sort of jewelry fitted with clothes.
 
-_I should have brought the Southern Empire shawl I bought last week_, regretted the other one moving her gaze away, noticing Shimosaki<sup><a href="#Prim1">1</a></sup>, the young dragon she was raising, rubbing against Tsukigaki’s nose, and a young man wearing a gentle smile behind Tiese.
+_I should have brought the Southern Empire shawl I bought last week_, regretted the other one moving her gaze away, noticing Shimosaki<sup><a href="#Prim1">1</a></sup>, the young dragon she was raising, rubbing against Tsukigake’s nose, and a young man wearing a gentle smile behind Tiese.
 
 He was looking more like a boy than a young man, but the in addition to heavy long sword he was equipped with two crossed knives bent in the middle. Priority which is given to the sword was also considerable, but the one of throwing blades was simply outrageous. That weapon that looks thin like paper was nothing else than a "divine object" class weapon.
 
@@ -65,7 +65,7 @@ Then one of them ── a young swordswoman with the long chestnut hair flutteri
 
 "Hey, come over here"
 
-As Tiese got hesitant and stepped back for a moment, Ronye moved forward and soon daringly crossed the yellow barrier rope. Behind her back, of course, followed Tsukigaki.
+As Tiese got hesitant and stepped back for a moment, Ronye moved forward and soon daringly crossed the yellow barrier rope. Behind her back, of course, followed Tsukigake.
 
 Under focused gaze of numerous spectators gathered, pulling her head in to the limit, she slowly crossed the square. Stopping in front of a swordswoman, she stretched out to the fingertips and returned the knight’s greeting again.
 
@@ -189,7 +189,7 @@ Then, she noticed that there is a thing that seems to be nothing but a chair ins
 
 It was Kirito who stood next before she finished.
 
-Next to them, Tsukigaki sniffed the metal wings of the “machine dragon”, and turned away with clearly disappointed face.
+Next to them, Tsukigake sniffed the metal wings of the “machine dragon”, and turned away with clearly disappointed face.
 
 "Un......, un..., un..., unreasonable, senpai!"
 
@@ -269,7 +269,7 @@ Asuna called out onlookers in an awfully familiar tone<sup><a href="#Prim4">4</a
 
 Approximately 1000 voices responded to the numbers Asuna shouted folding her fingers. Same moment, Tiese and Renry also joined the count with smiles on their faces.
 
-Ronye shouted together with them holding tightly to Tsukigaki’s neck.
+Ronye shouted together with them holding tightly to Tsukigake’s neck.
 
 『Seven! Six! Five!』
 

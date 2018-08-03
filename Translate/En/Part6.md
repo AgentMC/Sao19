@@ -2,15 +2,15 @@
 
 Dawn of the next day, 19th February.
 
-In the huge dragon stables by the western end of Cathedral site, Ronye was stroking the neck of her beloved Tsukigaki again and again.
+In the huge dragon stables by the western end of Cathedral site, Ronye was stroking the neck of her beloved Tsukigake again and again.
 
-Young Tsukigaki was making sound of “**Kurururu**”... narrowing the eyes, half from the pleasure, half because it was simply still sleepy. Not only the young dragon, but also Tiese leaning against the silvery fence was sweepingly rocking the red hair. Last night, Ronye thought about going to bed early but could not fall asleep, so she talked to Tiese about a lot of things in the living room.
+Young Tsukigake was making sound of “**Kurururu**”... narrowing the eyes, half from the pleasure, half because it was simply still sleepy. Not only the young dragon, but also Tiese leaning against the silvery fence was sweepingly rocking the red hair. Last night, Ronye thought about going to bed early but could not fall asleep, so she talked to Tiese about a lot of things in the living room.
 
 It is strange that topics for long talks wouldn’t run out even though they were together every day for nearly two years, but her best friend was that kind of person. Kirito and Yujio also had to leave northern Rulid village, traveled to the central capital, entered the Sword Mastery Academy, took a year to become Elite Swordsmen, but it was always fun with those two people: talking about swordsmanship, and fights, and sometimes even sharing the silence was perfectly cozy.
 
 _Now Tiese is at the crossroad of adult life. Whether she accepts the proposal of Integrity Knight Renri, or refuses, I think we can at least remain best friend forever._
 
-"... Well then, Tsukigaki, I’ll go, I guess. Listen carefully to Tiese and be a good boy."
+"... Well then, Tsukigake, I’ll go, I guess. Listen carefully to Tiese and be a good boy."
 
 Ronye stood up, and the young dragon lifted his neck and replied "**Kyuru~**".
 
@@ -92,7 +92,7 @@ Kirito immediately came up the ladder after her, returned the back of the front 
 
 Same moment Ronye’s heart began to pound and she gulped the saliva.
 
-Tsukigaki was still young and couldn’t fly, but there have been many times she was allowed to ride Renri’s Kazenui<sup><a href="#Prim1">1</a></sup>, Fizel's Himawari and Linel's Hinageshi<sup><a href="#Prim2">2</a></sup>. As expected it was scary for the first one or two times, but the pleasant feeling of flying through the air soon grew above fear. However, she never thought of flying in the sky by herself, or specifically with the artificial dragon made of metal, moreover, flying inside of it rather than riding on the back, so a feeling of incongruity completely engulfed her. _In the first place, there are no wings for flapping, so how would it return to the ground anyway after taking off?_
+Tsukigake was still young and couldn’t fly, but there have been many times she was allowed to ride Renri’s Kazenui<sup><a href="#Prim1">1</a></sup>, Fizel's Himawari and Linel's Hinageshi<sup><a href="#Prim2">2</a></sup>. As expected it was scary for the first one or two times, but the pleasant feeling of flying through the air soon grew above fear. However, she never thought of flying in the sky by herself, or specifically with the artificial dragon made of metal, moreover, flying inside of it rather than riding on the back, so a feeling of incongruity completely engulfed her. _In the first place, there are no wings for flapping, so how would it return to the ground anyway after taking off?_
 
 That moment she again remembered the scene where Version 1 exploded and after calming down her trembling body she asked.
 
