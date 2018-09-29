@@ -4,15 +4,15 @@ Dawn of the next day, 19th February.
 
 In the huge dragon stables by the western end of Cathedral site, Ronye was stroking the neck of her beloved Tsukigake again and again.
 
-Young Tsukigake was making sound of “**Kurururu**”... narrowing the eyes, half from the pleasure, half because it was simply still sleepy. Not only the young dragon, but also Tiese leaning against the silvery fence was sweepingly rocking the red hair. Last night, Ronye thought about going to bed early but could not fall asleep, so she talked to Tiese about a lot of things in the living room.
+Young Tsukigake was making sound of “**Kurururu**”... narrowing the eyes, half from the pleasure, half because she was simply still sleepy. Not only the young dragon, but also Tiese leaning against the silvery fence was sweepingly rocking the red hair. Last night, Ronye thought about going to bed early but could not fall asleep, so she talked to Tiese about a lot of things in the living room.
 
 It is strange that topics for long talks wouldn’t run out even though they were together every day for nearly two years, but her best friend was that kind of person. Kirito and Yujio also had to leave northern Rulid village, traveled to the central capital, entered the Sword Mastery Academy, took a year to become Elite Swordsmen, but it was always fun with those two people: talking about swordsmanship, and fights, and sometimes even sharing the silence was perfectly cozy.
 
 _Now Tiese is at the crossroad of adult life. Whether she accepts the proposal of Integrity Knight Renri, or refuses, I think we can at least remain best friend forever._
 
-"... Well then, Tsukigake, I’ll go, I guess. Listen carefully to Tiese and be a good boy."
+"... Well then, Tsukigake, I’ll go, I guess. Listen carefully to Tiese and be a good girl."
 
-Ronye stood up, and the young dragon lifted his neck and replied "**Kyuru~**".
+Ronye stood up, and the young dragon lifted her neck and replied "**Kyuru~**".
 
 ***
 

@@ -335,7 +335,7 @@ Ronye rushed to the dragon stables to the west of Cathedral and waved cheerfully
 
 "I'm sorry, I got late!"
 
-Having heard that voice, a young pale-yellow dragon raised his face quickly from the grassland, sang “**kururu**” and came running up. Holding the fluffy body and scratching beneath his chin, Ronye said to Tiese.
+Having heard that voice, a young pale-yellow dragon raised her face quickly from the grassland, sang “**kururu**” and came running up. Holding the fluffy body and scratching beneath her chin, Ronye said to Tiese.
 
 "Thank you, Tiese. Of course, I owe you one."
 

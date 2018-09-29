@@ -56,7 +56,7 @@ Having released both shoulders of Kirito and nodded to the each chair around the
 
 Having answered, the knight chief passed on a sleeping baby to the arms of Ronye. She was surprised by the weight felt by her arm. As an integrity knights apprentice, Ronye could swing with one hand both Human World’s weapon or a large two-mel length sword from the Dark Territory, but the weight of a child seemed quite different from that of a weapon.
 
-One-year-old Berchie firmly hugged to her chest with both arms and let out some murmuring, but immediately returned to restful sleep again. She bowed to Fanatio and returned to the wall. Tsukigake waiting there stretched its nose to smell Berchie and seemed to be interested.
+One-year-old Berchie firmly hugged to her chest with both arms and let out some murmuring, but immediately returned to restful sleep again. She bowed to Fanatio and returned to the wall. Tsukigake waiting there stretched her nose to smell Berchie and seemed to be interested.
 
 At the round table, Kirito, Asuna, Fanatio, Dusolbert, the head of clerics once used to be a monk and chiefs of various departments of the Cathedral sat around and started a meeting immediately.
 
@@ -68,7 +68,7 @@ Since that day was not a formal meeting, the knight apprentice Ronye was not obl
 
 But there was something Ronye secretly wanted to ask Kirito. When watching the flight experiment in the morning, she suddenly felt the need to confirm or reject the idea that came into her mind. But since Kirito would flew away as soon as Cathedral staff takes their eyes off him — to shopping streets of Centoria or to some city or village somewhere in the Human World as he has already done when things got rough, she intended to catch him quickly at the end of this meeting.
 
-Training the incarnation, one may keep standing for a few hours with one foot on the top of a thin iron pole, but waiting for the end of this meeting with her back by the pillar was causing more impatience. _But as long as there’s Tsukigake here, who is by its nature much calmer young dragon than Tiese’s Shimosaki, I won’t get tired of propping the pillar._
+Training the incarnation, one may keep standing for a few hours with one foot on the top of a thin iron pole, but waiting for the end of this meeting with her back by the pillar was causing more impatience. _But as long as there’s Tsukigake here, who is by the nature much calmer young dragon than Tiese’s Shimosaki, I won’t get tired of propping the pillar._
 
 While standing still listening to lively discussions, the baby snugly cuddled in her arms suddenly sneezed.
 
@@ -529,4 +529,4 @@ And then two humans and one dragon for quite some time looked up at the semicirc
 5. <a name="Prim5"></a>Kanji for this representative of osmanthus is special for the so-called “fragrant olive” species.
 6. <a name="Prim6"></a>…anymore, see Vol.17-18
 7. <a name="Prim7"></a>See [here](https://en.wikipedia.org/wiki/Noblesse_oblige).
-8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigake” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigake”, not “Lunagaki”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.
+8. <a name="Prim8"></a>Interestingly enough, Kawahara uses here normal kanji for the Earth moon, tsuki (月). However, Underworld moon has a special name, just like Solus. In this case, the pronounced name is given as furigana above the kanji 月. To add to this mess, I have to mention that first kanji of “Tsukigake” is again 月, but even though it’s named by the dwellers of Underworld who has no clue what “tsuki” means, it is still pronounced “Tsukigake”, not “Lunagake”. However, again, just like in case of Solus, the name of a goddess comes after the “localized” name, so the goddess of dreams is also called Lunaria.

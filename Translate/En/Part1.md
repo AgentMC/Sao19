@@ -20,7 +20,7 @@ The name of a surprised girl was Tiese Shtolienen. She was in the same status of
 
 _I should have brought the Southern Empire shawl I bought last week_, regretted the other one moving her gaze away, noticing Shimosaki<sup><a href="#Prim1">1</a></sup>, the young dragon she was raising, rubbing against Tsukigake’s nose, and a young man wearing a gentle smile behind Tiese.
 
-He was looking more like a boy than a young man, but the in addition to heavy long sword he was equipped with two crossed knives bent in the middle. Priority which is given to the sword was also considerable, but the one of throwing blades was simply outrageous. That weapon that looks thin like paper was nothing else than a "divine object" class weapon.
+He was looking more like a boy than a young man, but in addition to heavy long sword he was equipped with two crossed knives bent in the middle. Priority which is given to the sword was also considerable, but the one of throwing blades was simply outrageous. That weapon that looks thin like paper was nothing else than a "divine object" class weapon.
 
 Ronye lifted the right fist, moved an arm horizontally and hit the chest, and placed the left hand on the handle of the sword greeting the young man with the formal knight bow.
 
